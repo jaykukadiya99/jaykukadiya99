@@ -20,8 +20,9 @@
 </br>
 
 ## Shlok of the day 🌞
-"शौर्यं तेजो धृतिर्दाक्ष्यं युद्धे चाप्यपलायनम् | दानमीश्वरभावश्च क्षात्रं कर्म स्वभावजम् ||१८-४३||" </br>
-Translate: "18.43 Valour, glory, firmness, skill, generosity, steadiness in battle and ability to rule - these constitute the duty of a soldier. They flow from his own nature." </br>
+
+"त्याज्यं दोषवदित्येके कर्म प्राहुर्मनीषिणः | यज्ञदानतपःकर्म न त्याज्यमिति चापरे ||१८-३||" </br>
+Translate: "18.3 Some philosophers say that all action is evil and should be abandoned. Others that acts of sacrifice, benevolence and austerity should not be given up." </br>
 
 # Prefs
 
