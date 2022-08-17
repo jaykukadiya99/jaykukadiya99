@@ -1,7 +1,7 @@
-<img src="https://media.giphy.com/media/p4NLw3I4U0idi/giphy.gif" width="300">
-
 <h2 align='center'> <i>Hello, Folks! 👋 I am glad to see that you've visited my profile</i> </h2> 
 </br>
+
+<img src="https://media.giphy.com/media/p4NLw3I4U0idi/giphy.gif" width="300">
 
 ## About Me 🚀
 
@@ -39,9 +39,9 @@ Translate: "{translated}" </br>
   </tr>
   <tr>
     <th>Hosting & DevOps</th>
-    <td><img src="https://img.shields.io/badge/AWS-212d3c?style=for-the-badge&logo=Amazon"></td>
-    <td><img src="https://img.shields.io/badge/Heroku-3a41b0?style=for-the-badge&logo=Heroku"></td>
-    <td><img src="https://img.shields.io/badge/Firebase-0393d9?style=for-the-badge&logo=firebase"></td>
+    <td><img src="https://img.shields.io/badge/AWS-212d3c?style=for-the-badge&logo=Amazon">
+    <img src="https://img.shields.io/badge/Heroku-3a41b0?style=for-the-badge&logo=Heroku">
+    <img src="https://img.shields.io/badge/Firebase-0393d9?style=for-the-badge&logo=firebase"></td>
   </tr>
 </table>
 
