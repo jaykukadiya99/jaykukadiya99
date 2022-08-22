@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दैवी ह्येषा गुणमयी मम माया दुरत्यया | मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते ||७-१४||" </br>
-Translate: "7.14 Verily, this Divine Illusion of Phenomenon manifesting itself in the Qualities is difficult to surmount. Only they who devote themselves to Me and to Me alone can accomplish it." </br>
+"शक्नोतीहैव यः सोढुं प्राक्शरीरविमोक्षणात् | कामक्रोधोद्भवं वेगं स युक्तः स सुखी नरः ||५-२३||" </br>
+Translate: "5.23 He who, before he leaves his body, learns to surmount the promptings of desire and anger is a saint and is happy." </br>
 
 # Prefs
 
