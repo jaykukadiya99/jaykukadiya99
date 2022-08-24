@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"काश्यश्च परमेष्वासः शिखण्डी च महारथः | धृष्टद्युम्नो विराटश्च सात्यकिश्चापराजितः ||१-१७||" </br>
-Translate: "1.17 And the Maharaja of Benares, the great archer, Shikhandi, the great soldier, Dhrishtayumna, Virata and Satyaki, the invincible," </br>
+"यो मामजमनादिं च वेत्ति लोकमहेश्वरम् | असम्मूढः स मर्त्येषु सर्वपापैः प्रमुच्यते ||१०-३||" </br>
+Translate: "10.3 He who knows Me as the unborn, without beginning, the Lord of the universe, he, stripped of his delusion, becomes free from all conceivable sin." </br>
 
 # Prefs
 
