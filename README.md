@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वेदानां सामवेदोऽस्मि देवानामस्मि वासवः | इन्द्रियाणां मनश्चास्मि भूतानामस्मि चेतना ||१०-२२||" </br>
-Translate: "10.22 Of the Vedas I am the Hymns, I am the Electric Force in the Powers of Nature; of the senses I am the Mind; and I am the Intelligence in all that lives." </br>
+"सर्वयोनिषु कौन्तेय मूर्तयः सम्भवन्ति याः | तासां ब्रह्म महद्योनिरहं बीजप्रदः पिता ||१४-४||" </br>
+Translate: "14.4 O illustrious son of Kunti! Through whatever wombs men are born, it is the Spirit Itself that conceives, and I am their Father." </br>
 
 # Prefs
 
