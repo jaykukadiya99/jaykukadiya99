@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यज्ज्ञात्वा न पुनर्मोहमेवं यास्यसि पाण्डव | येन भूतान्यशेषेण द्रक्ष्यस्यात्मन्यथो मयि (var अशेषाणि) ||४-३५||" </br>
-Translate: "4.35 Having known That, thou shalt never again be confounded; and, O Arjuna, by the power of that wisdom, thou shalt see all these people as if they were thine own Self, and therefore as Me." </br>
+"वेदानां सामवेदोऽस्मि देवानामस्मि वासवः | इन्द्रियाणां मनश्चास्मि भूतानामस्मि चेतना ||१०-२२||" </br>
+Translate: "10.22 Of the Vedas I am the Hymns, I am the Electric Force in the Powers of Nature; of the senses I am the Mind; and I am the Intelligence in all that lives." </br>
 
 # Prefs
 
