@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ज्योतिषामपि तज्ज्योतिस्तमसः परमुच्यते | ज्ञानं ज्ञेयं ज्ञानगम्यं हृदि सर्वस्य विष्ठितम् ||१३-१८||" </br>
-Translate: "13.18 It is the Light of lights, beyond the reach of darkness; the Wisdom, the only thing that is worth knowing or that wisdom can teach; the Presence in the hearts of all." </br>
+"श्रीभगवानुवाच | पार्थ नैवेह नामुत्र विनाशस्तस्य विद्यते | न हि कल्याणकृत्कश्चिद् दुर्गतिं तात गच्छति ||६-४०||" </br>
+Translate: "6.40 Lord Shri Krishna replied: My beloved child! There is no destruction for him, either in this world or in the next. No evil fate awaits him who treads the path of righteousness." </br>
 
 # Prefs
 
