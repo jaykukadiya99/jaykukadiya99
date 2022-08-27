@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्मात्प्रणम्य प्रणिधाय कायं प्रसादये त्वामहमीशमीड्यम् | पितेव पुत्रस्य सखेव सख्युः प्रियः प्रियायार्हसि देव सोढुम् ||११-४४||" </br>
-Translate: "11.44 Therefore I prostrate myself before Thee, O Lord! Most Adorable! I salute Thee, I ask Thy blessing. Only Thou canst be trusted to bear with me, as father to son, as friend to friend, as lover to his beloved." </br>
+"ज्योतिषामपि तज्ज्योतिस्तमसः परमुच्यते | ज्ञानं ज्ञेयं ज्ञानगम्यं हृदि सर्वस्य विष्ठितम् ||१३-१८||" </br>
+Translate: "13.18 It is the Light of lights, beyond the reach of darkness; the Wisdom, the only thing that is worth knowing or that wisdom can teach; the Presence in the hearts of all." </br>
 
 # Prefs
 
