@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अधर्माभिभवात्कृष्ण प्रदुष्यन्ति कुलस्त्रियः | स्त्रीषु दुष्टासु वार्ष्णेय जायते वर्णसङ्करः ||१-४१||" </br>
-Translate: "1.41 When irreligion spreads, the women of the house begin to stray; when they lose their purity, adulteration of the stock follows." </br>
+"ततः शङ्खाश्च भेर्यश्च पणवानकगोमुखाः | सहसैवाभ्यहन्यन्त स शब्दस्तुमुलोऽभवत् ||१-१३||" </br>
+Translate: "1.13 And immediately all the conches and drums, the trumpets and horns, blared forth in tumultuous uproar." </br>
 
 # Prefs
 
