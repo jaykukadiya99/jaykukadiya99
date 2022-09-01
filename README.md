@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तच्च संस्मृत्य संस्मृत्य रूपमत्यद्भुतं हरेः | विस्मयो मे महान् राजन्हृष्यामि च पुनः पुनः ||१८-७७||" </br>
-Translate: "18.77 As memory recalls again and again the exceeding beauty of the Lord, I am filled with amazement and happiness." </br>
+"इन्द्रियाणां हि चरतां यन्मनोऽनुविधीयते | तदस्य हरति प्रज्ञां वायुर्नावमिवाम्भसि ||२-६७||" </br>
+Translate: "2.67 As a ship at sea is tossed by the tempest, so the reason is carried away by the mind when preyed upon by straying senses." </br>
 
 # Prefs
 
