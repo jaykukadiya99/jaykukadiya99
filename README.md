@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"य एनं वेत्ति हन्तारं यश्चैनं मन्यते हतम् | उभौ तौ न विजानीतो नायं हन्ति न हन्यते ||२-१९||" </br>
-Translate: "2.19 He who thinks that the Spirit kills, and he who thinks of It as killed, are both ignorant. The Spirit kills not, nor is It killed." </br>
+"काममाश्रित्य दुष्पूरं दम्भमानमदान्विताः | मोहाद्गृहीत्वासद्ग्राहान्प्रवर्तन्तेऽशुचिव्रताः ||१६-१०||" </br>
+Translate: "16.10 Giving themselves up to insatiable passions, hypocritical, self-sufficient and arrogant, cherishing false conception founded on delusion, they work only to carry out their own unholy purposes." </br>
 
 # Prefs
 
