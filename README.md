@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ये त्वेतदभ्यसूयन्तो नानुतिष्ठन्ति मे मतम् | सर्वज्ञानविमूढांस्तान्विद्धि नष्टानचेतसः ||३-३२||" </br>
-Translate: "3.32 But they who ridicule My word and do not keep it, are ignorant, devoid of wisdom and blind. They seek but their own destruction." </br>
+"साधिभूताधिदैवं मां साधियज्ञं च ये विदुः | प्रयाणकालेऽपि च मां ते विदुर्युक्तचेतसः ||७-३०||" </br>
+Translate: "7.30 Those who see Me in the life of the world, in the universal sacrifice, and as pure Divinity, keeping their minds steady, they live in Me, even in the crucial hour of death."" </br>
 
 # Prefs
 
