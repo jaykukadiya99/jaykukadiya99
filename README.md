@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कथं विद्यामहं योगिंस्त्वां सदा परिचिन्तयन् | केषु केषु च भावेषु चिन्त्योऽसि भगवन्मया ||१०-१७||" </br>
-Translate: "10.17 O Master! How shall I, by constant meditation, know Thee? My Lord! What are Thy various manifestations through which I am to mediate on Thee?" </br>
+"अर्जुन उवाच | सेनयोरुभयोर्मध्ये रथं स्थापय मेऽच्युत ||१-२१||" </br>
+Translate: "1.21 Raising his bow, spoke this to the Lord Shri Krishna: O Infallible! Lord of the earth! Please draw up my chariot betwixt the two armies," </br>
 
 # Prefs
 
