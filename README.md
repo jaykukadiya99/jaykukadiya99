@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न तद्भासयते सूर्यो न शशाङ्को न पावकः | यद्गत्वा न निवर्तन्ते तद्धाम परमं मम ||१५-६||" </br>
-Translate: "15.6 Neither sun, moon, nor fire shines there. Those who go thither never come back. For, O Arjuna, that is my Celestial Home!" </br>
+"भवाप्ययौ हि भूतानां श्रुतौ विस्तरशो मया | त्वत्तः कमलपत्राक्ष माहात्म्यमपि चाव्ययम् ||११-२||" </br>
+Translate: "11.2 O Lord, whose eyes are like the lotus petal! Thou hast described in detail the origin and the dissolution of being, and Thine own Eternal Majesty." </br>
 
 # Prefs
 
