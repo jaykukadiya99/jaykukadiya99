@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रेयान्स्वधर्मो विगुणः परधर्मात्स्वनुष्ठितात् | स्वभावनियतं कर्म कुर्वन्नाप्नोति किल्बिषम् ||१८-४७||" </br>
-Translate: "18.47 It is better to do one's own duty, however defective it may be, than to follow the duty of another, however well one may perform it. He who does his duty as his own nature reveals it, never sins." </br>
+"रजस्तमश्चाभिभूय सत्त्वं भवति भारत | रजः सत्त्वं तमश्चैव तमः सत्त्वं रजस्तथा ||१४-१०||" </br>
+Translate: "14.10 O Prince! Purity prevails when Passion and Ignorance are overcome; Passion, when Purity and Ignorance are overcome; and Ignorance when it overcomes Purity and Passion." </br>
 
 # Prefs
 
