@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रजस्तमश्चाभिभूय सत्त्वं भवति भारत | रजः सत्त्वं तमश्चैव तमः सत्त्वं रजस्तथा ||१४-१०||" </br>
-Translate: "14.10 O Prince! Purity prevails when Passion and Ignorance are overcome; Passion, when Purity and Ignorance are overcome; and Ignorance when it overcomes Purity and Passion." </br>
+"यथाकाशस्थितो नित्यं वायुः सर्वत्रगो महान् | तथा सर्वाणि भूतानि मत्स्थानीत्युपधारय ||९-६||" </br>
+Translate: "9.6 As the mighty wind, though moving everywhere, has no resting place but space, so have all these beings no home but Me." </br>
 
 # Prefs
 
