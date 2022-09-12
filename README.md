@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | अभयं सत्त्वसंशुद्धिर्ज्ञानयोगव्यवस्थितिः | दानं दमश्च यज्ञश्च स्वाध्यायस्तप आर्जवम् ||१६-१||" </br>
-Translate: "16.1 "Lord Shri Krishna continued: Fearlessness, clean living, unceasing concentration on wisdom, readiness to give, self-control, a spirit of sacrifice, regular study of the scriptures, austerities, candour," </br>
+"कामक्रोधवियुक्तानां यतीनां यतचेतसाम् | अभितो ब्रह्मनिर्वाणं वर्तते विदितात्मनाम् ||५-२६||" </br>
+Translate: "5.26 Saints who know their Selves, who control their minds, and feel neither desire nor anger, find Eternal Bliss everywhere." </br>
 
 # Prefs
 
