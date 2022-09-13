@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनुद्वेगकरं वाक्यं सत्यं प्रियहितं च यत् | स्वाध्यायाभ्यसनं चैव वाङ्मयं तप उच्यते ||१७-१५||" </br>
-Translate: "17.15 Speech that hurts no one, that is true, is pleasant to listen to and beneficial, and the constant study of the scriptures - this is austerity in speech." </br>
+"न मां कर्माणि लिम्पन्ति न मे कर्मफले स्पृहा | इति मां योऽभिजानाति कर्मभिर्न स बध्यते ||४-१४||" </br>
+Translate: "4.14 My actions do not fetter Me, nor do I desire anything that they can bring. He who thus realises Me is not enslaved by action." </br>
 
 # Prefs
 
