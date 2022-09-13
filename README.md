@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न मां कर्माणि लिम्पन्ति न मे कर्मफले स्पृहा | इति मां योऽभिजानाति कर्मभिर्न स बध्यते ||४-१४||" </br>
-Translate: "4.14 My actions do not fetter Me, nor do I desire anything that they can bring. He who thus realises Me is not enslaved by action." </br>
+"यदा यदा हि धर्मस्य ग्लानिर्भवति भारत | अभ्युत्थानमधर्मस्य तदात्मानं सृजाम्यहम् ||४-७||" </br>
+Translate: "4.7 Whenever spirituality decays and materialism is rampant, then, O Arjuna, I reincarnate Myself!" </br>
 
 # Prefs
 
