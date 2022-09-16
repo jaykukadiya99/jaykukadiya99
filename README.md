@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तत्रैकाग्रं मनः कृत्वा यतचित्तेन्द्रियक्रियः | उपविश्यासने युञ्ज्याद्योगमात्मविशुद्धये ||६-१२||" </br>
-Translate: "6.12 Seated thus, his mind concentrated, its functions controlled and his senses governed, let him practise meditation for the purification of his lower nature." </br>
+"आब्रह्मभुवनाल्लोकाः पुनरावर्तिनोऽर्जुन | मामुपेत्य तु कौन्तेय पुनर्जन्म न विद्यते ||८-१६||" </br>
+Translate: "8.16 The worlds, with the whole realm of creation, come and go; but, O Arjuna, whoso comes to Me, for him there is nor rebirth." </br>
 
 # Prefs
 
