@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यद्यप्येते न पश्यन्ति लोभोपहतचेतसः | कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ||१-३८||" </br>
-Translate: "1.38 Although these men, blinded by greed, see no guilt in destroying their kin, or fighting against their friends," </br>
+"क्षिप्रं भवति धर्मात्मा शश्वच्छान्तिं निगच्छति | कौन्तेय प्रतिजानीहि न मे भक्तः प्रणश्यति ||९-३१||" </br>
+Translate: "9.31 He shall attain spirituality ere long, and Eternal Peace shall be his. O Arjuna! Believe me, My devotee is never lost." </br>
 
 # Prefs
 
