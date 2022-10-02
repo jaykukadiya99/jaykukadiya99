@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नाहं वेदैर्न तपसा न दानेन न चेज्यया | शक्य एवंविधो द्रष्टुं दृष्टवानसि मां यथा ||११-५३||" </br>
-Translate: "11.53 Not by study of the scriptures, or by austerities, not by gifts or sacrifices, is it possible to see Me as thou hast done." </br>
+"ये तु सर्वाणि कर्माणि मयि संन्यस्य मत्परः | अनन्येनैव योगेन मां ध्यायन्त उपासते ||१२-६||" </br>
+Translate: "12.6 Verily, those who surrender their actions to Me, who muse on Me, worship Me and meditate on Me alone, with no thought save of Me," </br>
 
 # Prefs
 
