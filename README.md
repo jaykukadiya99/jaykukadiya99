@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मण्यकर्म यः पश्येदकर्मणि च कर्म यः | स बुद्धिमान्मनुष्येषु स युक्तः कृत्स्नकर्मकृत् ||४-१८||" </br>
-Translate: "4.18 He who can see inaction in action, and action in inaction, is the wisest among men. He is a saint, even though he still acts." </br>
+"प्रसादे सर्वदुःखानां हानिरस्योपजायते | प्रसन्नचेतसो ह्याशु बुद्धिः पर्यवतिष्ठते ||२-६५||" </br>
+Translate: "2.65 Having attained Peace, he becomes free from misery; for when the mind gains peace, right discrimination follows." </br>
 
 # Prefs
 
