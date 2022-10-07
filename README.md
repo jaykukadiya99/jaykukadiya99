@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ततः शङ्खाश्च भेर्यश्च पणवानकगोमुखाः | सहसैवाभ्यहन्यन्त स शब्दस्तुमुलोऽभवत् ||१-१३||" </br>
-Translate: "1.13 And immediately all the conches and drums, the trumpets and horns, blared forth in tumultuous uproar." </br>
+"ब्राह्मणक्षत्रियविशां शूद्राणां च परन्तप | कर्माणि प्रविभक्तानि स्वभावप्रभवैर्गुणैः ||१८-४१||" </br>
+Translate: "18.41 O Arjuna! The duties of spiritual teachers, the soldiers, the traders and the servants have all been fixed according to the dominant Quality in their nature." </br>
 
 # Prefs
 
