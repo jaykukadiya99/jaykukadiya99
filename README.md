@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्रुपदो द्रौपदेयाश्च सर्वशः पृथिवीपते | सौभद्रश्च महाबाहुः शङ्खान्दध्मुः पृथक्पृथक् ||१-१८||" </br>
-Translate: "1.18 And O King! Drupada, the sons of Droupadi and Soubhadra, the great soldier, blew their conches." </br>
+"अहो बत महत्पापं कर्तुं व्यवसिता वयम् | यद्राज्यसुखलोभेन हन्तुं स्वजनमुद्यताः ||१-४५||" </br>
+Translate: "1.45 Alas, it is strange that we should be willing to kill our own countrymen and commit a great sin, in order to enjoy the pleasures of a kingdom." </br>
 
 # Prefs
 
