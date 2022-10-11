@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहो बत महत्पापं कर्तुं व्यवसिता वयम् | यद्राज्यसुखलोभेन हन्तुं स्वजनमुद्यताः ||१-४५||" </br>
-Translate: "1.45 Alas, it is strange that we should be willing to kill our own countrymen and commit a great sin, in order to enjoy the pleasures of a kingdom." </br>
+"कार्यमित्येव यत्कर्म नियतं क्रियतेऽर्जुन | सङ्गं त्यक्त्वा फलं चैव स त्यागः सात्त्विको मतः ||१८-९||" </br>
+Translate: "18.9 He who performs an obligatory action, because he believes it to be a duty which ought to be done, without any personal desire to do the act or to receive any return - such renunciation is Pure." </br>
 
 # Prefs
 
