@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कार्यमित्येव यत्कर्म नियतं क्रियतेऽर्जुन | सङ्गं त्यक्त्वा फलं चैव स त्यागः सात्त्विको मतः ||१८-९||" </br>
-Translate: "18.9 He who performs an obligatory action, because he believes it to be a duty which ought to be done, without any personal desire to do the act or to receive any return - such renunciation is Pure." </br>
+"अथ व्यवस्थितान्दृष्ट्वा धार्तराष्ट्रान् कपिध्वजः | प्रवृत्ते शस्त्रसम्पाते धनुरुद्यम्य पाण्डवः | हृषीकेशं तदा वाक्यमिदमाह महीपते ||१-२०||" </br>
+Translate: "1.20 Then beholding the sons of Dhritarashtra, drawn up on the battle- field, ready to fight, Arjuna, whose flag bore the Hanuman," </br>
 
 # Prefs
 
