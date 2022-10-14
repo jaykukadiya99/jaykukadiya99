@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अविनाशि तु तद्विद्धि येन सर्वमिदं ततम् | विनाशमव्ययस्यास्य न कश्चित्कर्तुमर्हति ||२-१७||" </br>
-Translate: "2.17 The Spirit, which pervades all that we see, is imperishable. Nothing can destroy the Spirit." </br>
+"पुरुषः स परः पार्थ भक्त्या लभ्यस्त्वनन्यया | यस्यान्तःस्थानि भूतानि येन सर्वमिदं ततम् ||८-२२||" </br>
+Translate: "8.22 O Arjuna! That Highest God, in Whom all beings abide, and Who pervades the entire universe, is reached only by wholehearted devotion. [The following material (between the asterisks) is an example of what may be a "doctored' inclusion. It does not jibe with the rest of the material because it is not presented as metaphor and clearly implies that worldly phenomena are spiritually determining. Maybe it was added by an individual or individuals who were less cognizant than the originating author. Or maybe was 'craftily' inserted to function as a sort of litmus test - those who get"taken in' by it may be recognized as not having "spiritual discernment'.]" </br>
 
 # Prefs
 
