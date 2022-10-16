@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इति गुह्यतमं शास्त्रमिदमुक्तं मयानघ | एतद्बुद्ध्वा बुद्धिमान्स्यात्कृतकृत्यश्च भारत ||१५-२०||" </br>
-Translate: "15.20 Thus, O Sinless One, I have revealed to thee this most mystic knowledge. He who understands gains wisdom and attains the consummation of life."" </br>
+"अथवा बहुनैतेन किं ज्ञातेन तवार्जुन | विष्टभ्याहमिदं कृत्स्नमेकांशेन स्थितो जगत् ||१०-४२||" </br>
+Translate: "10.42 But what is the use of all these details to thee? O Arjuna! I sustain this universe with only small part of Myself."" </br>
 
 # Prefs
 
