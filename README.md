@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यो मां पश्यति सर्वत्र सर्वं च मयि पश्यति | तस्याहं न प्रणश्यामि स च मे न प्रणश्यति ||६-३०||" </br>
-Translate: "6.30 He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." </br>
+"अनेकचित्तविभ्रान्ता मोहजालसमावृताः | प्रसक्ताः कामभोगेषु पतन्ति नरकेऽशुचौ ||१६-१६||" </br>
+Translate: "16.16 Perplexed by discordant thoughts, entangled in the snares of desire, infatuated by passion, they sink into the horrors of hell." </br>
 
 # Prefs
 
