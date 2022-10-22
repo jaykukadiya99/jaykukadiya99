@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्षयन्तः शरीरस्थं भूतग्राममचेतसः | मां चैवान्तःशरीरस्थं तान्विद्ध्यासुरनिश्चयान् ||१७-६||" </br>
-Translate: "17.6 They are ignorant. They torment the organs of the body; and they harass Me also, Who lives within. Know that they are devoted to evil." </br>
+"द्यूतं छलयतामस्मि तेजस्तेजस्विनामहम् | जयोऽस्मि व्यवसायोऽस्मि सत्त्वं सत्त्ववतामहम् ||१०-३६||" </br>
+Translate: "10.36 I am the Gambling of the cheat and the Splendour of the splendid; I am Victory; I am Effort; and I am the Purity of the pure." </br>
 
 # Prefs
 
