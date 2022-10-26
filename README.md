@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनन्याश्चिन्तयन्तो मां ये जनाः पर्युपासते | तेषां नित्याभियुक्तानां योगक्षेमं वहाम्यहम् ||९-२२||" </br>
-Translate: "9.22 But if a man will meditate on Me and Me alone, and will worship Me always and everywhere, I will take upon Myself the fulfillment of his aspiration, and I will safeguard whatsoever he shall attain." </br>
+"इच्छा द्वेषः सुखं दुःखं संघातश्चेतना धृतिः | एतत्क्षेत्रं समासेन सविकारमुदाहृतम् ||१३-७||" </br>
+Translate: "13.7 Desire, aversion, pleasure, pain, sympathy, vitality and the persistent clinging to life, these are in brief the constituents of changing Matter." </br>
 
 # Prefs
 
