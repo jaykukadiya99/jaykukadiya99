@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इच्छा द्वेषः सुखं दुःखं संघातश्चेतना धृतिः | एतत्क्षेत्रं समासेन सविकारमुदाहृतम् ||१३-७||" </br>
-Translate: "13.7 Desire, aversion, pleasure, pain, sympathy, vitality and the persistent clinging to life, these are in brief the constituents of changing Matter." </br>
+"तमेव शरणं गच्छ सर्वभावेन भारत | तत्प्रसादात्परां शान्तिं स्थानं प्राप्स्यसि शाश्वतम् ||१८-६२||" </br>
+Translate: "18.62 With all thy strength, fly unto Him and surrender thyself, and by His grace shalt thou attain Supreme Peace and reach the Eternal Home." </br>
 
 # Prefs
 
