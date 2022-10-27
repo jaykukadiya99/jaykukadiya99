@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"समं सर्वेषु भूतेषु तिष्ठन्तं परमेश्वरम् | विनश्यत्स्वविनश्यन्तं यः पश्यति स पश्यति ||१३-२८||" </br>
-Translate: "13.28 He who can see the Supreme Lord in all beings, the Imperishable amidst the perishable, he it is who really sees." </br>
+"सखेति मत्वा प्रसभं यदुक्तं हे कृष्ण हे यादव हे सखेति | अजानता महिमानं तवेदं मया प्रमादात्प्रणयेन वापि ||११-४१||" </br>
+Translate: "11.41 Whatever I have said unto Thee in rashness, taking Thee only for a friend and addressing Thee as O Krishna! O Yadava! O Friend!' in thoughtless familiarity, no understanding Thy greatness;" </br>
 
 # Prefs
 
