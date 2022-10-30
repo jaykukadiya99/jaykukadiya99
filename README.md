@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | इदं तु ते गुह्यतमं प्रवक्ष्याम्यनसूयवे | ज्ञानं विज्ञानसहितं यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ||९-१||" </br>
-Translate: "9.1 "Lord Shri Krishna said: I will now reveal to thee, since thou doubtest not, that profound mysticism, which when followed by experience, shall liberate thee from sin." </br>
+"योगसंन्यस्तकर्माणं ज्ञानसञ्छिन्नसंशयम् | आत्मवन्तं न कर्माणि निबध्नन्ति धनञ्जय ||४-४१||" </br>
+Translate: "4.41 But the man who has renounced his action for meditation, who has cleft his doubt in twain by the sword of wisdom, who remains always enthroned in his Self, is not bound by his acts." </br>
 
 # Prefs
 
