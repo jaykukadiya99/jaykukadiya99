@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यतन्तो योगिनश्चैनं पश्यन्त्यात्मन्यवस्थितम् | यतन्तोऽप्यकृतात्मानो नैनं पश्यन्त्यचेतसः ||१५-११||" </br>
-Translate: "15.11 The saints with great effort find Him within themselves; but not the unintelligent, who in spite of every effort cannot control their minds." </br>
+"सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः | मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ||१८-५६||" </br>
+Translate: "18.56 Relying on Me in all his action and doing them for My sake, he attains, by My Grace, Eternal and Unchangeable Life." </br>
 
 # Prefs
 
