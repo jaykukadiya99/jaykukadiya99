@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शनैः शनैरुपरमेद् बुद्ध्या धृतिगृहीतया | आत्मसंस्थं मनः कृत्वा न किञ्चिदपि चिन्तयेत् ||६-२५||" </br>
-Translate: "6.25 Little by little, by the help of his reason controlled by fortitude, let him attain peace; and, fixing his mind on the Self, let him not think of any other thing." </br>
+"सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ | ततो युद्धाय युज्यस्व नैवं पापमवाप्स्यसि ||२-३८||" </br>
+Translate: "2.38 Look upon pleasure and pain, victory and defeat, with an equal eye. Make ready for the combat, and thou shalt commit no sin." </br>
 
 # Prefs
 
