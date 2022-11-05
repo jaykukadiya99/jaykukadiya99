@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यस्य नाहंकृतो भावो बुद्धिर्यस्य न लिप्यते | हत्वाऽपि स इमाँल्लोकान्न हन्ति न निबध्यते ||१८-१७||" </br>
-Translate: "18.17 He who has no pride, and whose intellect is unalloyed by attachment, even though he kill these people, yet he does not kill them, and his act does not bind him." </br>
+"आचार्याः पितरः पुत्रास्तथैव च पितामहाः | मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा ||१-३४||" </br>
+Translate: "1.34 Teachers, fathers and grandfathers, sons and grandsons, uncles, father-in-law, brothers-in-law and other relatives." </br>
 
 # Prefs
 
