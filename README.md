@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मणो ह्यपि बोद्धव्यं बोद्धव्यं च विकर्मणः | अकर्मणश्च बोद्धव्यं गहना कर्मणो गतिः ||४-१७||" </br>
-Translate: "4.17 It is necessary to consider what is right action, what is wrong action, and what is inaction, for mysterious is the law of action." </br>
+"येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च | त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ||१-३३||" </br>
+Translate: "1.33 When those for whose sake I desire these things stand here about to sacrifice their property and their lives:" </br>
 
 # Prefs
 
