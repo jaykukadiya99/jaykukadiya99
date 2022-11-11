@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कुलक्षये प्रणश्यन्ति कुलधर्माः सनातनाः | धर्मे नष्टे कुलं कृत्स्नमधर्मोऽभिभवत्युत ||१-४०||" </br>
-Translate: "1.40 The destruction of our kindred means the destruction of the traditions of our ancient lineage, and when these are lost, irreligion will overrun our homes." </br>
+"श्रीभगवानुवाच | हन्त ते कथयिष्यामि दिव्या ह्यात्मविभूतयः | प्राधान्यतः कुरुश्रेष्ठ नास्त्यन्तो विस्तरस्य मे ||१०-१९||" </br>
+Translate: "10.19 Lord Shri Krishna replied: So be it, My beloved fried! I will unfold to thee some of the chief aspects of My glory. Of its full extent there is no end." </br>
 
 # Prefs
 
