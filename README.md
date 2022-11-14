@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पिताहमस्य जगतो माता धाता पितामहः | वेद्यं पवित्रमोंकार ऋक्साम यजुरेव च ||९-१७||" </br>
-Translate: "9.17 I am the Father of the universe and its Mother; I am its Nourisher and its Grandfather; I am the Knowable and the Pure; I am Om; and I am the Sacred Scriptures." </br>
+"यं यं वापि स्मरन्भावं त्यजत्यन्ते कलेवरम् | तं तमेवैति कौन्तेय सदा तद्भावभावितः ||८-६||" </br>
+Translate: "8.6 On whatever sphere of being the mind of a man may be intent at the time of death, thither he will go." </br>
 
 # Prefs
 
