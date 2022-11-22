@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कामैस्तैस्तैर्हृतज्ञानाः प्रपद्यन्तेऽन्यदेवताः | तं तं नियममास्थाय प्रकृत्या नियताः स्वया ||७-२०||" </br>
-Translate: "7.20 They in whom wisdom is obscured by one desire or the other, worship the lesser Powers, practising many rites which vary according to their temperaments." </br>
+"निहत्य धार्तराष्ट्रान्नः का प्रीतिः स्याज्जनार्दन | पापमेवाश्रयेदस्मान्हत्वैतानाततायिनः ||१-३६||" </br>
+Translate: "1.36 My Lord! What happiness can come from the death of these sons of Dhritarashtra? We shall sin if we kill these desperate men." </br>
 
 # Prefs
 
