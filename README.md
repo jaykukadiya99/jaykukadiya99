@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"निहत्य धार्तराष्ट्रान्नः का प्रीतिः स्याज्जनार्दन | पापमेवाश्रयेदस्मान्हत्वैतानाततायिनः ||१-३६||" </br>
-Translate: "1.36 My Lord! What happiness can come from the death of these sons of Dhritarashtra? We shall sin if we kill these desperate men." </br>
+"बुद्धेर्भेदं धृतेश्चैव गुणतस्त्रिविधं शृणु | प्रोच्यमानमशेषेण पृथक्त्वेन धनञ्जय ||१८-२९||" </br>
+Translate: "18.29 Reason and conviction are threefold, according to the Quality which is dominant. I will explain them fully and severally, O Arjuna!" </br>
 
 # Prefs
 
