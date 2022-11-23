@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"चेतसा सर्वकर्माणि मयि संन्यस्य मत्परः | बुद्धियोगमुपाश्रित्य मच्चित्तः सततं भव ||१८-५७||" </br>
-Translate: "18.57 Surrender then thy actions unto Me, live in Me, concentrate thine intellect on Me, and think always of Me." </br>
+"योगी युञ्जीत सततमात्मानं रहसि स्थितः | एकाकी यतचित्तात्मा निराशीरपरिग्रहः ||६-१०||" </br>
+Translate: "6.10 Let the student of spirituality try unceasingly to concentrate his mind; Let him live in seclusion, absolutely alone, with mind and personality controlled, free from desire and without possessions." </br>
 
 # Prefs
 
