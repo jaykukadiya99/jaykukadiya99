@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पूर्वाभ्यासेन तेनैव ह्रियते ह्यवशोऽपि सः | जिज्ञासुरपि योगस्य शब्दब्रह्मातिवर्तते ||६-४४||" </br>
-Translate: "6.44 Unconsciously he will return to the practices of his old life; so that he who tries to realise spiritual consciousness is certainly superior to one who only talks of it." </br>
+"कर्मणो ह्यपि बोद्धव्यं बोद्धव्यं च विकर्मणः | अकर्मणश्च बोद्धव्यं गहना कर्मणो गतिः ||४-१७||" </br>
+Translate: "4.17 It is necessary to consider what is right action, what is wrong action, and what is inaction, for mysterious is the law of action." </br>
 
 # Prefs
 
