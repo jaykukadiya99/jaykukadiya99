@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्मान्नार्हा वयं हन्तुं धार्तराष्ट्रान्स्वबान्धवान् | स्वजनं हि कथं हत्वा सुखिनः स्याम माधव ||१-३७||" </br>
-Translate: "1.37 We are worthy of a nobler feat than to slaughter our relatives - the sons of Dhritarashtra; for, my Lord, how can we be happy of we kill our kinsmen?" </br>
+"तत्रैकाग्रं मनः कृत्वा यतचित्तेन्द्रियक्रियः | उपविश्यासने युञ्ज्याद्योगमात्मविशुद्धये ||६-१२||" </br>
+Translate: "6.12 Seated thus, his mind concentrated, its functions controlled and his senses governed, let him practise meditation for the purification of his lower nature." </br>
 
 # Prefs
 
