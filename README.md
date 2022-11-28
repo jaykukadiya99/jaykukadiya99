@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"या निशा सर्वभूतानां तस्यां जागर्ति संयमी | यस्यां जाग्रति भूतानि सा निशा पश्यतो मुनेः ||२-६९||" </br>
-Translate: "2.69 The saint is awake when the world sleeps, and he ignores that for which the world lives." </br>
+"उत्क्रामन्तं स्थितं वापि भुञ्जानं वा गुणान्वितम् | विमूढा नानुपश्यन्ति पश्यन्ति ज्ञानचक्षुषः ||१५-१०||" </br>
+Translate: "15.10 The ignorant do not see that it is He Who is present in life and Who departs at death or even that it is He Who enjoys pleasure through the Qualities. Only the eye of wisdom sees." </br>
 
 # Prefs
 
