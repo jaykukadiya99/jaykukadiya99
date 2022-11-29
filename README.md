@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शरीरं यदवाप्नोति यच्चाप्युत्क्रामतीश्वरः | गृहीत्वैतानि संयाति वायुर्गन्धानिवाशयात् ||१५-८||" </br>
-Translate: "15.8 When the Supreme Lord enters a body or leaves it, He gathers these senses together and travels on with them, as the wind gathers perfume while passing through the flowers." </br>
+"अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि | ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि ||२-३३||" </br>
+Translate: "2.33 Refuse to fight in this righteous cause, and thou wilt be a traitor, lost to fame, incurring only sin." </br>
 
 # Prefs
 
