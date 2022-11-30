@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"युक्तः कर्मफलं त्यक्त्वा शान्तिमाप्नोति नैष्ठिकीम् | अयुक्तः कामकारेण फले सक्तो निबध्यते ||५-१२||" </br>
-Translate: "5.12 Having abandoned the fruit of action, he wins eternal peace. Others unacquainted with spirituality, led by desire and clinging to the benefit which they think will follow their actions, become entangled in them." </br>
+"कर्षयन्तः शरीरस्थं भूतग्राममचेतसः | मां चैवान्तःशरीरस्थं तान्विद्ध्यासुरनिश्चयान् ||१७-६||" </br>
+Translate: "17.6 They are ignorant. They torment the organs of the body; and they harass Me also, Who lives within. Know that they are devoted to evil." </br>
 
 # Prefs
 
