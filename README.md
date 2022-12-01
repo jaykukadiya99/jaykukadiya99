@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नैनं छिन्दन्ति शस्त्राणि नैनं दहति पावकः | न चैनं क्लेदयन्त्यापो न शोषयति मारुतः ||२-२३||" </br>
-Translate: "2.23 Weapons cleave It not, fire burns It not, water drenches It not, and wind dries It not." </br>
+"नाहं प्रकाशः सर्वस्य योगमायासमावृतः | मूढोऽयं नाभिजानाति लोको मामजमव्ययम् ||७-२५||" </br>
+Translate: "7.25 I am not visible to all, for I am enveloped by the illusion of Phenomenon. This deluded world does not know Me as the Unborn and the Imperishable." </br>
 
 # Prefs
 
