@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः | एकमप्यास्थितः सम्यगुभयोर्विन्दते फलम् ||५-४||" </br>
-Translate: "5.4 Only the unenlightened speak of wisdom and right action as separate, not the wise. If any man knows one, he enjoys the fruit of both." </br>
+"इन्द्रियस्येन्द्रियस्यार्थे रागद्वेषौ व्यवस्थितौ | तयोर्न वशमागच्छेत्तौ ह्यस्य परिपन्थिनौ ||३-३४||" </br>
+Translate: "3.34 The love and hate which are aroused by the objects of sense arise from Nature; do not yield to them. They only obstruct the path." </br>
 
 # Prefs
 
