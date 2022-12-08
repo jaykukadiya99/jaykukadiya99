@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहं क्रतुरहं यज्ञः स्वधाहमहमौषधम् | मन्त्रोऽहमहमेवाज्यमहमग्निरहं हुतम् ||९-१६||" </br>
-Translate: "9.16 I am the Oblation, the Sacrifice and the Worship; I am the Fuel and the Chant, I am the Butter offered to the fire, I am the Fire itself, and I am the Act of offering." </br>
+"अनादित्वान्निर्गुणत्वात्परमात्मायमव्ययः | शरीरस्थोऽपि कौन्तेय न करोति न लिप्यते ||१३-३२||" </br>
+Translate: "13.32 The Supreme Spirit, O Prince, is without beginning, without Qualities and Imperishable, and though it be within the body, yet It does not act, nor is It affected by action." </br>
 
 # Prefs
 
