@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्तु कामेप्सुना कर्म साहंकारेण वा पुनः | क्रियते बहुलायासं तद्राजसमुदाहृतम् ||१८-२४||" </br>
-Translate: "18.24 But even though an action involve the most strenuous endeavour, yet if the doer is seeking to gratify his desires, and is filled with personal vanity, it may be assumed to originate in Passion." </br>
+"ये हि संस्पर्शजा भोगा दुःखयोनय एव ते | आद्यन्तवन्तः कौन्तेय न तेषु रमते बुधः ||५-२२||" </br>
+Translate: "5.22 The joys that spring from external associations bring pain; they have their beginning and their endings. The wise man does not rejoice in them." </br>
 
 # Prefs
 
