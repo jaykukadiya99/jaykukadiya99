@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"येषां त्वन्तगतं पापं जनानां पुण्यकर्मणाम् | ते द्वन्द्वमोहनिर्मुक्ता भजन्ते मां दृढव्रताः ||७-२८||" </br>
-Translate: "7.28 But those who act righteously, in whom sin has been destroyed, who are free from the infatuation of the conflicting emotions, they worship Me with firm resolution." </br>
+"आवृतं ज्ञानमेतेन ज्ञानिनो नित्यवैरिणा | कामरूपेण कौन्तेय दुष्पूरेणानलेन च ||३-३९||" </br>
+Translate: "3.39 It is the wise man's constant enemy; it tarnishes the face of wisdom. It is as insatiable as a flame of fire." </br>
 
 # Prefs
 
