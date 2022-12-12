@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"योगिनामपि सर्वेषां मद्गतेनान्तरात्मना | श्रद्धावान्भजते यो मां स मे युक्ततमो मतः ||६-४७||" </br>
-Translate: "6.47 I look upon him as the best of mystics who, full of faith, worshippeth Me and abideth in Me."" </br>
+"त्रिभिर्गुणमयैर्भावैरेभिः सर्वमिदं जगत् | मोहितं नाभिजानाति मामेभ्यः परमव्ययम् ||७-१३||" </br>
+Translate: "7.13 The inhabitants of the world, misled by those natures which the Qualities have engendered, know not that I am higher than them all, and that I do not change." </br>
 
 # Prefs
 
