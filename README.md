@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यद्यद्विभूतिमत्सत्त्वं श्रीमदूर्जितमेव वा | तत्तदेवावगच्छ त्वं मम तेजोंऽशसम्भवम् ||१०-४१||" </br>
-Translate: "10.41 Whatever is glorious, excellent, beautiful and mighty, be assured that it comes from a fragment of My splendour." </br>
+"असक्तबुद्धिः सर्वत्र जितात्मा विगतस्पृहः | नैष्कर्म्यसिद्धिं परमां संन्यासेनाधिगच्छति ||१८-४९||" </br>
+Translate: "18.49 He whose mind is entirely detached, who has conquered himself, whose desires have vanished, by his renunciation reaches that stage of perfect freedom where action completes itself and leaves no seed." </br>
 
 # Prefs
 
