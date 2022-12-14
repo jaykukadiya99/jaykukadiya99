@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | अयतिः श्रद्धयोपेतो योगाच्चलितमानसः | अप्राप्य योगसंसिद्धिं कां गतिं कृष्ण गच्छति ||६-३७||" </br>
-Translate: "6.37 Arjuna asked: He who fails to control himself, whose mind falls from spiritual contemplation, who attains not perfection but retains his faith, what of him, my Lord?" </br>
+"यद्यद्विभूतिमत्सत्त्वं श्रीमदूर्जितमेव वा | तत्तदेवावगच्छ त्वं मम तेजोंऽशसम्भवम् ||१०-४१||" </br>
+Translate: "10.41 Whatever is glorious, excellent, beautiful and mighty, be assured that it comes from a fragment of My splendour." </br>
 
 # Prefs
 
