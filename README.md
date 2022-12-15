@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स्वे स्वे कर्मण्यभिरतः संसिद्धिं लभते नरः | स्वकर्मनिरतः सिद्धिं यथा विन्दति तच्छृणु ||१८-४५||" </br>
-Translate: "5.10 He who dedicates his actions to the Spirit, without any personal attachment to them, he is no more tainted by sin than the water lily is wetted by water." </br>
+"यस्मात्क्षरमतीतोऽहमक्षरादपि चोत्तमः | अतोऽस्मि लोके वेदे च प्रथितः पुरुषोत्तमः ||१५-१८||" </br>
+Translate: "15.18 Beyond comparison of the Eternal with the non-eternal am I, Who am called by scriptures and sages the Supreme Personality, the Highest God." </br>
 
 # Prefs
 
