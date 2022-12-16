@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | कालोऽस्मि लोकक्षयकृत्प्रवृद्धो लोकान्समाहर्तुमिह प्रवृत्तः | ऋतेऽपि त्वां न भविष्यन्ति सर्वे येऽवस्थिताः प्रत्यनीकेषु योधाः ||११-३२||" </br>
-Translate: "11.32 Lord Shri Krishna replied: I have shown myself to thee as the Destroyer who lays waste the world and whose purpose is destruction. In spite of thy efforts, all these warriors gathered for battle shall not escape death." </br>
+"गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् | प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम् ||९-१८||" </br>
+Translate: "9.18 I am the Goal, the Sustainer, the Lord, the Witness, the Home, the Shelter, the Lover and the Origin; I am Life and Death; I am the Fountain and the Seed Imperishable." </br>
 
 # Prefs
 
