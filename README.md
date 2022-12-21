@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इदं ते नातपस्काय नाभक्ताय कदाचन | न चाशुश्रूषवे वाच्यं न च मां योऽभ्यसूयति ||१८-६७||" </br>
-Translate: "18.67 Speak not this to one who has not practised austerities, or to him who does not love, or who will not listen, or who mocks." </br>
+"त्यक्त्वा कर्मफलासङ्गं नित्यतृप्तो निराश्रयः | कर्मण्यभिप्रवृत्तोऽपि नैव किञ्चित्करोति सः ||४-२०||" </br>
+Translate: "4.20 Having surrendered all claim to the results of his actions, always contented and independent, in reality he does nothing, even though he is apparently acting." </br>
 
 # Prefs
 
