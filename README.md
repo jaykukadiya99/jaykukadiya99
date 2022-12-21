@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भूतग्रामः स एवायं भूत्वा भूत्वा प्रलीयते | रात्र्यागमेऽवशः पार्थ प्रभवत्यहरागमे ||८-१९||" </br>
-Translate: "8.19 The same multitude of beings, which have lived on earth so often, all are dissolved as the night of the universe approaches, to issue forth anew when morning breaks. Thus is it ordained." </br>
+"एतन्मे संशयं कृष्ण छेत्तुमर्हस्यशेषतः | त्वदन्यः संशयस्यास्य छेत्ता न ह्युपपद्यते ||६-३९||" </br>
+Translate: "6.39 My Lord! Thou art worthy to solve this doubt once and for all; save Thyself there is no one competent to do so." </br>
 
 # Prefs
 
