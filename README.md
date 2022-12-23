@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहो बत महत्पापं कर्तुं व्यवसिता वयम् | यद्राज्यसुखलोभेन हन्तुं स्वजनमुद्यताः ||१-४५||" </br>
-Translate: "1.45 Alas, it is strange that we should be willing to kill our own countrymen and commit a great sin, in order to enjoy the pleasures of a kingdom." </br>
+"अपि चेदसि पापेभ्यः सर्वेभ्यः पापकृत्तमः | सर्वं ज्ञानप्लवेनैव वृजिनं सन्तरिष्यसि ||४-३६||" </br>
+Translate: "4.36 Be thou the greatest of sinners, yet thou shalt cross over all sin by the ferryboat of wisdom." </br>
 
 # Prefs
 
