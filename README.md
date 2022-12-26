@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सदृशं चेष्टते स्वस्याः प्रकृतेर्ज्ञानवानपि | प्रकृतिं यान्ति भूतानि निग्रहः किं करिष्यति ||३-३३||" </br>
-Translate: "3.33 Even the wise man acts in character with his nature; indeed, all creatures act according to their natures. What is the use of compulsion then?" </br>
+"ओमित्येकाक्षरं ब्रह्म व्याहरन्मामनुस्मरन् | यः प्रयाति त्यजन्देहं स याति परमां गतिम् ||८-१३||" </br>
+Translate: "8.13 Repeating Om, the Symbol of Eternity, holding Me always in remembrance, he who thus leaves his body and goes forth reaches the Spirit Supreme." </br>
 
 # Prefs
 
