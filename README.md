@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अशास्त्रविहितं घोरं तप्यन्ते ये तपो जनाः | दम्भाहंकारसंयुक्ताः कामरागबलान्विताः ||१७-५||" </br>
-Translate: "17.5 Those who practise austerities not commanded by scripture, who are slaves to hypocrisy and egotism, who are carried away by the fury of desire and passion," </br>
+"यद्यप्येते न पश्यन्ति लोभोपहतचेतसः | कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ||१-३८||" </br>
+Translate: "1.38 Although these men, blinded by greed, see no guilt in destroying their kin, or fighting against their friends," </br>
 
 # Prefs
 
