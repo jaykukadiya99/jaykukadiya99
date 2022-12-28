@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यद्यप्येते न पश्यन्ति लोभोपहतचेतसः | कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ||१-३८||" </br>
-Translate: "1.38 Although these men, blinded by greed, see no guilt in destroying their kin, or fighting against their friends," </br>
+"यो यो यां यां तनुं भक्तः श्रद्धयार्चितुमिच्छति | तस्य तस्याचलां श्रद्धां तामेव विदधाम्यहम् ||७-२१||" </br>
+Translate: "7.21 But whatever the form of worship, if the devotee have faith, then upon his faith in that worship do I set My own seal." </br>
 
 # Prefs
 
