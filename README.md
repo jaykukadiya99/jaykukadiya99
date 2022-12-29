@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यस्य नाहंकृतो भावो बुद्धिर्यस्य न लिप्यते | हत्वाऽपि स इमाँल्लोकान्न हन्ति न निबध्यते ||१८-१७||" </br>
-Translate: "18.17 He who has no pride, and whose intellect is unalloyed by attachment, even though he kill these people, yet he does not kill them, and his act does not bind him." </br>
+"अश्रद्धया हुतं दत्तं तपस्तप्तं कृतं च यत् | असदित्युच्यते पार्थ न च तत्प्रेत्य नो इह ||१७-२८||" </br>
+Translate: "17.28 Whatsoever is done without faith, whether it be sacrifice, austerity or gift or anything else, as called Asat' (meaning Unreal') for it is the negation of Sat,' O Arjuna! Such an act has no significance, here or hereafter."" </br>
 
 # Prefs
 
