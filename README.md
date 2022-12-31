@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कथं न ज्ञेयमस्माभिः पापादस्मान्निवर्तितुम् | कुलक्षयकृतं दोषं प्रपश्यद्भिर्जनार्दन ||१-३९||" </br>
-Translate: "1.39 Should not we, whose eyes are open, who consider it to be wrong to annihilate our house, turn away from so great a crime?" </br>
+"पुरोधसां च मुख्यं मां विद्धि पार्थ बृहस्पतिम् | सेनानीनामहं स्कन्दः सरसामस्मि सागरः ||१०-२४||" </br>
+Translate: "10.24 Among the priests, know, O Arjuna, that I am the Apostle Brihaspati; of generals I am Skanda, the Commander-in-Chief, and of waters I am the Ocean." </br>
 
 # Prefs
 
