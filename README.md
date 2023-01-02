@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यस्त्विन्द्रियाणि मनसा नियम्यारभतेऽर्जुन | कर्मेन्द्रियैः कर्मयोगमसक्तः स विशिष्यते ||३-७||" </br>
-Translate: "3.7 But, O Arjuna! All honour to him whose mind controls his senses, for he is thereby beginning to practise Karma-Yoga, the Path of Right Action, keeping himself always unattached." </br>
+"महर्षीणां भृगुरहं गिरामस्म्येकमक्षरम् | यज्ञानां जपयज्ञोऽस्मि स्थावराणां हिमालयः ||१०-२५||" </br>
+Translate: "10.25 Of the great seers I am Bhrigu, of words I am Om, of offerings I am the silent prayer, among things immovable I am the Himalayas." </br>
 
 # Prefs
 
