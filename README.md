@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न कर्तृत्वं न कर्माणि लोकस्य सृजति प्रभुः | न कर्मफलसंयोगं स्वभावस्तु प्रवर्तते ||५-१४||" </br>
-Translate: "5.14 The Lord of this universe has not ordained activity, or any incentive thereto, or any relation between an act and its consequences. All this is the work of Nature." </br>
+"श्रीभगवानुवाच | मया प्रसन्नेन तवार्जुनेदं रूपं परं दर्शितमात्मयोगात् | तेजोमयं विश्वमनन्तमाद्यं यन्मे त्वदन्येन न दृष्टपूर्वम् ||११-४७||" </br>
+Translate: "11.47 Lord Shri Krishna replied: My beloved friend! It is only through My grace and power that thou hast been able to see this vision of splendour, the Universal, the Infinite, the Original. Never has it been seen by any but thee." </br>
 
 # Prefs
 
