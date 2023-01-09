@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"महर्षयः सप्त पूर्वे चत्वारो मनवस्तथा | मद्भावा मानसा जाता येषां लोक इमाः प्रजाः ||१०-६||" </br>
-Translate: "10.6 The seven Great Seers,* the Progenitors of mankind, the Ancient Four,** and the Lawgivers were born of My Will and come forth direct from Me. The race of mankind has sprung from them. [* Mareechi, Atri, Angira, Pulah, Kratu, Pulastya, Vahishta. ** The Masters: Sanak, Sanandan, Sanatan, Sanatkumar.]" </br>
+"रूपं महत्ते बहुवक्त्रनेत्रं महाबाहो बहुबाहूरुपादम् | बहूदरं बहुदंष्ट्राकरालं दृष्ट्वा लोकाः प्रव्यथितास्तथाहम् ||११-२३||" </br>
+Translate: "11.23 Seeing Thy stupendous Form, O Most Mighty, with its myriad faces, its innumerable eyes and limbs and terrible jaws, I myself and all the worlds are overwhelmed with awe." </br>
 
 # Prefs
 
