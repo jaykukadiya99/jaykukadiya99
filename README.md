@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्मान्नार्हा वयं हन्तुं धार्तराष्ट्रान्स्वबान्धवान् | स्वजनं हि कथं हत्वा सुखिनः स्याम माधव ||१-३७||" </br>
-Translate: "1.37 We are worthy of a nobler feat than to slaughter our relatives - the sons of Dhritarashtra; for, my Lord, how can we be happy of we kill our kinsmen?" </br>
+"विद्याविनयसम्पन्ने ब्राह्मणे गवि हस्तिनि | शुनि चैव श्वपाके च पण्डिताः समदर्शिनः ||५-१८||" </br>
+Translate: "5.18 Sages look equally upon all, whether he be a minister of learning and humility, or an infidel, or whether it be a cow, an elephant or a dog." </br>
 
 # Prefs
 
