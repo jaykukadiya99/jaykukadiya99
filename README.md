@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ये मे मतमिदं नित्यमनुतिष्ठन्ति मानवाः | श्रद्धावन्तोऽनसूयन्तो मुच्यन्ते तेऽपि कर्मभिः ||३-३१||" </br>
-Translate: "3.31 Those who always act in accordance with My precepts, firm in faith and without cavilling, they too are freed from the bondage of action." </br>
+"पुरुषः प्रकृतिस्थो हि भुङ्क्ते प्रकृतिजान्गुणान् | कारणं गुणसङ्गोऽस्य सदसद्योनिजन्मसु ||१३-२२||" </br>
+Translate: "13.22 God dwelling in the heart of Nature experiences the Qualities which nature brings forth; and His affinity towards the Qualities is the reason for His living in a good or evil body." </br>
 
 # Prefs
 
