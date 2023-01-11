@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | तं तथा कृपयाविष्टमश्रुपूर्णाकुलेक्षणम् | विषीदन्तमिदं वाक्यमुवाच मधुसूदनः ||२-१||" </br>
-Translate: "2.1 Sanjaya then told how the Lord Shri Krishna, seeing Arjuna overwhelmed with compassion, his eyes dimmed with flowing tears and full of despondency, consoled him:" </br>
+"तानि सर्वाणि संयम्य युक्त आसीत मत्परः | वशे हि यस्येन्द्रियाणि तस्य प्रज्ञा प्रतिष्ठिता ||२-६१||" </br>
+Translate: "2.61 Restraining them all, let him meditate steadfastly on Me; for who thus conquers his senses achieves perfection." </br>
 
 # Prefs
 
