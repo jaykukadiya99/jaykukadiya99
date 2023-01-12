@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा यदा हि धर्मस्य ग्लानिर्भवति भारत | अभ्युत्थानमधर्मस्य तदात्मानं सृजाम्यहम् ||४-७||" </br>
-Translate: "4.7 Whenever spirituality decays and materialism is rampant, then, O Arjuna, I reincarnate Myself!" </br>
+"अपरे नियताहाराः प्राणान्प्राणेषु जुह्वति | सर्वेऽप्येते यज्ञविदो यज्ञक्षपितकल्मषाः ||४-३०||" </br>
+Translate: "4.30 Others, controlling their diet, sacrifice their worldly life to the spiritual fire. All understand the principal of sacrifice, and by its means their sins are washed away." </br>
 
 # Prefs
 
