@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तत्र तं बुद्धिसंयोगं लभते पौर्वदेहिकम् | यतते च ततो भूयः संसिद्धौ कुरुनन्दन ||६-४३||" </br>
-Translate: "6.43 Then the experience acquired in his former life will revive, and with its help he will strive for perfection more eagerly than before." </br>
+"श्रीभगवानुवाच | लोकेऽस्मिन् द्विविधा निष्ठा पुरा प्रोक्ता मयानघ | ज्ञानयोगेन साङ्ख्यानां कर्मयोगेन योगिनाम् ||३-३||" </br>
+Translate: "3.3 Lord Shri Krishna replied: In this world, as I have said, there is a twofold path, O Sinless One! There is the Path of Wisdom for those who meditate, and the Path of Action for those who work." </br>
 
 # Prefs
 
