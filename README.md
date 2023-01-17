@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आयुधानामहं वज्रं धेनूनामस्मि कामधुक् | प्रजनश्चास्मि कन्दर्पः सर्पाणामस्मि वासुकिः ||१०-२८||" </br>
-Translate: "10.28 I am the Thunderbolt among weapons; of cows I am the Cow of Plenty, I am Passion in those who procreate, and I am the Cobra among serpents." </br>
+"साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः | एकमप्यास्थितः सम्यगुभयोर्विन्दते फलम् ||५-४||" </br>
+Translate: "5.4 Only the unenlightened speak of wisdom and right action as separate, not the wise. If any man knows one, he enjoys the fruit of both." </br>
 
 # Prefs
 
