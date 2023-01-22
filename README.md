@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनिष्टमिष्टं मिश्रं च त्रिविधं कर्मणः फलम् | भवत्यत्यागिनां प्रेत्य न तु संन्यासिनां क्वचित् ||१८-१२||" </br>
-Translate: "18.12 For those who cannot renounce all desire, the fruit of action hereafter is threefold - good, evil, and partly good and partly evil. But for him who has renounced, there is none." </br>
+"अनुद्वेगकरं वाक्यं सत्यं प्रियहितं च यत् | स्वाध्यायाभ्यसनं चैव वाङ्मयं तप उच्यते ||१७-१५||" </br>
+Translate: "17.15 Speech that hurts no one, that is true, is pleasant to listen to and beneficial, and the constant study of the scriptures - this is austerity in speech." </br>
 
 # Prefs
 
