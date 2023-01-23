@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स तया श्रद्धया युक्तस्तस्याराधनमीहते | लभते च ततः कामान्मयैव विहितान्हि तान् ||७-२२||" </br>
-Translate: "7.22 If he worships one form alone with real faith, then shall his desires be fulfilled through that only; for thus have I ordained." </br>
+"ये यथा मां प्रपद्यन्ते तांस्तथैव भजाम्यहम् | मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ||४-११||" </br>
+Translate: "4.11 Howsoever men try to worship Me, so do I welcome them. By whatever path they travel, it leads to Me at last." </br>
 
 # Prefs
 
