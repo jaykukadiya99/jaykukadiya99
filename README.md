@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | अशोच्यानन्वशोचस्त्वं प्रज्ञावादांश्च भाषसे | गतासूनगतासूंश्च नानुशोचन्ति पण्डिताः ||२-११||" </br>
-Translate: "2.11 Lord Shri Krishna said: Why grieve for those for whom no grief is due, and yet profess wisdom? The wise grieve neither for the dead nor the living." </br>
+"अथवा योगिनामेव कुले भवति धीमताम् | एतद्धि दुर्लभतरं लोके जन्म यदीदृशम् ||६-४२||" </br>
+Translate: "6.42 Or, he may be born in the family of the wise sages, though a birth like this is, indeed, very difficult to obtain." </br>
 
 # Prefs
 
