@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यजन्ते सात्त्विका देवान्यक्षरक्षांसि राजसाः | प्रेतान्भूतगणांश्चान्ये यजन्ते तामसा जनाः ||१७-४||" </br>
-Translate: "17.4 The Pure worship the true God; the Passionate, the powers of wealth and magic; the Ignorant, the spirits of the dead and of the lower orders of nature." </br>
+"रसोऽहमप्सु कौन्तेय प्रभास्मि शशिसूर्ययोः | प्रणवः सर्ववेदेषु शब्दः खे पौरुषं नृषु ||७-८||" </br>
+Translate: "7.8 O Arjuna! I am the Fluidity in water, the Light in the sun and in the moon. I am the mystic syllable Om in the Vedic scriptures, the Sound in ether, the Virility in man." </br>
 
 # Prefs
 
