@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रह्लादश्चास्मि दैत्यानां कालः कलयतामहम् | मृगाणां च मृगेन्द्रोऽहं वैनतेयश्च पक्षिणाम् ||१०-३०||" </br>
-Translate: "10.30 And I am the devotee Prahlad among the heathen; of Time I am the Eternal Present; I am the Lion among beasts and the Eagle among birds." </br>
+"येषां त्वन्तगतं पापं जनानां पुण्यकर्मणाम् | ते द्वन्द्वमोहनिर्मुक्ता भजन्ते मां दृढव्रताः ||७-२८||" </br>
+Translate: "7.28 But those who act righteously, in whom sin has been destroyed, who are free from the infatuation of the conflicting emotions, they worship Me with firm resolution." </br>
 
 # Prefs
 
