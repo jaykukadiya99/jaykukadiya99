@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अभ्यासयोगयुक्तेन चेतसा नान्यगामिना | परमं पुरुषं दिव्यं याति पार्थानुचिन्तयन् ||८-८||" </br>
-Translate: "8.8 He whose mind does not wander, and who is engaged in constant meditation, attains the Supreme Spirit." </br>
+"सर्वतः पाणिपादं तत्सर्वतोऽक्षिशिरोमुखम् | सर्वतः श्रुतिमल्लोके सर्वमावृत्य तिष्ठति ||१३-१४||" </br>
+Translate: "13.14 Everywhere are Its hands and Its feet; everywhere It has eyes that see, heads that think and mouths that speak; everywhere It listens; It dwells in all the worlds; It envelops them all." </br>
 
 # Prefs
 
