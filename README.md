@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मन्यसे यदि तच्छक्यं मया द्रष्टुमिति प्रभो | योगेश्वर ततो मे त्वं दर्शयात्मानमव्ययम् ||११-४||" </br>
-Translate: "11.4 If Thou thinkest that it can be made possible for me to see it, show me, O Lord of Lords, Thine own Eternal Self." </br>
+"वायुर्यमोऽग्निर्वरुणः शशाङ्कः प्रजापतिस्त्वं प्रपितामहश्च | नमो नमस्तेऽस्तु सहस्रकृत्वः पुनश्च भूयोऽपि नमो नमस्ते ||११-३९||" </br>
+Translate: "11.39 Thou art the Wind, Thou art Death, Thou art the Fire, the Water, the Moon, the Father and the Grandfather. Honour and glory to Thee a thousand and a thousand times! Again and again, salutation be to Thee, O my Lord!" </br>
 
 # Prefs
 
