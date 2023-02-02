@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अव्यक्तं व्यक्तिमापन्नं मन्यन्ते मामबुद्धयः | परं भावमजानन्तो ममाव्ययमनुत्तमम् ||७-२४||" </br>
-Translate: "7.24 The ignorant think of Me, who am the Unmanifested Spirit, as if I were really in human form. They do not understand that My Superior Nature is changeless and most excellent." </br>
+"विधिहीनमसृष्टान्नं मन्त्रहीनमदक्षिणम् | श्रद्धाविरहितं यज्ञं तामसं परिचक्षते ||१७-१३||" </br>
+Translate: "17.13 Sacrifice that is contrary to scriptural command, that is unaccompanied by prayers or gifts of food or money, and is without faith - that is the product of Ignorance." </br>
 
 # Prefs
 
