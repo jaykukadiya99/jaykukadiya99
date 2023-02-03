@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तानि सर्वाणि संयम्य युक्त आसीत मत्परः | वशे हि यस्येन्द्रियाणि तस्य प्रज्ञा प्रतिष्ठिता ||२-६१||" </br>
-Translate: "2.61 Restraining them all, let him meditate steadfastly on Me; for who thus conquers his senses achieves perfection." </br>
+"किं पुनर्ब्राह्मणाः पुण्या भक्ता राजर्षयस्तथा | अनित्यमसुखं लोकमिमं प्राप्य भजस्व माम् ||९-३३||" </br>
+Translate: "9.33 What need then to mention the holy Ministers of God, the devotees and the saintly rulers? Do thou, therefore, born in this changing and miserable world, do thou too worship Me." </br>
 
 # Prefs
 
