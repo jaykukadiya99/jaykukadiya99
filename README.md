@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आयुधानामहं वज्रं धेनूनामस्मि कामधुक् | प्रजनश्चास्मि कन्दर्पः सर्पाणामस्मि वासुकिः ||१०-२८||" </br>
-Translate: "10.28 I am the Thunderbolt among weapons; of cows I am the Cow of Plenty, I am Passion in those who procreate, and I am the Cobra among serpents." </br>
+"यान्ति देवव्रता देवान्पितॄन्यान्ति पितृव्रताः | भूतानि यान्ति भूतेज्या यान्ति मद्याजिनोऽपि माम् ||९-२५||" </br>
+Translate: "9.25 The votaries of the lesser Powers go to them; the devotees of spirits go to them; they who worship the Powers of Darkness, to such Powers shall they go; and so, too, those who worship Me shall come to Me." </br>
 
 # Prefs
 
