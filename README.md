@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्रुपदो द्रौपदेयाश्च सर्वशः पृथिवीपते | सौभद्रश्च महाबाहुः शङ्खान्दध्मुः पृथक्पृथक् ||१-१८||" </br>
-Translate: "1.18 And O King! Drupada, the sons of Droupadi and Soubhadra, the great soldier, blew their conches." </br>
+"काममाश्रित्य दुष्पूरं दम्भमानमदान्विताः | मोहाद्गृहीत्वासद्ग्राहान्प्रवर्तन्तेऽशुचिव्रताः ||१६-१०||" </br>
+Translate: "16.10 Giving themselves up to insatiable passions, hypocritical, self-sufficient and arrogant, cherishing false conception founded on delusion, they work only to carry out their own unholy purposes." </br>
 
 # Prefs
 
