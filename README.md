@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा विनियतं चित्तमात्मन्येवावतिष्ठते | निःस्पृहः सर्वकामेभ्यो युक्त इत्युच्यते तदा ||६-१८||" </br>
-Translate: "6.18 When the mind, completely controlled, is centered in the Self, and free from all earthly desires, then is the man truly spiritual." </br>
+"श्रीभगवानुवाच | सुदुर्दर्शमिदं रूपं दृष्टवानसि यन्मम | देवा अप्यस्य रूपस्य नित्यं दर्शनकाङ्क्षिणः ||११-५२||" </br>
+Translate: "11.52 Lord Shri Krishna replied: It is hard to see this vision of Me that thou hast seen. Even the most powerful have longed for it in vain." </br>
 
 # Prefs
 
