@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ज्ञानयज्ञेन चाप्यन्ये यजन्तो मामुपासते | एकत्वेन पृथक्त्वेन बहुधा विश्वतोमुखम् ||९-१५||" </br>
-Translate: "9.15 Others worship Me with full consciousness as the One, the Manifold, the Omnipresent, the Universal." </br>
+"व्यामिश्रेणेव वाक्येन बुद्धिं मोहयसीव मे | तदेकं वद निश्चित्य येन श्रेयोऽहमाप्नुयाम् ||३-२||" </br>
+Translate: "3.2 Thy language perplexes me and confuses my reason. Therefore please tell me the only way by which I may, without doubt, secure my spiritual welfare." </br>
 
 # Prefs
 
