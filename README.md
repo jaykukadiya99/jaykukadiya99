@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वधर्मान्परित्यज्य मामेकं शरणं व्रज | अहं त्वा सर्वपापेभ्यो मोक्षयिष्यामि मा शुचः ||१८-६६||" </br>
-Translate: "18.66 Give up then thy earthly duties, surrender thyself to Me only. Do not be anxious; I will absolve thee from all thy sin." </br>
+"न त्वेवाहं जातु नासं न त्वं नेमे जनाधिपाः | न चैव न भविष्यामः सर्वे वयमतः परम् ||२-१२||" </br>
+Translate: "2.12 There was never a time when I was not, nor thou, nor these princes were not; there will never be a time when we shall cease to be." </br>
 
 # Prefs
 
