@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स तया श्रद्धया युक्तस्तस्याराधनमीहते | लभते च ततः कामान्मयैव विहितान्हि तान् ||७-२२||" </br>
-Translate: "7.22 If he worships one form alone with real faith, then shall his desires be fulfilled through that only; for thus have I ordained." </br>
+"किरीटिनं गदिनं चक्रिणं च तेजोराशिं सर्वतो दीप्तिमन्तम् | पश्यामि त्वां दुर्निरीक्ष्यं समन्ताद् दीप्तानलार्कद्युतिमप्रमेयम् ||११-१७||" </br>
+Translate: "11.17 I see thee with the crown, the sceptre and the discus; a blaze of splendour. Scarce can I gaze on thee, so radiant thou art, glowing like the blazing fire, brilliant as the sun, immeasurable." </br>
 
 # Prefs
 
