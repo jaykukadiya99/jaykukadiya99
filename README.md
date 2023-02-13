@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तमुवाच हृषीकेशः प्रहसन्निव भारत | सेनयोरुभयोर्मध्ये विषीदन्तमिदं वचः ||२-१०||" </br>
-Translate: "2.10 Thereupon the Lord, with a gracious smile, addressed him who was so much depressed in the midst of the two armies." </br>
+"सर्वधर्मान्परित्यज्य मामेकं शरणं व्रज | अहं त्वा सर्वपापेभ्यो मोक्षयिष्यामि मा शुचः ||१८-६६||" </br>
+Translate: "18.66 Give up then thy earthly duties, surrender thyself to Me only. Do not be anxious; I will absolve thee from all thy sin." </br>
 
 # Prefs
 
