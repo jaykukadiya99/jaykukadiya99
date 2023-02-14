@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"निराशीर्यतचित्तात्मा त्यक्तसर्वपरिग्रहः | शारीरं केवलं कर्म कुर्वन्नाप्नोति किल्बिषम् ||४-२१||" </br>
-Translate: "4.21 Expecting nothing, his mind and personality controlled, without greed, doing bodily actions only; though he acts, yet he remains untainted." </br>
+"तस्य सञ्जनयन्हर्षं कुरुवृद्धः पितामहः | सिंहनादं विनद्योच्चैः शङ्खं दध्मौ प्रतापवान् ||१-१२||" </br>
+Translate: "1.12 Then to enliven his spirits, the brave Grandfather Bheeshma, eldest of the Kuru-clan, blew his conch, till it sounded like a lion's roar." </br>
 
 # Prefs
 
