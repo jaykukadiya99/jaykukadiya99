@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न जायते म्रियते वा कदाचिन् नायं भूत्वा भविता वा न भूयः | अजो नित्यः शाश्वतोऽयं पुराणो न हन्यते हन्यमाने शरीरे ||२-२०||" </br>
-Translate: "2.20 It was not born; It will never die, nor once having been, can It cease to be. Unborn, Eternal, Ever-enduring, yet Most Ancient, the Spirit dies not when the body is dead." </br>
+"यस्त्वात्मरतिरेव स्यादात्मतृप्तश्च मानवः | आत्मन्येव च सन्तुष्टस्तस्य कार्यं न विद्यते ||३-१७||" </br>
+Translate: "3.17 On the other hand, the soul who meditates on the Self is content to serve the Self and rests satisfied within the Self; there remains nothing more for him to accomplish." </br>
 
 # Prefs
 
