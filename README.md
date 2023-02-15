@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्य सञ्जनयन्हर्षं कुरुवृद्धः पितामहः | सिंहनादं विनद्योच्चैः शङ्खं दध्मौ प्रतापवान् ||१-१२||" </br>
-Translate: "1.12 Then to enliven his spirits, the brave Grandfather Bheeshma, eldest of the Kuru-clan, blew his conch, till it sounded like a lion's roar." </br>
+"न जायते म्रियते वा कदाचिन् नायं भूत्वा भविता वा न भूयः | अजो नित्यः शाश्वतोऽयं पुराणो न हन्यते हन्यमाने शरीरे ||२-२०||" </br>
+Translate: "2.20 It was not born; It will never die, nor once having been, can It cease to be. Unborn, Eternal, Ever-enduring, yet Most Ancient, the Spirit dies not when the body is dead." </br>
 
 # Prefs
 
