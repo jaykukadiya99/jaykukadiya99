@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः | मनसस्तु परा बुद्धिर्यो बुद्धेः परतस्तु सः ||३-४२||" </br>
-Translate: "3.42 It is said that the senses are powerful. But beyond the senses is the mind, beyond the mind is the intellect, and beyond and greater than intellect is He." </br>
+"पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् | व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ||१-३||" </br>
+Translate: "1.3 Revered Father! Behold this mighty host of the Pandavas, paraded by the son of King Drupada, thy wise disciple." </br>
 
 # Prefs
 
