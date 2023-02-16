@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः | मनसैवेन्द्रियग्रामं विनियम्य समन्ततः ||६-२४||" </br>
-Translate: "6.24 Renouncing every desire which imagination can conceive, controlling the senses at every point by the power of mind;" </br>
+"इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः | मनसस्तु परा बुद्धिर्यो बुद्धेः परतस्तु सः ||३-४२||" </br>
+Translate: "3.42 It is said that the senses are powerful. But beyond the senses is the mind, beyond the mind is the intellect, and beyond and greater than intellect is He." </br>
 
 # Prefs
 
