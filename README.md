@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इच्छाद्वेषसमुत्थेन द्वन्द्वमोहेन भारत | सर्वभूतानि सम्मोहं सर्गे यान्ति परन्तप ||७-२७||" </br>
-Translate: "7.27 O brave Arjuna! Man lives in a fairy world, deceived by the glamour of opposite sensations, infatuated by desire and aversion." </br>
+"एतां दृष्टिमवष्टभ्य नष्टात्मानोऽल्पबुद्धयः | प्रभवन्त्युग्रकर्माणः क्षयाय जगतोऽहिताः ||१६-९||" </br>
+Translate: "16.9 Thinking thus, these degraded souls, these enemies of mankind - whose intelligence is negligible and whose deeds are monstrous - come into the world only to destroy." </br>
 
 # Prefs
 
