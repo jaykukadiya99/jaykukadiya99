@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आढ्योऽभिजनवानस्मि कोऽन्योऽस्ति सदृशो मया | यक्ष्ये दास्यामि मोदिष्य इत्यज्ञानविमोहिताः ||१६-१५||" </br>
-Translate: "16.15 I am rich, I am well-bred; who is there to compare with me? I will sacrifice, I will give, I will pay - and I will enjoy. Thus blinded by Ignorance," </br>
+"प्रसादे सर्वदुःखानां हानिरस्योपजायते | प्रसन्नचेतसो ह्याशु बुद्धिः पर्यवतिष्ठते ||२-६५||" </br>
+Translate: "2.65 Having attained Peace, he becomes free from misery; for when the mind gains peace, right discrimination follows." </br>
 
 # Prefs
 
