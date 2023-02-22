@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तं विद्याद् दुःखसंयोगवियोगं योगसंज्ञितम् | स निश्चयेन योक्तव्यो योगोऽनिर्विण्णचेतसा ||६-२३||" </br>
-Translate: "6.23 This inner severance from the affliction of misery is spirituality. It should be practised with determination and with a heart which refuses to be depressed." </br>
+"रजसि प्रलयं गत्वा कर्मसङ्गिषु जायते | तथा प्रलीनस्तमसि मूढयोनिषु जायते ||१४-१५||" </br>
+Translate: "14.15 When Passion prevails, the soul is reborn among those who love activity; when Ignorance rules, it enters the wombs of the ignorant." </br>
 
 # Prefs
 
