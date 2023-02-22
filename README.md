@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनेकबाहूदरवक्त्रनेत्रं पश्यामि त्वां सर्वतोऽनन्तरूपम् | नान्तं न मध्यं न पुनस्तवादिं पश्यामि विश्वेश्वर विश्वरूप ||११-१६||" </br>
-Translate: "11.16 I see Thee, infinite in form, with, as it were, faces, eyes and limbs everywhere; no beginning, no middle, no end; O Thou Lord of the Universe, Whose Form is universal!" </br>
+"चिन्तामपरिमेयां च प्रलयान्तामुपाश्रिताः | कामोपभोगपरमा एतावदिति निश्चिताः ||१६-११||" </br>
+Translate: "16.11 Poring anxiously over evil resolutions, which only end in death; seeking only the gratification of desire as the highest goal; seeing nothing beyond;" </br>
 
 # Prefs
 
