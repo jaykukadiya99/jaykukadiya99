@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बलं बलवतां चाहं कामरागविवर्जितम् | धर्माविरुद्धो भूतेषु कामोऽस्मि भरतर्षभ ||७-११||" </br>
-Translate: "7.11 I am the Strength of the strong, of them who are free from attachment and desire; and, O Arjuna, I am the Desire for righteousness." </br>
+"उदाराः सर्व एवैते ज्ञानी त्वात्मैव मे मतम् | आस्थितः स हि युक्तात्मा मामेवानुत्तमां गतिम् ||७-१८||" </br>
+Translate: "7.18 Noble-minded are they all, but the wise man I hold as my own Self; for he, remaining always at peace with Me, makes me his final goal." </br>
 
 # Prefs
 
