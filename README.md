@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न मे पार्थास्ति कर्तव्यं त्रिषु लोकेषु किञ्चन | नानवाप्तमवाप्तव्यं वर्त एव च कर्मणि ||३-२२||" </br>
-Translate: "3.22 There is nothing in this universe, O Arjuna, that I am compelled to do, nor anything for Me to attain; yet I am persistently active." </br>
+"भवान्भीष्मश्च कर्णश्च कृपश्च समितिञ्जयः | अश्वत्थामा विकर्णश्च सौमदत्तिस्तथैव च ||१-८||" </br>
+Translate: "1.8 You come first; then Bheeshma, Karna, Kripa, great soldiers; Ashwaththama, Vikarna and the son of Somadhatta;" </br>
 
 # Prefs
 
