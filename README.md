@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अथवा बहुनैतेन किं ज्ञातेन तवार्जुन | विष्टभ्याहमिदं कृत्स्नमेकांशेन स्थितो जगत् ||१०-४२||" </br>
-Translate: "10.42 But what is the use of all these details to thee? O Arjuna! I sustain this universe with only small part of Myself."" </br>
+"वायुर्यमोऽग्निर्वरुणः शशाङ्कः प्रजापतिस्त्वं प्रपितामहश्च | नमो नमस्तेऽस्तु सहस्रकृत्वः पुनश्च भूयोऽपि नमो नमस्ते ||११-३९||" </br>
+Translate: "11.39 Thou art the Wind, Thou art Death, Thou art the Fire, the Water, the Moon, the Father and the Grandfather. Honour and glory to Thee a thousand and a thousand times! Again and again, salutation be to Thee, O my Lord!" </br>
 
 # Prefs
 
