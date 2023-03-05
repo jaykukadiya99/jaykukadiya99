@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ॐतत्सदिति निर्देशो ब्रह्मणस्त्रिविधः स्मृतः | ब्राह्मणास्तेन वेदाश्च यज्ञाश्च विहिताः पुरा ||१७-२३||" </br>
-Translate: "17.23 Om Tat Sat' is the triple designation of the Eternal Spirit, by which of old the Vedic Scriptures, the ceremonials and the sacrifices were ordained." </br>
+"अपाने जुह्वति प्राणं प्राणेऽपानं तथापरे | प्राणापानगती रुद्ध्वा प्राणायामपरायणाः ||४-२९||" </br>
+Translate: "4.29 There are some who practise control of the Vital Energy and govern the subtle forces of Prana and Apana, thereby sacrificing their Prana unto Apana, or their Apana unto Prana." </br>
 
 # Prefs
 
