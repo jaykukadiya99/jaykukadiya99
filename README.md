@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अध्येष्यते च य इमं धर्म्यं संवादमावयोः | ज्ञानयज्ञेन तेनाहमिष्टः स्यामिति मे मतिः ||१८-७०||" </br>
-Translate: "18.70 He who will study this spiritual discourse of ours, I assure thee, he shall thereby worship Me at the altar of Wisdom." </br>
+"प्रह्लादश्चास्मि दैत्यानां कालः कलयतामहम् | मृगाणां च मृगेन्द्रोऽहं वैनतेयश्च पक्षिणाम् ||१०-३०||" </br>
+Translate: "10.30 And I am the devotee Prahlad among the heathen; of Time I am the Eternal Present; I am the Lion among beasts and the Eagle among birds." </br>
 
 # Prefs
 
