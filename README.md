@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्यूतं छलयतामस्मि तेजस्तेजस्विनामहम् | जयोऽस्मि व्यवसायोऽस्मि सत्त्वं सत्त्ववतामहम् ||१०-३६||" </br>
-Translate: "10.36 I am the Gambling of the cheat and the Splendour of the splendid; I am Victory; I am Effort; and I am the Purity of the pure." </br>
+"व्यामिश्रेणेव वाक्येन बुद्धिं मोहयसीव मे | तदेकं वद निश्चित्य येन श्रेयोऽहमाप्नुयाम् ||३-२||" </br>
+Translate: "3.2 Thy language perplexes me and confuses my reason. Therefore please tell me the only way by which I may, without doubt, secure my spiritual welfare." </br>
 
 # Prefs
 
