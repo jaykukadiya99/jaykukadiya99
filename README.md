@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तपस्विभ्योऽधिको योगी ज्ञानिभ्योऽपि मतोऽधिकः | कर्मिभ्यश्चाधिको योगी तस्माद्योगी भवार्जुन ||६-४६||" </br>
-Translate: "6.46 The wise man is superior to the ascetic and to the scholar and to the man of action; therefore be thou a wise man, O Arjuna!" </br>
+"यस्य नाहंकृतो भावो बुद्धिर्यस्य न लिप्यते | हत्वाऽपि स इमाँल्लोकान्न हन्ति न निबध्यते ||१८-१७||" </br>
+Translate: "18.17 He who has no pride, and whose intellect is unalloyed by attachment, even though he kill these people, yet he does not kill them, and his act does not bind him." </br>
 
 # Prefs
 
