@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ब्रह्मार्पणं ब्रह्म हविर्ब्रह्माग्नौ ब्रह्मणा हुतम् | ब्रह्मैव तेन गन्तव्यं ब्रह्मकर्मसमाधिना ||४-२४||" </br>
-Translate: "4.24 For him, the sacrifice itself is the Spirit; the Spirit and the oblation are one; it is the Spirit Itself which is sacrificed in Its own fire, and the man even in action is united with God, since while performing his act, his mind never ceases to be fixed on Him." </br>
+"श्रीभगवानुवाच | बहूनि मे व्यतीतानि जन्मानि तव चार्जुन | तान्यहं वेद सर्वाणि न त्वं वेत्थ परन्तप ||४-५||" </br>
+Translate: "4.5 Lord Shri Krishna replied: I have been born again and again, from time to time; thou too,O Arjuna! My births are known to Me, but thou knowest not thine." </br>
 
 # Prefs
 
