@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न मे विदुः सुरगणाः प्रभवं न महर्षयः | अहमादिर्हि देवानां महर्षीणां च सर्वशः ||१०-२||" </br>
-Translate: "10.2 Neither the professors of divinity nor the great ascetics know My origin, for I am the source of them all." </br>
+"शरीरं यदवाप्नोति यच्चाप्युत्क्रामतीश्वरः | गृहीत्वैतानि संयाति वायुर्गन्धानिवाशयात् ||१५-८||" </br>
+Translate: "15.8 When the Supreme Lord enters a body or leaves it, He gathers these senses together and travels on with them, as the wind gathers perfume while passing through the flowers." </br>
 
 # Prefs
 
