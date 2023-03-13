@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इहैव तैर्जितः सर्गो येषां साम्ये स्थितं मनः | निर्दोषं हि समं ब्रह्म तस्माद् ब्रह्मणि ते स्थिताः ||५-१९||" </br>
-Translate: "5.19 Even in this world they conquer their earth-life whose minds, fixed on the Supreme, remain always balanced; for the Supreme has neither blemish nor bias." </br>
+"तमेव शरणं गच्छ सर्वभावेन भारत | तत्प्रसादात्परां शान्तिं स्थानं प्राप्स्यसि शाश्वतम् ||१८-६२||" </br>
+Translate: "18.62 With all thy strength, fly unto Him and surrender thyself, and by His grace shalt thou attain Supreme Peace and reach the Eternal Home." </br>
 
 # Prefs
 
