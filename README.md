@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यतो यतो निश्चरति मनश्चञ्चलमस्थिरम् | ततस्ततो नियम्यैतदात्मन्येव वशं नयेत् ||६-२६||" </br>
-Translate: "6.26 When the volatile and wavering mind would wander, let him restrain it and bring it again to its allegiance to the Self." </br>
+"रुद्राणां शङ्करश्चास्मि वित्तेशो यक्षरक्षसाम् | वसूनां पावकश्चास्मि मेरुः शिखरिणामहम् ||१०-२३||" </br>
+Translate: "10.23 Among Forces of Vitality I am the life, I am Mammon to the heathen and the godless; I am the Energy in fire, earth, wind, sky, heaven, sun, moon and planets; and among mountains am the Mount Meru." </br>
 
 # Prefs
 
