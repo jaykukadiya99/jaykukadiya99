@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | काम एष क्रोध एष रजोगुणसमुद्भवः | महाशनो महापाप्मा विद्ध्येनमिह वैरिणम् ||३-३७||" </br>
-Translate: "3.37 Lord Shri Krishna: It is desire, it is aversion, born of passion. Desire consumes and corrupts everything. It is man's greatest enemy." </br>
+"एवमेतद्यथात्थ त्वमात्मानं परमेश्वर | द्रष्टुमिच्छामि ते रूपमैश्वरं पुरुषोत्तम ||११-३||" </br>
+Translate: "11.3 I believe all as Thou hast declared it. I long now to have a vision of thy Divine Form, O Thou Most High!" </br>
 
 # Prefs
 
