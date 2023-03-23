@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अजोऽपि सन्नव्ययात्मा भूतानामीश्वरोऽपि सन् | प्रकृतिं स्वामधिष्ठाय सम्भवाम्यात्ममायया ||४-६||" </br>
-Translate: "4.6 have no beginning. Though I am imperishable, as well as Lord of all that exists, yet by My own will and power do I manifest Myself." </br>
+"मामुपेत्य पुनर्जन्म दुःखालयमशाश्वतम् | नाप्नुवन्ति महात्मानः संसिद्धिं परमां गताः ||८-१५||" </br>
+Translate: "8.15 Coming thus unto Me, these great souls go no more to the misery and death of earthly life, for they have gained perfection." </br>
 
 # Prefs
 
