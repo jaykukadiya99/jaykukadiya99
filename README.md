@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इच्छाद्वेषसमुत्थेन द्वन्द्वमोहेन भारत | सर्वभूतानि सम्मोहं सर्गे यान्ति परन्तप ||७-२७||" </br>
-Translate: "7.27 O brave Arjuna! Man lives in a fairy world, deceived by the glamour of opposite sensations, infatuated by desire and aversion." </br>
+"यथा दीपो निवातस्थो नेङ्गते सोपमा स्मृता | योगिनो यतचित्तस्य युञ्जतो योगमात्मनः ||६-१९||" </br>
+Translate: "6.19 The wise man who has conquered his mind and is absorbed in the Self is as a lamp which does not flicker, since it stands sheltered from every wind." </br>
 
 # Prefs
 
