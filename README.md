@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वायुर्यमोऽग्निर्वरुणः शशाङ्कः प्रजापतिस्त्वं प्रपितामहश्च | नमो नमस्तेऽस्तु सहस्रकृत्वः पुनश्च भूयोऽपि नमो नमस्ते ||११-३९||" </br>
-Translate: "11.39 Thou art the Wind, Thou art Death, Thou art the Fire, the Water, the Moon, the Father and the Grandfather. Honour and glory to Thee a thousand and a thousand times! Again and again, salutation be to Thee, O my Lord!" </br>
+"अर्जुन उवाच | परं ब्रह्म परं धाम पवित्रं परमं भवान् | पुरुषं शाश्वतं दिव्यमादिदेवमजं विभुम् ||१०-१२||" </br>
+Translate: "10.12 Arjuna asked: Thou art the Supreme Spirit, the Eternal Home, the Holiest of the Holy, the Eternal Divine Self, the Primal God, the Unborn and the Omnipresent." </br>
 
 # Prefs
 
