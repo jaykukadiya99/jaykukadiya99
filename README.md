@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भवाप्ययौ हि भूतानां श्रुतौ विस्तरशो मया | त्वत्तः कमलपत्राक्ष माहात्म्यमपि चाव्ययम् ||११-२||" </br>
-Translate: "11.2 O Lord, whose eyes are like the lotus petal! Thou hast described in detail the origin and the dissolution of being, and Thine own Eternal Majesty." </br>
+"ततः पदं तत्परिमार्गितव्यं यस्मिन्गता न निवर्तन्ति भूयः | तमेव चाद्यं पुरुषं प्रपद्ये | यतः प्रवृत्तिः प्रसृता पुराणी ||१५-४||" </br>
+Translate: "15.4 Beyond lies the Path, from which, when found, there is no return. This is the Primal God from whence this ancient creation has sprung." </br>
 
 # Prefs
 
