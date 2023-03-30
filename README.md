@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्वाविमौ पुरुषौ लोके क्षरश्चाक्षर एव च | क्षरः सर्वाणि भूतानि कूटस्थोऽक्षर उच्यते ||१५-१६||" </br>
-Translate: "15.16 There are two aspects in Nature: the perishable and the imperishable. All life in this world belongs to the former, the unchanging element belongs to the latter." </br>
+"वासांसि जीर्णानि यथा विहाय नवानि गृह्णाति नरोऽपराणि | तथा शरीराणि विहाय जीर्णा- न्यन्यानि संयाति नवानि देही ||२-२२||" </br>
+Translate: "2.22 As a man discards his threadbare robes and puts on new, so the Spirit throws off Its worn-out bodies and takes fresh ones." </br>
 
 # Prefs
 
