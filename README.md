@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"देवान्भावयतानेन ते देवा भावयन्तु वः | परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ||३-११||" </br>
-Translate: "3.11 Worship the Powers of Nature thereby, and let them nourish you in return; thus supporting each other, you shall attain your highest welfare." </br>
+"अहंकारं बलं दर्पं कामं क्रोधं परिग्रहम् | विमुच्य निर्ममः शान्तो ब्रह्मभूयाय कल्पते ||१८-५३||" </br>
+Translate: "18.53 Having abandoned selfishness, power, arrogance, anger and desire, possessing nothing of his own and having attained peace, he is fit to join the Eternal Spirit." </br>
 
 # Prefs
 
