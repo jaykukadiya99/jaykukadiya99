@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अस्माकं तु विशिष्टा ये तान्निबोध द्विजोत्तम | नायका मम सैन्यस्य संज्ञार्थं तान्ब्रवीमि ते ||१-७||" </br>
-Translate: "1.7 Further, take note of all those captains who have ranged themselves on our side, O best of Spiritual Guides! The leaders of my army. I will name them for you." </br>
+"पाञ्चजन्यं हृषीकेशो देवदत्तं धनञ्जयः | पौण्ड्रं दध्मौ महाशङ्खं भीमकर्मा वृकोदरः ||१-१५||" </br>
+Translate: "1.15 Lord Shri Krishna blew his Panchajanya and Arjuna his Devadatta, brave Bheema his renowned shell, Poundra." </br>
 
 # Prefs
 
