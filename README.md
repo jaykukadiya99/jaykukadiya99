@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नियतं कुरु कर्म त्वं कर्म ज्यायो ह्यकर्मणः | शरीरयात्रापि च ते न प्रसिद्ध्येदकर्मणः ||३-८||" </br>
-Translate: "3.8 Do thy duty as prescribed, for action for duty's sake is superior to inaction. Even the maintenance of the body would be impossible if man remained inactive." </br>
+"सदृशं चेष्टते स्वस्याः प्रकृतेर्ज्ञानवानपि | प्रकृतिं यान्ति भूतानि निग्रहः किं करिष्यति ||३-३३||" </br>
+Translate: "3.33 Even the wise man acts in character with his nature; indeed, all creatures act according to their natures. What is the use of compulsion then?" </br>
 
 # Prefs
 
