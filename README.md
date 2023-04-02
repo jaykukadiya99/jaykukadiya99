@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उदाराः सर्व एवैते ज्ञानी त्वात्मैव मे मतम् | आस्थितः स हि युक्तात्मा मामेवानुत्तमां गतिम् ||७-१८||" </br>
-Translate: "7.18 Noble-minded are they all, but the wise man I hold as my own Self; for he, remaining always at peace with Me, makes me his final goal." </br>
+"उपद्रष्टानुमन्ता च भर्ता भोक्ता महेश्वरः | परमात्मेति चाप्युक्तो देहेऽस्मिन्पुरुषः परः ||१३-२३||" </br>
+Translate: "13.23 Thus in the body of man dwells the Supreme God; He who sees and permits, upholds and enjoys, the Highest God and the Highest Self." </br>
 
 # Prefs
 
