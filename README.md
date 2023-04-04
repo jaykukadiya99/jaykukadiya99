@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मृत्युः सर्वहरश्चाहमुद्भवश्च भविष्यताम् | कीर्तिः श्रीर्वाक्च नारीणां स्मृतिर्मेधा धृतिः क्षमा ||१०-३४||" </br>
-Translate: "10.34 I am all-devouring Death; I am the Origin of all that shall happen; I am Fame, Fortune, Speech, Memory, Intellect, Constancy and Forgiveness." </br>
+"किरीटिनं गदिनं चक्रिणं च तेजोराशिं सर्वतो दीप्तिमन्तम् | पश्यामि त्वां दुर्निरीक्ष्यं समन्ताद् दीप्तानलार्कद्युतिमप्रमेयम् ||११-१७||" </br>
+Translate: "11.17 I see thee with the crown, the sceptre and the discus; a blaze of splendour. Scarce can I gaze on thee, so radiant thou art, glowing like the blazing fire, brilliant as the sun, immeasurable." </br>
 
 # Prefs
 
