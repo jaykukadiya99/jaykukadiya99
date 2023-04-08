@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यस्मात्क्षरमतीतोऽहमक्षरादपि चोत्तमः | अतोऽस्मि लोके वेदे च प्रथितः पुरुषोत्तमः ||१५-१८||" </br>
-Translate: "15.18 Beyond comparison of the Eternal with the non-eternal am I, Who am called by scriptures and sages the Supreme Personality, the Highest God." </br>
+"द्रव्ययज्ञास्तपोयज्ञा योगयज्ञास्तथापरे | स्वाध्यायज्ञानयज्ञाश्च यतयः संशितव्रताः ||४-२८||" </br>
+Translate: "4.28 And yet others offer as their sacrifice wealth, austerities and meditation. Monks wedded to their vows renounce their scriptural learning and even their spiritual powers." </br>
 
 # Prefs
 
