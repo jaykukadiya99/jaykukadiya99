@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"चतुर्विधा भजन्ते मां जनाः सुकृतिनोऽर्जुन | आर्तो जिज्ञासुरर्थार्थी ज्ञानी च भरतर्षभ ||७-१६||" </br>
-Translate: "7.16 O Arjuna! The righteous who worship Me are grouped by stages: first, they who suffer, next they who desire knowledge, then they who thirst after truth, and lastly they who attain wisdom." </br>
+"यस्मात्क्षरमतीतोऽहमक्षरादपि चोत्तमः | अतोऽस्मि लोके वेदे च प्रथितः पुरुषोत्तमः ||१५-१८||" </br>
+Translate: "15.18 Beyond comparison of the Eternal with the non-eternal am I, Who am called by scriptures and sages the Supreme Personality, the Highest God." </br>
 
 # Prefs
 
