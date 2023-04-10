@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"या निशा सर्वभूतानां तस्यां जागर्ति संयमी | यस्यां जाग्रति भूतानि सा निशा पश्यतो मुनेः ||२-६९||" </br>
-Translate: "2.69 The saint is awake when the world sleeps, and he ignores that for which the world lives." </br>
+"यस्य नाहंकृतो भावो बुद्धिर्यस्य न लिप्यते | हत्वाऽपि स इमाँल्लोकान्न हन्ति न निबध्यते ||१८-१७||" </br>
+Translate: "18.17 He who has no pride, and whose intellect is unalloyed by attachment, even though he kill these people, yet he does not kill them, and his act does not bind him." </br>
 
 # Prefs
 
