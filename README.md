@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"समदुःखसुखः स्वस्थः समलोष्टाश्मकाञ्चनः | तुल्यप्रियाप्रियो धीरस्तुल्यनिन्दात्मसंस्तुतिः ||१४-२४||" </br>
-Translate: "14.24 Who accepts pain and pleasure as it comes, is centred in his Self, to whom a piece of clay or stone or gold are the same, who neither likes nor dislikes, who is steadfast, indifferent alike to praise or censure;" </br>
+"यथाकाशस्थितो नित्यं वायुः सर्वत्रगो महान् | तथा सर्वाणि भूतानि मत्स्थानीत्युपधारय ||९-६||" </br>
+Translate: "9.6 As the mighty wind, though moving everywhere, has no resting place but space, so have all these beings no home but Me." </br>
 
 # Prefs
 
