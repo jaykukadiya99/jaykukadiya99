@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भक्त्या त्वनन्यया शक्य अहमेवंविधोऽर्जुन | ज्ञातुं द्रष्टुं च तत्त्वेन प्रवेष्टुं च परन्तप ||११-५४||" </br>
-Translate: "11.54 Only by tireless devotion can I be seen and known; only thus can a man become one with Me, O Arjuna!" </br>
+"तद्बुद्धयस्तदात्मानस्तन्निष्ठास्तत्परायणाः | गच्छन्त्यपुनरावृत्तिं ज्ञाननिर्धूतकल्मषाः ||५-१७||" </br>
+Translate: "5.17 Meditating on the Divine, having faith in the Divine, concentrating on the Divine and losing themselves in the Divine, their sins dissolved in wisdom, they go whence there is no return." </br>
 
 # Prefs
 
