@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षिताम् | उवाच पार्थ पश्यैतान्समवेतान्कुरूनिति ||१-२५||" </br>
-Translate: "1.25 Whither Bheeshma and Drona had led all the rulers of the earth, and spoke thus: O Arjuna! Behold these members of the family of Kuru assembled." </br>
+"सञ्जय उवाच | इत्यर्जुनं वासुदेवस्तथोक्त्वा स्वकं रूपं दर्शयामास भूयः | आश्वासयामास च भीतमेनं भूत्वा पुनः सौम्यवपुर्महात्मा ||११-५०||" </br>
+Translate: "11.50 Sanjaya continued: "Having thus spoken to Arjuna, Lord Shri Krishna showed Himself again in His accustomed form; and the Mighty Lord, in gentle tones, softly consoled him who lately trembled with fear." </br>
 
 # Prefs
 
