@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा यदा हि धर्मस्य ग्लानिर्भवति भारत | अभ्युत्थानमधर्मस्य तदात्मानं सृजाम्यहम् ||४-७||" </br>
-Translate: "4.7 Whenever spirituality decays and materialism is rampant, then, O Arjuna, I reincarnate Myself!" </br>
+"ये तु धर्म्यामृतमिदं यथोक्तं पर्युपासते | श्रद्दधाना मत्परमा भक्तास्तेऽतीव मे प्रियाः ||१२-२०||" </br>
+Translate: "12.20 Verily those who love the spiritual wisdom as I have taught, whose faith never fails, and who concentrate their whole nature on Me, they indeed are My most beloved."" </br>
 
 # Prefs
 
