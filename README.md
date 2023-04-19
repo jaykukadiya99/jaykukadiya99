@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मयाध्यक्षेण प्रकृतिः सूयते सचराचरम् | हेतुनानेन कौन्तेय जगद्विपरिवर्तते ||९-१०||" </br>
-Translate: "9.10 Under my guidance, Nature produces all things movable and immovable. Thus it is, O Arjuna, that this universe revolves." </br>
+"यत्तदग्रे विषमिव परिणामेऽमृतोपमम् | तत्सुखं सात्त्विकं प्रोक्तमात्मबुद्धिप्रसादजम् ||१८-३७||" </br>
+Translate: "18.37 Which at first seems like poison but afterwards acts like nectar - that pleasure is Pure, for it is born of Wisdom." </br>
 
 # Prefs
 
