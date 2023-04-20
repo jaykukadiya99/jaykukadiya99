@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्लैब्यं मा स्म गमः पार्थ नैतत्त्वय्युपपद्यते | क्षुद्रं हृदयदौर्बल्यं त्यक्त्वोत्तिष्ठ परन्तप ||२-३||" </br>
-Translate: "2.3 O Arjuna! Why give way to unmanliness? O thou who art the terror of thine enemies! Shake off such shameful effeminacy, make ready to act!" </br>
+"गुणानेतानतीत्य त्रीन्देही देहसमुद्भवान् | जन्ममृत्युजरादुःखैर्विमुक्तोऽमृतमश्नुते ||१४-२०||" </br>
+Translate: "14.20 When the soul transcends the Qualities, which are the real cause of physical existence, then, freed from birth and death, from old age and misery, he quaffs the nectar of immortality." </br>
 
 # Prefs
 
