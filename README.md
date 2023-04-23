@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतैर्विमुक्तः कौन्तेय तमोद्वारैस्त्रिभिर्नरः | आचरत्यात्मनः श्रेयस्ततो याति परां गतिम् ||१६-२२||" </br>
-Translate: "16.22 These are the gates which lead to darkness; if a man avoid them he will ensure his own welfare, and in the end will attain his liberation." </br>
+"अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन | प्रयाणकाले च कथं ज्ञेयोऽसि नियतात्मभिः ||८-२||" </br>
+Translate: "8.2 Who is it who rules the spirit sacrifice in many; and at the time of death how may those who have learned self-control come to the knowledge of Thee?" </br>
 
 # Prefs
 
