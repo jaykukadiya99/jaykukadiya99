@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मां हि पार्थ व्यपाश्रित्य येऽपि स्युः पापयोनयः | स्त्रियो वैश्यास्तथा शूद्रास्तेऽपि यान्ति परां गतिम् ||९-३२||" </br>
-Translate: "9.32 For even the children of sinful parents, and those miscalled the weaker sex, and merchants, and labourers, if only they will make Me their refuge, they shall attain the Highest." </br>
+"सद्भावे साधुभावे च सदित्येतत्प्रयुज्यते | प्रशस्ते कर्मणि तथा सच्छब्दः पार्थ युज्यते ||१७-२६||" </br>
+Translate: "17.26 Sat' means Reality or the highest Good, and also, O Arjuna, it is used to mean an action of exceptional merit." </br>
 
 # Prefs
 
