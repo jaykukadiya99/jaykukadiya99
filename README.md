@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मनः प्रसादः सौम्यत्वं मौनमात्मविनिग्रहः | भावसंशुद्धिरित्येतत्तपो मानसमुच्यते ||१७-१६||" </br>
-Translate: "17.16 Serenity, kindness, silence, self-control and purity - this is austerity of mind." </br>
+"अनुबन्धं क्षयं हिंसामनपेक्ष्य च पौरुषम् | मोहादारभ्यते कर्म यत्तत्तामसमुच्यते ||१८-२५||" </br>
+Translate: "18.25 An action undertaken through delusion, and with no regard to the spiritual issues involved, or the real capacity of the doer, or to the injury which may follow, such an act may be assumed to be the product of Ignorance." </br>
 
 # Prefs
 
