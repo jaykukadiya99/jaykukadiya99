@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नियतस्य तु संन्यासः कर्मणो नोपपद्यते | मोहात्तस्य परित्यागस्तामसः परिकीर्तितः ||१८-७||" </br>
-Translate: "18.7 It is not right to give up actions which are obligatory; and if they are misunderstood, it is the result of sheer ignorance." </br>
+"सञ्जय उवाच | एवमुक्त्वार्जुनः सङ्ख्ये रथोपस्थ उपाविशत् | विसृज्य सशरं चापं शोकसंविग्नमानसः ||१-४७||" </br>
+Translate: "1.47 Sanjaya said: "Having spoken thus, in the midst of the armies, Arjuna sank on the seat of the chariot, casting away his bow and arrow; heartbroken with grief."" </br>
 
 # Prefs
 
