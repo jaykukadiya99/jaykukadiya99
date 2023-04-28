@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अव्यक्तोऽयमचिन्त्योऽयमविकार्योऽयमुच्यते | तस्मादेवं विदित्वैनं नानुशोचितुमर्हसि ||२-२५||" </br>
-Translate: "2.25 It is named the Unmanifest, the Unthinkable, the immutable. Wherefore, knowing the Spirit as such, thou hast no cause to grieve." </br>
+"संन्यासस्तु महाबाहो दुःखमाप्तुमयोगतः | योगयुक्तो मुनिर्ब्रह्म नचिरेणाधिगच्छति ||५-६||" </br>
+Translate: "5.6 Without concentration, O Mighty Man, renunciation is difficult. But the sage who is always meditating on the Divine, before long shall attain the Absolute." </br>
 
 # Prefs
 
