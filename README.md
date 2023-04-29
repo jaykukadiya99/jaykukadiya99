@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तत्र सत्त्वं निर्मलत्वात्प्रकाशकमनामयम् | सुखसङ्गेन बध्नाति ज्ञानसङ्गेन चानघ ||१४-६||" </br>
-Translate: "14.6 O Sinless One! Of these, Purity, being luminous, strong and invulnerable, binds one by its yearning for happiness and illumination." </br>
+"अश्रद्धया हुतं दत्तं तपस्तप्तं कृतं च यत् | असदित्युच्यते पार्थ न च तत्प्रेत्य नो इह ||१७-२८||" </br>
+Translate: "17.28 Whatsoever is done without faith, whether it be sacrifice, austerity or gift or anything else, as called Asat' (meaning Unreal') for it is the negation of Sat,' O Arjuna! Such an act has no significance, here or hereafter."" </br>
 
 # Prefs
 
