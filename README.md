@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न मां दुष्कृतिनो मूढाः प्रपद्यन्ते नराधमाः | माययापहृतज्ञाना आसुरं भावमाश्रिताः ||७-१५||" </br>
-Translate: "7.15 The sinner, the ignorant, the vile, deprived of spiritual perception by the glamour of Illusion, and he who pursues a godless life - none of them shall find Me." </br>
+"न चैतद्विद्मः कतरन्नो गरीयो यद्वा जयेम यदि वा नो जयेयुः | यानेव हत्वा न जिजीविषामस्- तेऽवस्थिताः प्रमुखे धार्तराष्ट्राः ||२-६||" </br>
+Translate: "2.6 Nor can I say whether it were better that they conquer me or for me to conquer them, since would no longer care to live if I killed these sons of Dhritarashtra, now preparing for fight." </br>
 
 # Prefs
 
