@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मनुष्याणां सहस्रेषु कश्चिद्यतति सिद्धये | यततामपि सिद्धानां कश्चिन्मां वेत्ति तत्त्वतः ||७-३||" </br>
-Translate: "7.3 Among thousands of men scarcely one strives for perfection, and even amongst those who gain occult powers, perchance but one knows me in truth." </br>
+"शक्नोतीहैव यः सोढुं प्राक्शरीरविमोक्षणात् | कामक्रोधोद्भवं वेगं स युक्तः स सुखी नरः ||५-२३||" </br>
+Translate: "5.23 He who, before he leaves his body, learns to surmount the promptings of desire and anger is a saint and is happy." </br>
 
 # Prefs
 
