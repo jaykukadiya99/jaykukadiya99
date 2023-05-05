@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहं क्रतुरहं यज्ञः स्वधाहमहमौषधम् | मन्त्रोऽहमहमेवाज्यमहमग्निरहं हुतम् ||९-१६||" </br>
-Translate: "9.16 I am the Oblation, the Sacrifice and the Worship; I am the Fuel and the Chant, I am the Butter offered to the fire, I am the Fire itself, and I am the Act of offering." </br>
+"अप्रकाशोऽप्रवृत्तिश्च प्रमादो मोह एव च | तमस्येतानि जायन्ते विवृद्धे कुरुनन्दन ||१४-१३||" </br>
+Translate: "14.13 Darkness, stagnation, folly and infatuation are the result of the dominance of Ignorance, O joy of the Kuru-clan!" </br>
 
 # Prefs
 
