@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"साधिभूताधिदैवं मां साधियज्ञं च ये विदुः | प्रयाणकालेऽपि च मां ते विदुर्युक्तचेतसः ||७-३०||" </br>
-Translate: "7.30 Those who see Me in the life of the world, in the universal sacrifice, and as pure Divinity, keeping their minds steady, they live in Me, even in the crucial hour of death."" </br>
+"तत्र सत्त्वं निर्मलत्वात्प्रकाशकमनामयम् | सुखसङ्गेन बध्नाति ज्ञानसङ्गेन चानघ ||१४-६||" </br>
+Translate: "14.6 O Sinless One! Of these, Purity, being luminous, strong and invulnerable, binds one by its yearning for happiness and illumination." </br>
 
 # Prefs
 
