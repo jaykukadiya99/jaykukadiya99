@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सुहृन्मित्रार्युदासीनमध्यस्थद्वेष्यबन्धुषु | साधुष्वपि च पापेषु समबुद्धिर्विशिष्यते ||६-९||" </br>
-Translate: "6.9 He looks impartially on all - lover, friend or foe; indifferent or hostile; alien or relative; virtuous or sinful." </br>
+"समं कायशिरोग्रीवं धारयन्नचलं स्थिरः | सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ||६-१३||" </br>
+Translate: "6.13 Let him hold body, head and neck erect, motionless and steady; let him look fixedly at the tip of his nose, turning neither to the right nor to the left." </br>
 
 # Prefs
 
