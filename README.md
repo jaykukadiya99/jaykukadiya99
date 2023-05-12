@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अन्ये च बहवः शूरा मदर्थे त्यक्तजीविताः | नानाशस्त्रप्रहरणाः सर्वे युद्धविशारदाः ||१-९||" </br>
-Translate: "1.9 And many others, all ready to die for my sake; all armed, all skilled in war." </br>
+"यस्त्वात्मरतिरेव स्यादात्मतृप्तश्च मानवः | आत्मन्येव च सन्तुष्टस्तस्य कार्यं न विद्यते ||३-१७||" </br>
+Translate: "3.17 On the other hand, the soul who meditates on the Self is content to serve the Self and rests satisfied within the Self; there remains nothing more for him to accomplish." </br>
 
 # Prefs
 
