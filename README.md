@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इच्छाद्वेषसमुत्थेन द्वन्द्वमोहेन भारत | सर्वभूतानि सम्मोहं सर्गे यान्ति परन्तप ||७-२७||" </br>
-Translate: "7.27 O brave Arjuna! Man lives in a fairy world, deceived by the glamour of opposite sensations, infatuated by desire and aversion." </br>
+"एवं प्रवर्तितं चक्रं नानुवर्तयतीह यः | अघायुरिन्द्रियारामो मोघं पार्थ स जीवति ||३-१६||" </br>
+Translate: "3.16 Thus he who does not help the revolving wheel of sacrifice, but instead leads a sinful life, rejoicing in the gratification of his senses, O Arjuna, he breathes in vain." </br>
 
 # Prefs
 
