@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"धूमो रात्रिस्तथा कृष्णः षण्मासा दक्षिणायनम् | तत्र चान्द्रमसं ज्योतिर्योगी प्राप्य निवर्तते ||८-२५||" </br>
-Translate: "8.25 But if he departs in gloom, at night, during the fortnight of the waning moon and in the six months before the Southern solstice, then he reaches but lunar light and he will be born again." </br>
+"प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः | मनः संयम्य मच्चित्तो युक्त आसीत मत्परः ||६-१४||" </br>
+Translate: "6.14 With peace in his heart and nor fear, observing the vow of celibacy, with mind controlled and fixed on Me, let the student lose himself in contemplation of Me." </br>
 
 # Prefs
 
