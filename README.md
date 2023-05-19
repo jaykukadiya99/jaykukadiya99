@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ज्ञानं तेऽहं सविज्ञानमिदं वक्ष्याम्यशेषतः | यज्ज्ञात्वा नेह भूयोऽन्यज्ज्ञातव्यमवशिष्यते ||७-२||" </br>
-Translate: "7.2 I will reveal to this knowledge unto thee, and how it may be realised; which, once accomplished, there remains nothing else worth having in this life." </br>
+"धृष्टकेतुश्चेकितानः काशिराजश्च वीर्यवान् | पुरुजित्कुन्तिभोजश्च शैब्यश्च नरपुंगवः ||१-५||" </br>
+Translate: "1.5 Dhrishtaketu, Chekitan, the valiant King of Benares, Purujit, Kuntibhoja, Shaibya - a master over many;" </br>
 
 # Prefs
 
