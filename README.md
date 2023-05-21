@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मम योनिर्महद् ब्रह्म तस्मिन्गर्भं दधाम्यहम् | सम्भवः सर्वभूतानां ततो भवति भारत ||१४-३||" </br>
-Translate: "14.3 The eternal Cosmos is My womb, in which I plant the seed, from which all beings are born, O Prince!" </br>
+"कर्मणैव हि संसिद्धिमास्थिता जनकादयः | लोकसंग्रहमेवापि सम्पश्यन्कर्तुमर्हसि ||३-२०||" </br>
+Translate: "3.20 King Janaka and others attained perfection through action alone. Even for the sake of enlightening the world, it is thy duty to act;" </br>
 
 # Prefs
 
