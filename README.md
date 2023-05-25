@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनन्याश्चिन्तयन्तो मां ये जनाः पर्युपासते | तेषां नित्याभियुक्तानां योगक्षेमं वहाम्यहम् ||९-२२||" </br>
-Translate: "9.22 But if a man will meditate on Me and Me alone, and will worship Me always and everywhere, I will take upon Myself the fulfillment of his aspiration, and I will safeguard whatsoever he shall attain." </br>
+"सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ | ततो युद्धाय युज्यस्व नैवं पापमवाप्स्यसि ||२-३८||" </br>
+Translate: "2.38 Look upon pleasure and pain, victory and defeat, with an equal eye. Make ready for the combat, and thou shalt commit no sin." </br>
 
 # Prefs
 
