@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सन्तुष्टः सततं योगी यतात्मा दृढनिश्चयः | मय्यर्पितमनोबुद्धिर्यो मद्भक्तः स मे प्रियः ||१२-१४||" </br>
-Translate: "12.14 Always contented, self-centred, self-controlled, resolute, with mind and reason dedicated to Me, such a devotee of Mine is My beloved." </br>
+"यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ | समदुःखसुखं धीरं सोऽमृतत्वाय कल्पते ||२-१५||" </br>
+Translate: "2.15 The hero whose soul is unmoved by circumstance, who accepts pleasure and pain with equanimity, only he is fit for immortality." </br>
 
 # Prefs
 
