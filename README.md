@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कथं विद्यामहं योगिंस्त्वां सदा परिचिन्तयन् | केषु केषु च भावेषु चिन्त्योऽसि भगवन्मया ||१०-१७||" </br>
-Translate: "10.17 O Master! How shall I, by constant meditation, know Thee? My Lord! What are Thy various manifestations through which I am to mediate on Thee?" </br>
+"न तु मां शक्यसे द्रष्टुमनेनैव स्वचक्षुषा | दिव्यं ददामि ते चक्षुः पश्य मे योगमैश्वरम् ||११-८||" </br>
+Translate: "11.8 Yet since with mortal eyes thou canst not see Me, lo! I give thee the Divine Sight. See now the glory of My Sovereignty."" </br>
 
 # Prefs
 
