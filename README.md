@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न तु मां शक्यसे द्रष्टुमनेनैव स्वचक्षुषा | दिव्यं ददामि ते चक्षुः पश्य मे योगमैश्वरम् ||११-८||" </br>
-Translate: "11.8 Yet since with mortal eyes thou canst not see Me, lo! I give thee the Divine Sight. See now the glory of My Sovereignty."" </br>
+"श्रीभगवानुवाच | परं भूयः प्रवक्ष्यामि ज्ञानानां ज्ञानमुत्तमम् | यज्ज्ञात्वा मुनयः सर्वे परां सिद्धिमितो गताः ||१४-१||" </br>
+Translate: "14.1 "Lord Shri Krishna continued: Now I will reveal unto the Wisdom which is beyond knowledge, by attaining which the sages have reached Perfection." </br>
 
 # Prefs
 
