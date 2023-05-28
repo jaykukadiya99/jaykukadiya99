@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अव्यक्तादीनि भूतानि व्यक्तमध्यानि भारत | अव्यक्तनिधनान्येव तत्र का परिदेवना ||२-२८||" </br>
-Translate: "2.28 The end and the beginning of beings are unknown. We see only the intervening formations. Then what cause is there for grief?" </br>
+"श्रद्धावाननसूयश्च शृणुयादपि यो नरः | सोऽपि मुक्तः शुभाँल्लोकान्प्राप्नुयात्पुण्यकर्मणाम् ||१८-७१||" </br>
+Translate: "18.71 Yea, he who listens to it with faith and without doubt, even he, freed from evil, shalt rise to the worlds which the virtuous attain through righteous deeds." </br>
 
 # Prefs
 
