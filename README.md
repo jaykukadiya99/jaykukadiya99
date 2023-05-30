@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मत्कर्मकृन्मत्परमो मद्भक्तः सङ्गवर्जितः | निर्वैरः सर्वभूतेषु यः स मामेति पाण्डव ||११-५५||" </br>
-Translate: "11.55 He whose every action is done for My sake, to whom I am the final goal, who loves Me only and hates no one - O My dearest son, only he can realize Me!"" </br>
+"ये चैव सात्त्विका भावा राजसास्तामसाश्च ये | मत्त एवेति तान्विद्धि न त्वहं तेषु ते मयि ||७-१२||" </br>
+Translate: "7.12 Whatever be the nature of their life, whether it be pure or passionate or ignorant, they are all derived from Me. They are in Me, but I am not in them." </br>
 
 # Prefs
 
