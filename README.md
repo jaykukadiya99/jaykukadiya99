@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ततः स विस्मयाविष्टो हृष्टरोमा धनञ्जयः | प्रणम्य शिरसा देवं कृताञ्जलिरभाषत ||११-१४||" </br>
-Translate: "11.14 Thereupon Arjuna, dumb with awe, his hair on end, his head bowed, his hands clasped in salutation, addressed the Lord thus:" </br>
+"श्रीभगवानुवाच | सुदुर्दर्शमिदं रूपं दृष्टवानसि यन्मम | देवा अप्यस्य रूपस्य नित्यं दर्शनकाङ्क्षिणः ||११-५२||" </br>
+Translate: "11.52 Lord Shri Krishna replied: It is hard to see this vision of Me that thou hast seen. Even the most powerful have longed for it in vain." </br>
 
 # Prefs
 
