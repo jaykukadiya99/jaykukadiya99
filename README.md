@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पुण्यो गन्धः पृथिव्यां च तेजश्चास्मि विभावसौ | जीवनं सर्वभूतेषु तपश्चास्मि तपस्विषु ||७-९||" </br>
-Translate: "7.9 I am the Fragrance of earth, the Brilliance of fire. I am the Life Force in all beings, and I am the Austerity of the ascetics." </br>
+"न चैतद्विद्मः कतरन्नो गरीयो यद्वा जयेम यदि वा नो जयेयुः | यानेव हत्वा न जिजीविषामस्- तेऽवस्थिताः प्रमुखे धार्तराष्ट्राः ||२-६||" </br>
+Translate: "2.6 Nor can I say whether it were better that they conquer me or for me to conquer them, since would no longer care to live if I killed these sons of Dhritarashtra, now preparing for fight." </br>
 
 # Prefs
 
