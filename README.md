@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दैवमेवापरे यज्ञं योगिनः पर्युपासते | ब्रह्माग्नावपरे यज्ञं यज्ञेनैवोपजुह्वति ||४-२५||" </br>
-Translate: "4.25 Some sages sacrifice to the Powers; others offer themselves on the alter of the Eternal." </br>
+"यः शास्त्रविधिमुत्सृज्य वर्तते कामकारतः | न स सिद्धिमवाप्नोति न सुखं न परां गतिम् ||१६-२३||" </br>
+Translate: "16.23 But he who neglects the commands of the scriptures, and follows the promptings of passion, he does not attain perfection, happiness or the final goal." </br>
 
 # Prefs
 
