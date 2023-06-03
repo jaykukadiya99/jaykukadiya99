@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यः शास्त्रविधिमुत्सृज्य वर्तते कामकारतः | न स सिद्धिमवाप्नोति न सुखं न परां गतिम् ||१६-२३||" </br>
-Translate: "16.23 But he who neglects the commands of the scriptures, and follows the promptings of passion, he does not attain perfection, happiness or the final goal." </br>
+"यदग्रे चानुबन्धे च सुखं मोहनमात्मनः | निद्रालस्यप्रमादोत्थं तत्तामसमुदाहृतम् ||१८-३९||" </br>
+Translate: "18.39 While the pleasure which from first to last merely drugs the senses, which springs from indolence, lethargy and folly - that pleasure flows from Ignorance." </br>
 
 # Prefs
 
