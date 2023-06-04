@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यथा सर्वगतं सौक्ष्म्यादाकाशं नोपलिप्यते | सर्वत्रावस्थितो देहे तथात्मा नोपलिप्यते ||१३-३३||" </br>
-Translate: "13.33 As space, though present everywhere, remains by reason of its subtlety unaffected, so the Self, though present in all forms, retains its purity unalloyed." </br>
+"श्रीभगवानुवाच | कालोऽस्मि लोकक्षयकृत्प्रवृद्धो लोकान्समाहर्तुमिह प्रवृत्तः | ऋतेऽपि त्वां न भविष्यन्ति सर्वे येऽवस्थिताः प्रत्यनीकेषु योधाः ||११-३२||" </br>
+Translate: "11.32 Lord Shri Krishna replied: I have shown myself to thee as the Destroyer who lays waste the world and whose purpose is destruction. In spite of thy efforts, all these warriors gathered for battle shall not escape death." </br>
 
 # Prefs
 
