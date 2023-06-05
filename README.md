@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | एतच्छ्रुत्वा वचनं केशवस्य कृताञ्जलिर्वेपमानः किरीटी | नमस्कृत्वा भूय एवाह कृष्णं सगद्गदं भीतभीतः प्रणम्य ||११-३५||" </br>
-Translate: "11.35 Sanjaya continued: "Having heard these words from the Lord Shri Krishna, the Prince Arjuna, with folded hands trembling, prostrated himself and with choking voice, bowing down again and again, and overwhelmed with awe, once more addressed the Lord." </br>
+"नियतं कुरु कर्म त्वं कर्म ज्यायो ह्यकर्मणः | शरीरयात्रापि च ते न प्रसिद्ध्येदकर्मणः ||३-८||" </br>
+Translate: "3.8 Do thy duty as prescribed, for action for duty's sake is superior to inaction. Even the maintenance of the body would be impossible if man remained inactive." </br>
 
 # Prefs
 
