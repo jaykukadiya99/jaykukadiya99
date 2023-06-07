@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्मादज्ञानसम्भूतं हृत्स्थं ज्ञानासिनात्मनः | छित्त्वैनं संशयं योगमातिष्ठोत्तिष्ठ भारत ||४-४२||" </br>
-Translate: "4.42 Therefore, cleaving asunder with the sword of wisdom the doubts of the heart, which thine own ignorance has engendered, follow the Path of Wisdom and arise!"" </br>
+"बुद्धेर्भेदं धृतेश्चैव गुणतस्त्रिविधं शृणु | प्रोच्यमानमशेषेण पृथक्त्वेन धनञ्जय ||१८-२९||" </br>
+Translate: "18.29 Reason and conviction are threefold, according to the Quality which is dominant. I will explain them fully and severally, O Arjuna!" </br>
 
 # Prefs
 
