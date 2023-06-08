@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु | मामेवैष्यसि सत्यं ते प्रतिजाने प्रियोऽसि मे ||१८-६५||" </br>
-Translate: "18.65 Dedicate thyself to Me, worship Me, sacrifice all for Me, prostrate thyself before Me, and to Me thou shalt surely come. Truly do I pledge thee; thou art My own beloved." </br>
+"यया स्वप्नं भयं शोकं विषादं मदमेव च | न विमुञ्चति दुर्मेधा धृतिः सा पार्थ तामसी ||१८-३५||" </br>
+Translate: "18.35 And that which clings perversely to false idealism, fear, grief, despair and vanity is the product of Ignorance." </br>
 
 # Prefs
 
