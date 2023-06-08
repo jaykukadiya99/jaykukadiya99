@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कच्चिदेतच्छ्रुतं पार्थ त्वयैकाग्रेण चेतसा | कच्चिदज्ञानसम्मोहः प्रनष्टस्ते धनञ्जय ||१८-७२||" </br>
-Translate: "18.72 O Arjuna! Hast thou listened attentively to My words? Has thy ignorance and thy delusion gone?" </br>
+"प्रलपन्विसृजन्गृह्णन्नुन्मिषन्निमिषन्नपि | इन्द्रियाणीन्द्रियार्थेषु वर्तन्त इति धारयन् ||५-९||" </br>
+Translate: "5.9 Though he talks, though he gives and receives, though he opens his eyes and shuts them, he still knows that his senses are merely disporting themselves among the objects of perception." </br>
 
 # Prefs
 
