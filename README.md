@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पितासि लोकस्य चराचरस्य त्वमस्य पूज्यश्च गुरुर्गरीयान् | न त्वत्समोऽस्त्यभ्यधिकः कुतोऽन्यो लोकत्रयेऽप्यप्रतिमप्रभाव ||११-४३||" </br>
-Translate: "11.43 For Thou art the Father of all things movable and immovable, the Worshipful, the Master of Masters! In all the worlds there is none equal to Thee, how then superior, O Thou who standeth alone, Supreme." </br>
+"परित्राणाय साधूनां विनाशाय च दुष्कृताम् | धर्मसंस्थापनार्थाय सम्भवामि युगे युगे ||४-८||" </br>
+Translate: "4.8 To protect the righteous, to destroy the wicked and to establish the kingdom of God, I am reborn from age to age." </br>
 
 # Prefs
 
