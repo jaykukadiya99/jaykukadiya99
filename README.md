@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रवृत्तिं च निवृत्तिं च कार्याकार्ये भयाभये | बन्धं मोक्षं च या वेत्ति बुद्धिः सा पार्थ सात्त्विकी ||१८-३०||" </br>
-Translate: "18.30 That intellect which understands the creation and dissolution of life, what actions should be done and what not, which discriminates between fear and fearlessness, bondage and deliverance, that is Pure." </br>
+"श्रीभगवानुवाच | असंशयं महाबाहो मनो दुर्निग्रहं चलम् | अभ्यासेन तु कौन्तेय वैराग्येण च गृह्यते ||६-३५||" </br>
+Translate: "6.35 Lord Shri Krishna replied: Doubtless, O Mighty One, the mind is fickle and exceedingly difficult to restrain, but, O Son of Kunti, with practice and renunciation it can be done." </br>
 
 # Prefs
 
