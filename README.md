@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतन्मे संशयं कृष्ण छेत्तुमर्हस्यशेषतः | त्वदन्यः संशयस्यास्य छेत्ता न ह्युपपद्यते ||६-३९||" </br>
-Translate: "6.39 My Lord! Thou art worthy to solve this doubt once and for all; save Thyself there is no one competent to do so." </br>
+"यदा हि नेन्द्रियार्थेषु न कर्मस्वनुषज्जते | सर्वसङ्कल्पसंन्यासी योगारूढस्तदोच्यते ||६-४||" </br>
+Translate: "6.4 When a man renounces even the thought of initiating action, when he is not interested in sense objects or any results which may flow from his acts, then in truth he understands spirituality." </br>
 
 # Prefs
 
