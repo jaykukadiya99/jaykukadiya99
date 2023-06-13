@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा हि नेन्द्रियार्थेषु न कर्मस्वनुषज्जते | सर्वसङ्कल्पसंन्यासी योगारूढस्तदोच्यते ||६-४||" </br>
-Translate: "6.4 When a man renounces even the thought of initiating action, when he is not interested in sense objects or any results which may flow from his acts, then in truth he understands spirituality." </br>
+"तस्माच्छास्त्रं प्रमाणं ते कार्याकार्यव्यवस्थितौ | ज्ञात्वा शास्त्रविधानोक्तं कर्म कर्तुमिहार्हसि ||१६-२४||" </br>
+Translate: "16.24 Therefore whenever there is doubt whether thou shouldst do a thing or not, let the scriptures guide thy conduct. In the light of the scriptures shouldst thou labour the whole of thy life."" </br>
 
 # Prefs
 
