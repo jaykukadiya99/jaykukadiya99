@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अध्येष्यते च य इमं धर्म्यं संवादमावयोः | ज्ञानयज्ञेन तेनाहमिष्टः स्यामिति मे मतिः ||१८-७०||" </br>
-Translate: "18.70 He who will study this spiritual discourse of ours, I assure thee, he shall thereby worship Me at the altar of Wisdom." </br>
+"धृतराष्ट्र उवाच | धर्मक्षेत्रे कुरुक्षेत्रे समवेता युयुत्सवः | मामकाः पाण्डवाश्चैव किमकुर्वत सञ्जय ||१-१||" </br>
+Translate: "1.1 The King Dhritarashtra asked: "O Sanjaya! What happened on the sacred battlefield of Kurukshetra, when my people gathered against the Pandavas?"" </br>
 
 # Prefs
 
