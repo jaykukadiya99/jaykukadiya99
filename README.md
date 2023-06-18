@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | भूय एव महाबाहो शृणु मे परमं वचः | यत्तेऽहं प्रीयमाणाय वक्ष्यामि हितकाम्यया ||१०-१||" </br>
-Translate: "10.1 "Lord Shri Krishna said: Now, O Prince! Listen to My supreme advice, which I give thee for the sake of thy welfare, for thou art My beloved." </br>
+"आदित्यानामहं विष्णुर्ज्योतिषां रविरंशुमान् | मरीचिर्मरुतामस्मि नक्षत्राणामहं शशी ||१०-२१||" </br>
+Translate: "10.21 Of all the creative Powers I am the Creator, of luminaries the Sun; the Whirlwind among the winds, and the Moon among planets." </br>
 
 # Prefs
 
