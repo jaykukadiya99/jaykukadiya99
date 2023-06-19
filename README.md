@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आदित्यानामहं विष्णुर्ज्योतिषां रविरंशुमान् | मरीचिर्मरुतामस्मि नक्षत्राणामहं शशी ||१०-२१||" </br>
-Translate: "10.21 Of all the creative Powers I am the Creator, of luminaries the Sun; the Whirlwind among the winds, and the Moon among planets." </br>
+"उत्सीदेयुरिमे लोका न कुर्यां कर्म चेदहम् | सङ्करस्य च कर्ता स्यामुपहन्यामिमाः प्रजाः ||३-२४||" </br>
+Translate: "3.24 And if I were to refrain from action, the human race would be ruined; I should lead the world to chaos, and destruction would follow." </br>
 
 # Prefs
 
