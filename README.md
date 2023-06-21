@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"समं सर्वेषु भूतेषु तिष्ठन्तं परमेश्वरम् | विनश्यत्स्वविनश्यन्तं यः पश्यति स पश्यति ||१३-२८||" </br>
-Translate: "13.28 He who can see the Supreme Lord in all beings, the Imperishable amidst the perishable, he it is who really sees." </br>
+"अपरेयमितस्त्वन्यां प्रकृतिं विद्धि मे पराम् | जीवभूतां महाबाहो ययेदं धार्यते जगत् ||७-५||" </br>
+Translate: "7.5 This is My inferior Nature; but distinct from this, O Valiant One, know thou that my Superior Nature is the very Life which sustains the universe." </br>
 
 # Prefs
 
