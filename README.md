@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अपरेयमितस्त्वन्यां प्रकृतिं विद्धि मे पराम् | जीवभूतां महाबाहो ययेदं धार्यते जगत् ||७-५||" </br>
-Translate: "7.5 This is My inferior Nature; but distinct from this, O Valiant One, know thou that my Superior Nature is the very Life which sustains the universe." </br>
+"तस्मात्त्वमुत्तिष्ठ यशो लभस्व जित्वा शत्रून् भुङ्क्ष्व राज्यं समृद्धम् | मयैवैते निहताः पूर्वमेव निमित्तमात्रं भव सव्यसाचिन् ||११-३३||" </br>
+Translate: "11.33 Then gird up thy loins and conquer. Subdue thy foes and enjoy the kingdom in prosperity. I have already doomed them. Be thou my instrument, Arjuna!" </br>
 
 # Prefs
 
