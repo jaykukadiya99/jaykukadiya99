@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"योगिनामपि सर्वेषां मद्गतेनान्तरात्मना | श्रद्धावान्भजते यो मां स मे युक्ततमो मतः ||६-४७||" </br>
-Translate: "6.47 I look upon him as the best of mystics who, full of faith, worshippeth Me and abideth in Me."" </br>
+"ब्राह्मणक्षत्रियविशां शूद्राणां च परन्तप | कर्माणि प्रविभक्तानि स्वभावप्रभवैर्गुणैः ||१८-४१||" </br>
+Translate: "18.41 O Arjuna! The duties of spiritual teachers, the soldiers, the traders and the servants have all been fixed according to the dominant Quality in their nature." </br>
 
 # Prefs
 
