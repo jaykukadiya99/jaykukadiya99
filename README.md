@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रयत्नाद्यतमानस्तु योगी संशुद्धकिल्बिषः | अनेकजन्मसंसिद्धस्ततो याति परां गतिम् ||६-४५||" </br>
-Translate: "6.45 Then after many lives, the student of spirituality, who earnestly strives, and whose sins are absolved, attains perfection and reaches the Supreme." </br>
+"यदृच्छया चोपपन्नं स्वर्गद्वारमपावृतम् | सुखिनः क्षत्रियाः पार्थ लभन्ते युद्धमीदृशम् ||२-३२||" </br>
+Translate: "2.32 Blessed are the soldiers who find their opportunity. This opportunity has opened for thee the gates of heaven." </br>
 
 # Prefs
 
