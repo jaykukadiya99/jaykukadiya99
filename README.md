@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दम्भो दर्पोऽभिमानश्च क्रोधः पारुष्यमेव च | अज्ञानं चाभिजातस्य पार्थ सम्पदमासुरीम् ||१६-४||" </br>
-Translate: "16.4 Hypocrisy, pride, insolence, cruelty, ignorance belong to him who is born of the godless qualities." </br>
+"योऽन्तःसुखोऽन्तरारामस्तथान्तर्ज्योतिरेव यः | स योगी ब्रह्मनिर्वाणं ब्रह्मभूतोऽधिगच्छति ||५-२४||" </br>
+Translate: "5.24 He who is happy within his Self and has found Its peace, and in whom the inner light shines, that sage attains Eternal Bliss and becomes the Spirit Itself." </br>
 
 # Prefs
 
