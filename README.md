@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्कारमानपूजार्थं तपो दम्भेन चैव यत् | क्रियते तदिह प्रोक्तं राजसं चलमध्रुवम् ||१७-१८||" </br>
-Translate: "17.18 Austerity coupled with hypocrisy or performed for the sake of self-glorification, popularity or vanity, comes from Passion, and its result is always doubtful and temporary." </br>
+"उदासीनवदासीनो गुणैर्यो न विचाल्यते | गुणा वर्तन्त इत्येवं योऽवतिष्ठति नेङ्गते ||१४-२३||" </br>
+Translate: "14.23 He who maintains an attitude of indifference, who is not disturbed by the Qualities, who realises that it is only they who act, and remains calm;" </br>
 
 # Prefs
 
