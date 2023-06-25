@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उदासीनवदासीनो गुणैर्यो न विचाल्यते | गुणा वर्तन्त इत्येवं योऽवतिष्ठति नेङ्गते ||१४-२३||" </br>
-Translate: "14.23 He who maintains an attitude of indifference, who is not disturbed by the Qualities, who realises that it is only they who act, and remains calm;" </br>
+"अविभक्तं च भूतेषु विभक्तमिव च स्थितम् | भूतभर्तृ च तज्ज्ञेयं ग्रसिष्णु प्रभविष्णु च ||१३-१७||" </br>
+Translate: "13.17 In all beings undivided, yet living in division, It is the upholder of all, Creator and Destroyer alike;" </br>
 
 # Prefs
 
