@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ये तु धर्म्यामृतमिदं यथोक्तं पर्युपासते | श्रद्दधाना मत्परमा भक्तास्तेऽतीव मे प्रियाः ||१२-२०||" </br>
-Translate: "12.20 Verily those who love the spiritual wisdom as I have taught, whose faith never fails, and who concentrate their whole nature on Me, they indeed are My most beloved."" </br>
+"अपि चेत्सुदुराचारो भजते मामनन्यभाक् | साधुरेव स मन्तव्यः सम्यग्व्यवसितो हि सः ||९-३०||" </br>
+Translate: "9.30 Even the most sinful, if he worship Me with his whole heart, shalt be considered righteous, for he is treading the right path." </br>
 
 # Prefs
 
