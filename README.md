@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | एवमुक्त्वा ततो राजन्महायोगेश्वरो हरिः | दर्शयामास पार्थाय परमं रूपमैश्वरम् ||११-९||" </br>
-Translate: "11.9 Sanjaya continued: "Having thus spoken, O King, the Lord Shri Krishna, the Almighty Prince of Wisdom, showed to Arjuna the Supreme Form of the Great God." </br>
+"श्रीभगवानुवाच | प्रकाशं च प्रवृत्तिं च मोहमेव च पाण्डव | न द्वेष्टि सम्प्रवृत्तानि न निवृत्तानि काङ्क्षति ||१४-२२||" </br>
+Translate: "14.22 Lord Shri Krishna replied: O Prince! He who shuns not the Quality which is present, and longs not for that which is absent;" </br>
 
 # Prefs
 
