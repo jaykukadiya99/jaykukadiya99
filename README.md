@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्वशुरान्सुहृदश्चैव सेनयोरुभयोरपि | तान्समीक्ष्य स कौन्तेयः सर्वान्बन्धूनवस्थितान् ||१-२७||" </br>
-Translate: "1.27 Fathers-in-law and benefactors, arrayed on both sides. Arjuna then gazed at all those kinsmen before him." </br>
+"यो मामजमनादिं च वेत्ति लोकमहेश्वरम् | असम्मूढः स मर्त्येषु सर्वपापैः प्रमुच्यते ||१०-३||" </br>
+Translate: "10.3 He who knows Me as the unborn, without beginning, the Lord of the universe, he, stripped of his delusion, becomes free from all conceivable sin." </br>
 
 # Prefs
 
