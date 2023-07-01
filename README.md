@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नासतो विद्यते भावो नाभावो विद्यते सतः | उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभिः ||२-१६||" </br>
-Translate: "2.16 That which is not, shall never be; that which is, shall never cease to be. To the wise, these truths are self-evident." </br>
+"अव्यक्तोऽयमचिन्त्योऽयमविकार्योऽयमुच्यते | तस्मादेवं विदित्वैनं नानुशोचितुमर्हसि ||२-२५||" </br>
+Translate: "2.25 It is named the Unmanifest, the Unthinkable, the immutable. Wherefore, knowing the Spirit as such, thou hast no cause to grieve." </br>
 
 # Prefs
 
