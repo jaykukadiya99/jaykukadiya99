@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"असंयतात्मना योगो दुष्प्राप इति मे मतिः | वश्यात्मना तु यतता शक्योऽवाप्तुमुपायतः ||६-३६||" </br>
-Translate: "6.36 It is not possible to attain Self-Realisation if a man does not know how to control himself; but for him who, striving by proper means, learns such control, it is possible." </br>
+"अथवा योगिनामेव कुले भवति धीमताम् | एतद्धि दुर्लभतरं लोके जन्म यदीदृशम् ||६-४२||" </br>
+Translate: "6.42 Or, he may be born in the family of the wise sages, though a birth like this is, indeed, very difficult to obtain." </br>
 
 # Prefs
 
