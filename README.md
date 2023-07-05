@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एवं ज्ञात्वा कृतं कर्म पूर्वैरपि मुमुक्षुभिः | कुरु कर्मैव तस्मात्त्वं पूर्वैः पूर्वतरं कृतम् ||४-१५||" </br>
-Translate: "4.15 In the light of wisdom, our ancestors, who sought deliverance, performed their acts. Act thou also, as did our fathers of old." </br>
+"श्रीभगवानुवाच | मया प्रसन्नेन तवार्जुनेदं रूपं परं दर्शितमात्मयोगात् | तेजोमयं विश्वमनन्तमाद्यं यन्मे त्वदन्येन न दृष्टपूर्वम् ||११-४७||" </br>
+Translate: "11.47 Lord Shri Krishna replied: My beloved friend! It is only through My grace and power that thou hast been able to see this vision of splendour, the Universal, the Infinite, the Original. Never has it been seen by any but thee." </br>
 
 # Prefs
 
