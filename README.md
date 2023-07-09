@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आयुःसत्त्वबलारोग्यसुखप्रीतिविवर्धनाः | रस्याः स्निग्धाः स्थिरा हृद्या आहाराः सात्त्विकप्रियाः ||१७-८||" </br>
-Translate: "17.8 The foods that prolong life and increase purity, vigour, health, cheerfulness and happiness are those that are delicious, soothing, substantial and agreeable. These are loved by the Pure." </br>
+"राजन्संस्मृत्य संस्मृत्य संवादमिममद्भुतम् | केशवार्जुनयोः पुण्यं हृष्यामि च मुहुर्मुहुः ||१८-७६||" </br>
+Translate: "18.76 O King! The more I think of that marvellous and holy discourse, the more I lose myself in joy." </br>
 
 # Prefs
 
