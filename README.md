@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षिताम् | उवाच पार्थ पश्यैतान्समवेतान्कुरूनिति ||१-२५||" </br>
-Translate: "1.25 Whither Bheeshma and Drona had led all the rulers of the earth, and spoke thus: O Arjuna! Behold these members of the family of Kuru assembled." </br>
+"तस्मान्नार्हा वयं हन्तुं धार्तराष्ट्रान्स्वबान्धवान् | स्वजनं हि कथं हत्वा सुखिनः स्याम माधव ||१-३७||" </br>
+Translate: "1.37 We are worthy of a nobler feat than to slaughter our relatives - the sons of Dhritarashtra; for, my Lord, how can we be happy of we kill our kinsmen?" </br>
 
 # Prefs
 
