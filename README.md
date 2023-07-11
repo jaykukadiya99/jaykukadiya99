@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"त्वमक्षरं परमं वेदितव्यं त्वमस्य विश्वस्य परं निधानम् | त्वमव्ययः शाश्वतधर्मगोप्ता सनातनस्त्वं पुरुषो मतो मे ||११-१८||" </br>
-Translate: "11.18 Imperishable art Thou, the Sole One worthy to be known, the priceless Treasure-house of the universe, the immortal Guardian of the Life Eternal, the Spirit Everlasting." </br>
+"असंयतात्मना योगो दुष्प्राप इति मे मतिः | वश्यात्मना तु यतता शक्योऽवाप्तुमुपायतः ||६-३६||" </br>
+Translate: "6.36 It is not possible to attain Self-Realisation if a man does not know how to control himself; but for him who, striving by proper means, learns such control, it is possible." </br>
 
 # Prefs
 
