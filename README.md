@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अन्नाद्भवन्ति भूतानि पर्जन्यादन्नसम्भवः | यज्ञाद्भवति पर्जन्यो यज्ञः कर्मसमुद्भवः ||३-१४||" </br>
-Translate: "3.14 All creatures are the product of food, food is the product of rain, rain comes by sacrifice, and sacrifice is the noblest form of action." </br>
+"अर्जुन उवाच | मदनुग्रहाय परमं गुह्यमध्यात्मसंज्ञितम् | यत्त्वयोक्तं वचस्तेन मोहोऽयं विगतो मम ||११-१||" </br>
+Translate: "11.1 "Arjuna said: My Lord! Thy words concerning the Supreme Secret of Self, given for my blessing, have dispelled the illusions which surrounded me." </br>
 
 # Prefs
 
