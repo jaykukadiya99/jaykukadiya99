@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रुद्रादित्या वसवो ये च साध्या विश्वेऽश्विनौ मरुतश्चोष्मपाश्च | गन्धर्वयक्षासुरसिद्धसङ्घा वीक्षन्ते त्वां विस्मिताश्चैव सर्वे ||११-२२||" </br>
-Translate: "11.22 The Vital Forces, the Major stars, Fire, Earth, Air, Sky, Sun, Heaven, Moon and Planets; the Angels, the Guardians of the Universe, the divine Healers, the Winds, the Fathers, the Heavenly Singers; and hosts of Mammon-worshippers, demons as well as saints, are amazed." </br>
+"जितात्मनः प्रशान्तस्य परमात्मा समाहितः | शीतोष्णसुखदुःखेषु तथा मानापमानयोः ||६-७||" </br>
+Translate: "6.7 The Self of him who is self-controlled, and has attained peace is equally unmoved by heat or cold, pleasure or pain, honour or dishonour." </br>
 
 # Prefs
 
