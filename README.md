@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ध्यायतो विषयान्पुंसः सङ्गस्तेषूपजायते | सङ्गात्सञ्जायते कामः कामात्क्रोधोऽभिजायते ||२-६२||" </br>
-Translate: "2.62 When a man dwells on the objects of sense, he creates an attraction for them; attraction develops into desire, and desire breeds anger." </br>
+"कृपया परयाविष्टो विषीदन्निदमब्रवीत् | अर्जुन उवाच | दृष्ट्वेमं स्वजनं कृष्ण युयुत्सुं समुपस्थितम् ||१-२८||" </br>
+Translate: "1.28 And his heart melted with pity and sadly he spoke: O my Lord! When I see all these, my own people, thirsting for battle," </br>
 
 # Prefs
 
