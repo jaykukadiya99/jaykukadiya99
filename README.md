@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आख्याहि मे को भवानुग्ररूपो नमोऽस्तु ते देववर प्रसीद | विज्ञातुमिच्छामि भवन्तमाद्यं न हि प्रजानामि तव प्रवृत्तिम् ||११-३१||" </br>
-Translate: "11.31 Tell me then who Thou art, that wearest this dreadful Form? I bow before Thee, O Mighty One! Have mercy, I pray, and let me see Thee as Thou wert at first. I do not know what Thou intendest." </br>
+"अव्यक्तं व्यक्तिमापन्नं मन्यन्ते मामबुद्धयः | परं भावमजानन्तो ममाव्ययमनुत्तमम् ||७-२४||" </br>
+Translate: "7.24 The ignorant think of Me, who am the Unmanifested Spirit, as if I were really in human form. They do not understand that My Superior Nature is changeless and most excellent." </br>
 
 # Prefs
 
