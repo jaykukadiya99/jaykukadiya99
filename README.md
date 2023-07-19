@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"लभन्ते ब्रह्मनिर्वाणमृषयः क्षीणकल्मषाः | छिन्नद्वैधा यतात्मानः सर्वभूतहिते रताः ||५-२५||" </br>
-Translate: "5.25 Sages whose sins have been washed away, whose sense of separateness has vanished, who have subdued themselves, and seek only the welfare of all, come to the Eternal Spirit." </br>
+"द्यावापृथिव्योरिदमन्तरं हि व्याप्तं त्वयैकेन दिशश्च सर्वाः | दृष्ट्वाद्भुतं रूपमुग्रं तवेदं लोकत्रयं प्रव्यथितं महात्मन् ||११-२०||" </br>
+Translate: "11.20 Alone thou fillest all the quarters of the sky, earth and heaven, and the regions between. O Almighty Lord! Seeing Thy marvellous and awe-inspiring Form, the spheres tremble with fear." </br>
 
 # Prefs
 
