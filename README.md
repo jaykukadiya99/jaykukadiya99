@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"योत्स्यमानानवेक्षेऽहं य एतेऽत्र समागताः | धार्तराष्ट्रस्य दुर्बुद्धेर्युद्धे प्रियचिकीर्षवः ||१-२३||" </br>
-Translate: "1.23 And gaze over this array of soldiers, eager to please the sinful sons of Dhritarashtra."" </br>
+"मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु | मामेवैष्यसि सत्यं ते प्रतिजाने प्रियोऽसि मे ||१८-६५||" </br>
+Translate: "18.65 Dedicate thyself to Me, worship Me, sacrifice all for Me, prostrate thyself before Me, and to Me thou shalt surely come. Truly do I pledge thee; thou art My own beloved." </br>
 
 # Prefs
 
