@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यद्यदाचरति श्रेष्ठस्तत्तदेवेतरो जनः | स यत्प्रमाणं कुरुते लोकस्तदनुवर्तते ||३-२१||" </br>
-Translate: "3.21 For whatever a great man does, others imitate. People conform to the standard which he has set." </br>
+"आसुरीं योनिमापन्ना मूढा जन्मनि जन्मनि | मामप्राप्यैव कौन्तेय ततो यान्त्यधमां गतिम् ||१६-२०||" </br>
+Translate: "16.20 So reborn, they spend life after life, enveloped in delusion. And they never reach Me, O Prince, but degenerate into still lower forms of life." </br>
 
 # Prefs
 
