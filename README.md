@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नान्तोऽस्ति मम दिव्यानां विभूतीनां परन्तप | एष तूद्देशतः प्रोक्तो विभूतेर्विस्तरो मया ||१०-४०||" </br>
-Translate: "10.40 O Arjuna! The aspects of My divine life are endless. I have mentioned but a few by way of illustration." </br>
+"सहयज्ञाः प्रजाः सृष्ट्वा पुरोवाच प्रजापतिः | अनेन प्रसविष्यध्वमेष वोऽस्त्विष्टकामधुक् ||३-१०||" </br>
+Translate: "3.10 In the beginning, when God created all beings by the sacrifice of Himself, He said unto them: Through sacrifice you can procreate, and it shall satisfy all your desires." </br>
 
 # Prefs
 
