@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्रोपरमते चित्तं निरुद्धं योगसेवया | यत्र चैवात्मनात्मानं पश्यन्नात्मनि तुष्यति ||६-२०||" </br>
-Translate: "6.20 There, where the whole nature is seen in the light of the Self, where the man abides within his Self and is satisfied there, its functions restrained by its union with the Divine, the mind finds rest." </br>
+"श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला | समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ||२-५३||" </br>
+Translate: "2.53 When the intellect, bewildered by the multiplicity of holy scripts, stands unperturbed in blissful contemplation of the Infinite, then hast thou attained Spirituality." </br>
 
 # Prefs
 
