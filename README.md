@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतद्योनीनि भूतानि सर्वाणीत्युपधारय | अहं कृत्स्नस्य जगतः प्रभवः प्रलयस्तथा ||७-६||" </br>
-Translate: "7.6 It is the womb of all being; for I am He by Whom the worlds were created and shall be dissolved." </br>
+"सर्वस्य चाहं हृदि सन्निविष्टो मत्तः स्मृतिर्ज्ञानमपोहनञ्च | वेदैश्च सर्वैरहमेव वेद्यो वेदान्तकृद्वेदविदेव चाहम् ||१५-१५||" </br>
+Translate: "15.15 I am enthroned in the hearts of all; memory, wisdom and discrimination owe their origins to Me. I am He Who is to be realised in the scriptures; I inspire their wisdom and I know their truth." </br>
 
 # Prefs
 
