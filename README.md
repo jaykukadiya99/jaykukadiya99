@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वमेतदृतं मन्ये यन्मां वदसि केशव | न हि ते भगवन्व्यक्तिं विदुर्देवा न दानवाः ||१०-१४||" </br>
-Translate: "10.14 I believe in what Thou hast said, my Lord! For neither the godly not the godless comprehend Thy manifestation." </br>
+"ये त्वेतदभ्यसूयन्तो नानुतिष्ठन्ति मे मतम् | सर्वज्ञानविमूढांस्तान्विद्धि नष्टानचेतसः ||३-३२||" </br>
+Translate: "3.32 But they who ridicule My word and do not keep it, are ignorant, devoid of wisdom and blind. They seek but their own destruction." </br>
 
 # Prefs
 
