@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स्वभावजेन कौन्तेय निबद्धः स्वेन कर्मणा | कर्तुं नेच्छसि यन्मोहात्करिष्यस्यवशोपि तत् ||१८-६०||" </br>
-Translate: "18.60 O Arjuna! Thy duty binds thee. From thine own nature has it arisen, and that which in thy delusion thou desire not to do, that very thing thou shalt do. Thou art helpless." </br>
+"आदित्यानामहं विष्णुर्ज्योतिषां रविरंशुमान् | मरीचिर्मरुतामस्मि नक्षत्राणामहं शशी ||१०-२१||" </br>
+Translate: "10.21 Of all the creative Powers I am the Creator, of luminaries the Sun; the Whirlwind among the winds, and the Moon among planets." </br>
 
 # Prefs
 
