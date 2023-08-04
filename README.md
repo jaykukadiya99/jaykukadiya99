@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आसुरीं योनिमापन्ना मूढा जन्मनि जन्मनि | मामप्राप्यैव कौन्तेय ततो यान्त्यधमां गतिम् ||१६-२०||" </br>
-Translate: "16.20 So reborn, they spend life after life, enveloped in delusion. And they never reach Me, O Prince, but degenerate into still lower forms of life." </br>
+"गुरूनहत्वा हि महानुभावान् श्रेयो भोक्तुं भैक्ष्यमपीह लोके | हत्वार्थकामांस्तु गुरूनिहैव भुञ्जीय भोगान् रुधिरप्रदिग्धान् ||२-५||" </br>
+Translate: "2.5 Rather would I content myself with a beggar's crust that kill these teachers of mine, these precious noble souls! To slay these masters who are my benefactors would be to stain the sweetness of life's pleasures with their blood." </br>
 
 # Prefs
 
