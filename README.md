@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रद्धावाननसूयश्च शृणुयादपि यो नरः | सोऽपि मुक्तः शुभाँल्लोकान्प्राप्नुयात्पुण्यकर्मणाम् ||१८-७१||" </br>
-Translate: "18.71 Yea, he who listens to it with faith and without doubt, even he, freed from evil, shalt rise to the worlds which the virtuous attain through righteous deeds." </br>
+"वृष्णीनां वासुदेवोऽस्मि पाण्डवानां धनञ्जयः | मुनीनामप्यहं व्यासः कवीनामुशना कविः ||१०-३७||" </br>
+Translate: "10.37 I am Shri Krishna among the Vishnu-clan and Arjuna among the Pandavas; of the saints I am Vyasa, and I am Shukracharya among the sages." </br>
 
 # Prefs
 
