@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न तदस्ति पृथिव्यां वा दिवि देवेषु वा पुनः | सत्त्वं प्रकृतिजैर्मुक्तं यदेभिः स्यात्त्रिभिर्गुणैः ||१८-४०||" </br>
-Translate: "18.40 There is nothing anywhere on earth or in the higher worlds which is free from the three Qualities - for they are born of Nature." </br>
+"असंयतात्मना योगो दुष्प्राप इति मे मतिः | वश्यात्मना तु यतता शक्योऽवाप्तुमुपायतः ||६-३६||" </br>
+Translate: "6.36 It is not possible to attain Self-Realisation if a man does not know how to control himself; but for him who, striving by proper means, learns such control, it is possible." </br>
 
 # Prefs
 
