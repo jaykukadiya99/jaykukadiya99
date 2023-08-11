@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदृच्छया चोपपन्नं स्वर्गद्वारमपावृतम् | सुखिनः क्षत्रियाः पार्थ लभन्ते युद्धमीदृशम् ||२-३२||" </br>
-Translate: "2.32 Blessed are the soldiers who find their opportunity. This opportunity has opened for thee the gates of heaven." </br>
+"नान्यं गुणेभ्यः कर्तारं यदा द्रष्टानुपश्यति | गुणेभ्यश्च परं वेत्ति मद्भावं सोऽधिगच्छति ||१४-१९||" </br>
+Translate: "14.19 As soon as man understands that it is only the Qualities which act and nothing else, and perceives That which is beyond, he attains My divine nature." </br>
 
 # Prefs
 
