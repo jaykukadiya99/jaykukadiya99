@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मूढग्राहेणात्मनो यत्पीडया क्रियते तपः | परस्योत्सादनार्थं वा तत्तामसमुदाहृतम् ||१७-१९||" </br>
-Translate: "17.19 Austerity done under delusion, and accompanied with sorcery or torture to oneself or another, may be assumed to spring from Ignorance." </br>
+"उपद्रष्टानुमन्ता च भर्ता भोक्ता महेश्वरः | परमात्मेति चाप्युक्तो देहेऽस्मिन्पुरुषः परः ||१३-२३||" </br>
+Translate: "13.23 Thus in the body of man dwells the Supreme God; He who sees and permits, upholds and enjoys, the Highest God and the Highest Self." </br>
 
 # Prefs
 
