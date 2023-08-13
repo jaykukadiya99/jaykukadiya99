@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तेषां सततयुक्तानां भजतां प्रीतिपूर्वकम् | ददामि बुद्धियोगं तं येन मामुपयान्ति ते ||१०-१०||" </br>
-Translate: "10.10 To those who are always devout and who worship Me with love, I give the power of discrimination, which leads them to Me." </br>
+"कामक्रोधवियुक्तानां यतीनां यतचेतसाम् | अभितो ब्रह्मनिर्वाणं वर्तते विदितात्मनाम् ||५-२६||" </br>
+Translate: "5.26 Saints who know their Selves, who control their minds, and feel neither desire nor anger, find Eternal Bliss everywhere." </br>
 
 # Prefs
 
