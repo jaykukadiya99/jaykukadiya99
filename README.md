@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"काममाश्रित्य दुष्पूरं दम्भमानमदान्विताः | मोहाद्गृहीत्वासद्ग्राहान्प्रवर्तन्तेऽशुचिव्रताः ||१६-१०||" </br>
-Translate: "16.10 Giving themselves up to insatiable passions, hypocritical, self-sufficient and arrogant, cherishing false conception founded on delusion, they work only to carry out their own unholy purposes." </br>
+"यदा भूतपृथग्भावमेकस्थमनुपश्यति | तत एव च विस्तारं ब्रह्म सम्पद्यते तदा ||१३-३१||" </br>
+Translate: "13.31 He who sees the diverse forms of life all rooted in One, and growing forth from Him, he shall indeed find the Absolute." </br>
 
 # Prefs
 
