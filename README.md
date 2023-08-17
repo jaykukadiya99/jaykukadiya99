@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यो यो यां यां तनुं भक्तः श्रद्धयार्चितुमिच्छति | तस्य तस्याचलां श्रद्धां तामेव विदधाम्यहम् ||७-२१||" </br>
-Translate: "7.21 But whatever the form of worship, if the devotee have faith, then upon his faith in that worship do I set My own seal." </br>
+"श्रीभगवानुवाच | प्रजहाति यदा कामान्सर्वान्पार्थ मनोगतान् | आत्मन्येवात्मना तुष्टः स्थितप्रज्ञस्तदोच्यते ||२-५५||" </br>
+Translate: "2.55 Lord Shri Krishna replied: When a man has given up the desires of his heart and is satisfied with the Self alone, be sure that he has reached the highest state." </br>
 
 # Prefs
 
