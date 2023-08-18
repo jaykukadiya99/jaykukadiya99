@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भोक्तारं यज्ञतपसां सर्वलोकमहेश्वरम् | सुहृदं सर्वभूतानां ज्ञात्वा मां शान्तिमृच्छति ||५-२९||" </br>
-Translate: "5.29 Knowing me as Him who gladly receives all offerings of austerity and sacrifice, as the Might Ruler of all the Worlds and the Friend of all beings, he passes to Eternal Peace."" </br>
+"आब्रह्मभुवनाल्लोकाः पुनरावर्तिनोऽर्जुन | मामुपेत्य तु कौन्तेय पुनर्जन्म न विद्यते ||८-१६||" </br>
+Translate: "8.16 The worlds, with the whole realm of creation, come and go; but, O Arjuna, whoso comes to Me, for him there is nor rebirth." </br>
 
 # Prefs
 
