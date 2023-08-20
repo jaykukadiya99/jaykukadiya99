@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अविभक्तं च भूतेषु विभक्तमिव च स्थितम् | भूतभर्तृ च तज्ज्ञेयं ग्रसिष्णु प्रभविष्णु च ||१३-१७||" </br>
-Translate: "13.17 In all beings undivided, yet living in division, It is the upholder of all, Creator and Destroyer alike;" </br>
+"श्रद्धावाँल्लभते ज्ञानं तत्परः संयतेन्द्रियः | ज्ञानं लब्ध्वा परां शान्तिमचिरेणाधिगच्छति ||४-३९||" </br>
+Translate: "4.39 He who is full of faith attains wisdom, and he too who can control his senses, having attained that wisdom, he shall ere long attain Supreme Peace." </br>
 
 # Prefs
 
