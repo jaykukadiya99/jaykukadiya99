@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः | सुखेन ब्रह्मसंस्पर्शमत्यन्तं सुखमश्नुते ||६-२८||" </br>
-Translate: "6.28 Thus, free from sin, abiding always in the Eternal, the saint enjoys without effort the Bliss which flows from realisation of the Infinite." </br>
+"त्यक्त्वा कर्मफलासङ्गं नित्यतृप्तो निराश्रयः | कर्मण्यभिप्रवृत्तोऽपि नैव किञ्चित्करोति सः ||४-२०||" </br>
+Translate: "4.20 Having surrendered all claim to the results of his actions, always contented and independent, in reality he does nothing, even though he is apparently acting." </br>
 
 # Prefs
 
