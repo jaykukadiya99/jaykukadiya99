@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ऊर्ध्वं गच्छन्ति सत्त्वस्था मध्ये तिष्ठन्ति राजसाः | जघन्यगुणवृत्तिस्था अधो गच्छन्ति तामसाः ||१४-१८||" </br>
-Translate: "14.18 When Purity is in the ascendant, the man evolves; when Passion, he neither evolves nor degenerates; when Ignorance, he is lost." </br>
+"सर्वस्य चाहं हृदि सन्निविष्टो मत्तः स्मृतिर्ज्ञानमपोहनञ्च | वेदैश्च सर्वैरहमेव वेद्यो वेदान्तकृद्वेदविदेव चाहम् ||१५-१५||" </br>
+Translate: "15.15 I am enthroned in the hearts of all; memory, wisdom and discrimination owe their origins to Me. I am He Who is to be realised in the scriptures; I inspire their wisdom and I know their truth." </br>
 
 # Prefs
 
