@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मनुष्याणां सहस्रेषु कश्चिद्यतति सिद्धये | यततामपि सिद्धानां कश्चिन्मां वेत्ति तत्त्वतः ||७-३||" </br>
-Translate: "7.3 Among thousands of men scarcely one strives for perfection, and even amongst those who gain occult powers, perchance but one knows me in truth." </br>
+"अमी च त्वां धृतराष्ट्रस्य पुत्राः सर्वे सहैवावनिपालसङ्घैः | भीष्मो द्रोणः सूतपुत्रस्तथासौ सहास्मदीयैरपि योधमुख्यैः ||११-२६||" </br>
+Translate: "11.26 All these sons of Dhritarashtra, with the hosts of princes, Bheeshma, Drona and Karna, as well as the other warrior chiefs belonging to our side;" </br>
 
 # Prefs
 
