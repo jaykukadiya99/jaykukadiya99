@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु | मामेवैष्यसि सत्यं ते प्रतिजाने प्रियोऽसि मे ||१८-६५||" </br>
-Translate: "18.65 Dedicate thyself to Me, worship Me, sacrifice all for Me, prostrate thyself before Me, and to Me thou shalt surely come. Truly do I pledge thee; thou art My own beloved." </br>
+"द्वौ भूतसर्गौ लोकेऽस्मिन्दैव आसुर एव च | दैवो विस्तरशः प्रोक्त आसुरं पार्थ मे शृणु ||१६-६||" </br>
+Translate: "16.6 All beings are of two classes: Godly and godless. The Godly I have described; I will now describe the other." </br>
 
 # Prefs
 
