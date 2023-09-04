@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इति गुह्यतमं शास्त्रमिदमुक्तं मयानघ | एतद्बुद्ध्वा बुद्धिमान्स्यात्कृतकृत्यश्च भारत ||१५-२०||" </br>
-Translate: "15.20 Thus, O Sinless One, I have revealed to thee this most mystic knowledge. He who understands gains wisdom and attains the consummation of life."" </br>
+"प्रकृतेः क्रियमाणानि गुणैः कर्माणि सर्वशः | अहङ्कारविमूढात्मा कर्ताहमिति मन्यते ||३-२७||" </br>
+Translate: "3.27 Action is the product of the Qualities inherent in Nature. It is only the ignorant man who, misled by personal egotism, says: I am the doer.'" </br>
 
 # Prefs
 
