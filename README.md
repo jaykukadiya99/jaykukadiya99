@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इति ते ज्ञानमाख्यातं गुह्याद्गुह्यतरं मया | विमृश्यैतदशेषेण यथेच्छसि तथा कुरु ||१८-६३||" </br>
-Translate: "18.63 Thus have I revealed to thee the Truth, the Mystery of mysteries. Having thought it over, thou art free to act as thou wilt." </br>
+"एवमेतद्यथात्थ त्वमात्मानं परमेश्वर | द्रष्टुमिच्छामि ते रूपमैश्वरं पुरुषोत्तम ||११-३||" </br>
+Translate: "11.3 I believe all as Thou hast declared it. I long now to have a vision of thy Divine Form, O Thou Most High!" </br>
 
 # Prefs
 
