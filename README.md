@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा विनियतं चित्तमात्मन्येवावतिष्ठते | निःस्पृहः सर्वकामेभ्यो युक्त इत्युच्यते तदा ||६-१८||" </br>
-Translate: "6.18 When the mind, completely controlled, is centered in the Self, and free from all earthly desires, then is the man truly spiritual." </br>
+"यदहंकारमाश्रित्य न योत्स्य इति मन्यसे | मिथ्यैष व्यवसायस्ते प्रकृतिस्त्वां नियोक्ष्यति ||१८-५९||" </br>
+Translate: "18.59 If thou in thy vanity thinkest of avoiding this fight, thy will shall not be fulfilled, for Nature herself will compel thee." </br>
 
 # Prefs
 
