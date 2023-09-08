@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रकृतेर्गुणसम्मूढाः सज्जन्ते गुणकर्मसु | तानकृत्स्नविदो मन्दान्कृत्स्नविन्न विचालयेत् ||३-२९||" </br>
-Translate: "3.29 Those who do not understand the Qualities are interested in the act. Still, the wise man who knows the truth should not disturb the mind of him who does not." </br>
+"साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः | एकमप्यास्थितः सम्यगुभयोर्विन्दते फलम् ||५-४||" </br>
+Translate: "5.4 Only the unenlightened speak of wisdom and right action as separate, not the wise. If any man knows one, he enjoys the fruit of both." </br>
 
 # Prefs
 
