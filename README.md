@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यच्चावहासार्थमसत्कृतोऽसि विहारशय्यासनभोजनेषु | एकोऽथवाप्यच्युत तत्समक्षं तत्क्षामये त्वामहमप्रमेयम् ||११-४२||" </br>
-Translate: "11.42 Whatever insult I have offered to Thee in jest, in sport or in repose, in conversation or at the banquet, alone or in a multitude, I ask Thy forgiveness for them all, O Thou Who art without an equal!" </br>
+"सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः | मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ||१८-५६||" </br>
+Translate: "18.56 Relying on Me in all his action and doing them for My sake, he attains, by My Grace, Eternal and Unchangeable Life." </br>
 
 # Prefs
 
