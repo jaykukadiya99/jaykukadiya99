@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दैवी ह्येषा गुणमयी मम माया दुरत्यया | मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते ||७-१४||" </br>
-Translate: "7.14 Verily, this Divine Illusion of Phenomenon manifesting itself in the Qualities is difficult to surmount. Only they who devote themselves to Me and to Me alone can accomplish it." </br>
+"नियतं सङ्गरहितमरागद्वेषतः कृतम् | अफलप्रेप्सुना कर्म यत्तत्सात्त्विकमुच्यते ||१८-२३||" </br>
+Translate: "18.23 An obligatory action done by one who is disinterested, who neither likes nor dislikes it, and gives no thought to the consequences that follow, such an action is Pure." </br>
 
 # Prefs
 
