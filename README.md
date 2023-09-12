@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"त्रैविद्या मां सोमपाः पूतपापा यज्ञैरिष्ट्वा स्वर्गतिं प्रार्थयन्ते | ते पुण्यमासाद्य सुरेन्द्रलोक- मश्नन्ति दिव्यान्दिवि देवभोगान् ||९-२०||" </br>
-Translate: "9.20 Those who are versed in the scriptures, who drink the mystic Soma-juice and are purified from sin, but who while worshipping Me with sacrifices pray that I will lead them to heaven; they reach the holy world where lives the Controller of the Powers of Nature, and they enjoy the feasts of Paradise." </br>
+"दैवी ह्येषा गुणमयी मम माया दुरत्यया | मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते ||७-१४||" </br>
+Translate: "7.14 Verily, this Divine Illusion of Phenomenon manifesting itself in the Qualities is difficult to surmount. Only they who devote themselves to Me and to Me alone can accomplish it." </br>
 
 # Prefs
 
