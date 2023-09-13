@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहमात्मा गुडाकेश सर्वभूताशयस्थितः | अहमादिश्च मध्यं च भूतानामन्त एव च ||१०-२०||" </br>
-Translate: "10.20 O Arjuna! I am the Self, seated in the hearts of all beings; I am the beginning and the life, and I am the end of them all." </br>
+"शरीरवाङ्मनोभिर्यत्कर्म प्रारभते नरः | न्याय्यं वा विपरीतं वा पञ्चैते तस्य हेतवः ||१८-१५||" </br>
+Translate: "18.15 Whatever action a man performs, whether by muscular effort or by speech or by thought, and whether it be right or wrong, these five are the essential causes." </br>
 
 # Prefs
 
