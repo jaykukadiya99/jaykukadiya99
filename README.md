@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रजसि प्रलयं गत्वा कर्मसङ्गिषु जायते | तथा प्रलीनस्तमसि मूढयोनिषु जायते ||१४-१५||" </br>
-Translate: "14.15 When Passion prevails, the soul is reborn among those who love activity; when Ignorance rules, it enters the wombs of the ignorant." </br>
+"सर्वाणीन्द्रियकर्माणि प्राणकर्माणि चापरे | आत्मसंयमयोगाग्नौ जुह्वति ज्ञानदीपिते ||४-२७||" </br>
+Translate: "4.27 Other again sacrifice their activities and their vitality in the Spiritual fire of self-abnegation, kindled by wisdom." </br>
 
 # Prefs
 
