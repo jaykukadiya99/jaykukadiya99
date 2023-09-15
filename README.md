@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वाणीन्द्रियकर्माणि प्राणकर्माणि चापरे | आत्मसंयमयोगाग्नौ जुह्वति ज्ञानदीपिते ||४-२७||" </br>
-Translate: "4.27 Other again sacrifice their activities and their vitality in the Spiritual fire of self-abnegation, kindled by wisdom." </br>
+"तमुवाच हृषीकेशः प्रहसन्निव भारत | सेनयोरुभयोर्मध्ये विषीदन्तमिदं वचः ||२-१०||" </br>
+Translate: "2.10 Thereupon the Lord, with a gracious smile, addressed him who was so much depressed in the midst of the two armies." </br>
 
 # Prefs
 
