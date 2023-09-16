@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"देहिनोऽस्मिन्यथा देहे कौमारं यौवनं जरा | तथा देहान्तरप्राप्तिर्धीरस्तत्र न मुह्यति ||२-१३||" </br>
-Translate: "2.13 As the soul experiences in this body infancy, youth and old age, so finally it passes into another. The wise have no delusion about this." </br>
+"येऽप्यन्यदेवता भक्ता यजन्ते श्रद्धयान्विताः | तेऽपि मामेव कौन्तेय यजन्त्यविधिपूर्वकम् ||९-२३||" </br>
+Translate: "9.23 Even those who worship the lesser Powers, if they do so with faith, they thereby worship Me, though not in the right way." </br>
 
 # Prefs
 
