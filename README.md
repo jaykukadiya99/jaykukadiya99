@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यज्ञशिष्टाशिनः सन्तो मुच्यन्ते सर्वकिल्बिषैः | भुञ्जते ते त्वघं पापा ये पचन्त्यात्मकारणात् ||३-१३||" </br>
-Translate: "3.13 The sages who enjoy the food that remains after the sacrifice is made are freed from all sin; but the selfish who spread their feast only for themselves feed on sin only." </br>
+"श्रीभगवानुवाच | मय्यासक्तमनाः पार्थ योगं युञ्जन्मदाश्रयः | असंशयं समग्रं मां यथा ज्ञास्यसि तच्छृणु ||७-१||" </br>
+Translate: "7.1 "Lord Shri Krishna said: Listen, O Arjuna! And I will tell thee how thou shalt know Me in my Full perfection, practising meditation with thy mind devoted to Me, and having Me for thy refuge." </br>
 
 # Prefs
 
