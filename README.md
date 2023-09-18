@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"व्यवसायात्मिका बुद्धिरेकेह कुरुनन्दन | बहुशाखा ह्यनन्ताश्च बुद्धयोऽव्यवसायिनाम् ||२-४१||" </br>
-Translate: "2.41 By its means, the straying intellect becomes steadied in the contemplation of one object only; whereas the minds of the irresolute stray into bypaths innumerable." </br>
+"ये त्वेतदभ्यसूयन्तो नानुतिष्ठन्ति मे मतम् | सर्वज्ञानविमूढांस्तान्विद्धि नष्टानचेतसः ||३-३२||" </br>
+Translate: "3.32 But they who ridicule My word and do not keep it, are ignorant, devoid of wisdom and blind. They seek but their own destruction." </br>
 
 # Prefs
 
