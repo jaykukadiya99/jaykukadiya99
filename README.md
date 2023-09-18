@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इदं ते नातपस्काय नाभक्ताय कदाचन | न चाशुश्रूषवे वाच्यं न च मां योऽभ्यसूयति ||१८-६७||" </br>
-Translate: "18.67 Speak not this to one who has not practised austerities, or to him who does not love, or who will not listen, or who mocks." </br>
+"कथं विद्यामहं योगिंस्त्वां सदा परिचिन्तयन् | केषु केषु च भावेषु चिन्त्योऽसि भगवन्मया ||१०-१७||" </br>
+Translate: "10.17 O Master! How shall I, by constant meditation, know Thee? My Lord! What are Thy various manifestations through which I am to mediate on Thee?" </br>
 
 # Prefs
 
