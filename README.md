@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ | समदुःखसुखं धीरं सोऽमृतत्वाय कल्पते ||२-१५||" </br>
-Translate: "2.15 The hero whose soul is unmoved by circumstance, who accepts pleasure and pain with equanimity, only he is fit for immortality." </br>
+"प्रकृतिं स्वामवष्टभ्य विसृजामि पुनः पुनः | भूतग्राममिमं कृत्स्नमवशं प्रकृतेर्वशात् ||९-८||" </br>
+Translate: "9.8 With the help of Nature, again and again I pour forth the whole multitude of beings, whether they will or no, for they are ruled by My Will." </br>
 
 # Prefs
 
