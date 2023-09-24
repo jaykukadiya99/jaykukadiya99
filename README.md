@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वद्वाराणि संयम्य मनो हृदि निरुध्य च | मूध्न्यार्धायात्मनः प्राणमास्थितो योगधारणाम् ||८-१२||" </br>
-Translate: "8.12 Closing the gates of the body, drawing the forces of his mind into the heart and by the power of meditation concentrating his vital energy in the brain;" </br>
+"अर्जुन उवाच | अपरं भवतो जन्म परं जन्म विवस्वतः | कथमेतद्विजानीयां त्वमादौ प्रोक्तवानिति ||४-४||" </br>
+Translate: "4.4 Arjuna asked: My Lord! Viwaswana was born before Thee; how then canst Thou have revealed it to him?" </br>
 
 # Prefs
 
