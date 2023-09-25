@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"युधामन्युश्च विक्रान्त उत्तमौजाश्च वीर्यवान् | सौभद्रो द्रौपदेयाश्च सर्व एव महारथाः ||१-६||" </br>
-Translate: "1.6 Yudhamanyu, Uttamouja, Soubhadra and the sons of Droupadi, famous men." </br>
+"श्रीभगवानुवाच | कुतस्त्वा कश्मलमिदं विषमे समुपस्थितम् | अनार्यजुष्टमस्वर्ग्यमकीर्तिकरमर्जुन ||२-२||" </br>
+Translate: "2.2 "The Lord said: My beloved friend! Why yield, just on the eve of battle, to this weakness which does no credit to those who call themselves Aryans, and only brings them infamy and bars against them the gates of heaven?" </br>
 
 # Prefs
 
