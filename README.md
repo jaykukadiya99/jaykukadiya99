@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यान्ति देवव्रता देवान्पितॄन्यान्ति पितृव्रताः | भूतानि यान्ति भूतेज्या यान्ति मद्याजिनोऽपि माम् ||९-२५||" </br>
-Translate: "9.25 The votaries of the lesser Powers go to them; the devotees of spirits go to them; they who worship the Powers of Darkness, to such Powers shall they go; and so, too, those who worship Me shall come to Me." </br>
+"धूमो रात्रिस्तथा कृष्णः षण्मासा दक्षिणायनम् | तत्र चान्द्रमसं ज्योतिर्योगी प्राप्य निवर्तते ||८-२५||" </br>
+Translate: "8.25 But if he departs in gloom, at night, during the fortnight of the waning moon and in the six months before the Southern solstice, then he reaches but lunar light and he will be born again." </br>
 
 # Prefs
 
