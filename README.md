@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दुःखमित्येव यत्कर्म कायक्लेशभयात्त्यजेत् | स कृत्वा राजसं त्यागं नैव त्यागफलं लभेत् ||१८-८||" </br>
-Translate: "18.8 To avoid an action through fear of physical suffering, because it is likely to be painful, is to act from passion, and the benefit of renunciation will not follow." </br>
+"ब्रह्मभूतः प्रसन्नात्मा न शोचति न काङ्क्षति | समः सर्वेषु भूतेषु मद्भक्तिं लभते पराम् ||१८-५४||" </br>
+Translate: "18.54 And when he becomes one with the Eternal, and his soul knows the bliss that belongs to the Self, he feels no desire and no regret, he regards all beings equally and enjoys the blessing of supreme devotion to Me." </br>
 
 # Prefs
 
