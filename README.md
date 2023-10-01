@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भूमिरापोऽनलो वायुः खं मनो बुद्धिरेव च | अहंकार इतीयं मे भिन्ना प्रकृतिरष्टधा ||७-४||" </br>
-Translate: "7.4 Earth, water, fire, air, ether, mind, intellect and personality; this is the eightfold division of My Manifested Nature." </br>
+"आरुरुक्षोर्मुनेर्योगं कर्म कारणमुच्यते | योगारूढस्य तस्यैव शमः कारणमुच्यते ||६-३||" </br>
+Translate: "6.3 For the sage who seeks the heights of spiritual meditation, practice is the only method, and when he has attained them, he must maintain himself there by continual self-control." </br>
 
 # Prefs
 
