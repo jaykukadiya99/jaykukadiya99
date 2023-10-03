@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सन्तुष्टः सततं योगी यतात्मा दृढनिश्चयः | मय्यर्पितमनोबुद्धिर्यो मद्भक्तः स मे प्रियः ||१२-१४||" </br>
-Translate: "12.14 Always contented, self-centred, self-controlled, resolute, with mind and reason dedicated to Me, such a devotee of Mine is My beloved." </br>
+"द्वौ भूतसर्गौ लोकेऽस्मिन्दैव आसुर एव च | दैवो विस्तरशः प्रोक्त आसुरं पार्थ मे शृणु ||१६-६||" </br>
+Translate: "16.6 All beings are of two classes: Godly and godless. The Godly I have described; I will now describe the other." </br>
 
 # Prefs
 
