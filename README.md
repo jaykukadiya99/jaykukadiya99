@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"देहिनोऽस्मिन्यथा देहे कौमारं यौवनं जरा | तथा देहान्तरप्राप्तिर्धीरस्तत्र न मुह्यति ||२-१३||" </br>
-Translate: "2.13 As the soul experiences in this body infancy, youth and old age, so finally it passes into another. The wise have no delusion about this." </br>
+"अहिंसा समता तुष्टिस्तपो दानं यशोऽयशः | भवन्ति भावा भूतानां मत्त एव पृथग्विधाः ||१०-५||" </br>
+Translate: "10.5 Harmlessness, equanimity, contentment, austerity, beneficence, fame and failure, all these, the characteristics of beings, spring from Me only." </br>
 
 # Prefs
 
