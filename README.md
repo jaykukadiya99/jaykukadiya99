@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदि मामप्रतीकारमशस्त्रं शस्त्रपाणयः | धार्तराष्ट्रा रणे हन्युस्तन्मे क्षेमतरं भवेत् ||१-४६||" </br>
-Translate: "1.46 If, on the contrary, the sons of Dhritarashtra, with weapons in their hand, should slay me, unarmed and unresisting, surely that would be better for my welfare!"" </br>
+"आवृतं ज्ञानमेतेन ज्ञानिनो नित्यवैरिणा | कामरूपेण कौन्तेय दुष्पूरेणानलेन च ||३-३९||" </br>
+Translate: "3.39 It is the wise man's constant enemy; it tarnishes the face of wisdom. It is as insatiable as a flame of fire." </br>
 
 # Prefs
 
