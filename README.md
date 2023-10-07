@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"परित्राणाय साधूनां विनाशाय च दुष्कृताम् | धर्मसंस्थापनार्थाय सम्भवामि युगे युगे ||४-८||" </br>
-Translate: "4.8 To protect the righteous, to destroy the wicked and to establish the kingdom of God, I am reborn from age to age." </br>
+"यद्यद्विभूतिमत्सत्त्वं श्रीमदूर्जितमेव वा | तत्तदेवावगच्छ त्वं मम तेजोंऽशसम्भवम् ||१०-४१||" </br>
+Translate: "10.41 Whatever is glorious, excellent, beautiful and mighty, be assured that it comes from a fragment of My splendour." </br>
 
 # Prefs
 
