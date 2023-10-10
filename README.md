@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यः सर्वत्रानभिस्नेहस्तत्तत्प्राप्य शुभाशुभम् | नाभिनन्दति न द्वेष्टि तस्य प्रज्ञा प्रतिष्ठिता ||२-५७||" </br>
-Translate: "2.57 He who wherever he goes is attached to no person and to no place by ties of flesh; who accepts good and evil alike, neither welcoming the one nor shrinking from the other - take him to be one who is merged in the Infinite." </br>
+"व्यासप्रसादाच्छ्रुतवानेतद्गुह्यमहं परम् | योगं योगेश्वरात्कृष्णात्साक्षात्कथयतः स्वयम् ||१८-७५||" </br>
+Translate: "18.75 Through the blessing of the sage Vyasa, I listened to this secret and noble science from the lips of its Master, the Lord Shri Krishna." </br>
 
 # Prefs
 
