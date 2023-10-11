@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"असत्यमप्रतिष्ठं ते जगदाहुरनीश्वरम् | अपरस्परसम्भूतं किमन्यत्कामहैतुकम् ||१६-८||" </br>
-Translate: "16.8 They say the universe is an accident with no purpose and no God. Life is created by sexual union, a product of lust and nothing else." </br>
+"यदा सत्त्वे प्रवृद्धे तु प्रलयं याति देहभृत् | तदोत्तमविदां लोकानमलान्प्रतिपद्यते ||१४-१४||" </br>
+Translate: "14.14 When Purity prevails, the soul on quitting the body passes on to the pure regions where live those who know the Highest." </br>
 
 # Prefs
 
