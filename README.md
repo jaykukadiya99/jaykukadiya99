@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | अक्षरं ब्रह्म परमं स्वभावोऽध्यात्ममुच्यते | भूतभावोद्भवकरो विसर्गः कर्मसंज्ञितः ||८-३||" </br>
-Translate: "8.3 The Lord Shri Krishna replied: The Supreme Spirit is the Highest Imperishable Self, and Its Nature is spiritual consciousness. The worlds have been created and are supported by an emanation from the Spirit which is called the Law." </br>
+"ज्ञानविज्ञानतृप्तात्मा कूटस्थो विजितेन्द्रियः | युक्त इत्युच्यते योगी समलोष्टाश्मकाञ्चनः ||६-८||" </br>
+Translate: "6.8 He who desires nothing but wisdom and spiritual insight, who has conquered his senses and who looks with the same eye upon a lump of earth, a stone or fine gold, is a real saint." </br>
 
 # Prefs
 
