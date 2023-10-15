@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नैते सृती पार्थ जानन्योगी मुह्यति कश्चन | तस्मात्सर्वेषु कालेषु योगयुक्तो भवार्जुन ||८-२७||" </br>
-Translate: "8.27 O Arjuna! The saint knowing these paths is not confused. Therefore meditate perpetually." </br>
+"अनन्याश्चिन्तयन्तो मां ये जनाः पर्युपासते | तेषां नित्याभियुक्तानां योगक्षेमं वहाम्यहम् ||९-२२||" </br>
+Translate: "9.22 But if a man will meditate on Me and Me alone, and will worship Me always and everywhere, I will take upon Myself the fulfillment of his aspiration, and I will safeguard whatsoever he shall attain." </br>
 
 # Prefs
 
