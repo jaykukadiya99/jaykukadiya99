@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदि मामप्रतीकारमशस्त्रं शस्त्रपाणयः | धार्तराष्ट्रा रणे हन्युस्तन्मे क्षेमतरं भवेत् ||१-४६||" </br>
-Translate: "1.46 If, on the contrary, the sons of Dhritarashtra, with weapons in their hand, should slay me, unarmed and unresisting, surely that would be better for my welfare!"" </br>
+"तस्य सञ्जनयन्हर्षं कुरुवृद्धः पितामहः | सिंहनादं विनद्योच्चैः शङ्खं दध्मौ प्रतापवान् ||१-१२||" </br>
+Translate: "1.12 Then to enliven his spirits, the brave Grandfather Bheeshma, eldest of the Kuru-clan, blew his conch, till it sounded like a lion's roar." </br>
 
 # Prefs
 
