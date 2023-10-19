@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यतो यतो निश्चरति मनश्चञ्चलमस्थिरम् | ततस्ततो नियम्यैतदात्मन्येव वशं नयेत् ||६-२६||" </br>
-Translate: "6.26 When the volatile and wavering mind would wander, let him restrain it and bring it again to its allegiance to the Self." </br>
+"कर्मणः सुकृतस्याहुः सात्त्विकं निर्मलं फलम् | रजसस्तु फलं दुःखमज्ञानं तमसः फलम् ||१४-१६||" </br>
+Translate: "14.16 They say the fruit of a meritorious action is spotless and full of purity; the outcome of Passion is misery, and of Ignorance darkness." </br>
 
 # Prefs
 
