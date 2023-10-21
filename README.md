@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनुबन्धं क्षयं हिंसामनपेक्ष्य च पौरुषम् | मोहादारभ्यते कर्म यत्तत्तामसमुच्यते ||१८-२५||" </br>
-Translate: "18.25 An action undertaken through delusion, and with no regard to the spiritual issues involved, or the real capacity of the doer, or to the injury which may follow, such an act may be assumed to be the product of Ignorance." </br>
+"इहैकस्थं जगत्कृत्स्नं पश्याद्य सचराचरम् | मम देहे गुडाकेश यच्चान्यद् द्रष्टुमिच्छसि ||११-७||" </br>
+Translate: "11.7 Here in Me living as one, O Arjuna, behold the whole universe, movable and immovable, and anything else that thou wouldst see!" </br>
 
 # Prefs
 
