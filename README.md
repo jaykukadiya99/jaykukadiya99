@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आहुस्त्वामृषयः सर्वे देवर्षिर्नारदस्तथा | असितो देवलो व्यासः स्वयं चैव ब्रवीषि मे ||१०-१३||" </br>
-Translate: "10.13 So have said the seers and the divine sage Narada; as well as Asita, Devala and Vyasa; and Thou Thyself also sayest it." </br>
+"त्रिभिर्गुणमयैर्भावैरेभिः सर्वमिदं जगत् | मोहितं नाभिजानाति मामेभ्यः परमव्ययम् ||७-१३||" </br>
+Translate: "7.13 The inhabitants of the world, misled by those natures which the Qualities have engendered, know not that I am higher than them all, and that I do not change." </br>
 
 # Prefs
 
