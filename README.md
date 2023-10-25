@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आढ्योऽभिजनवानस्मि कोऽन्योऽस्ति सदृशो मया | यक्ष्ये दास्यामि मोदिष्य इत्यज्ञानविमोहिताः ||१६-१५||" </br>
-Translate: "16.15 I am rich, I am well-bred; who is there to compare with me? I will sacrifice, I will give, I will pay - and I will enjoy. Thus blinded by Ignorance," </br>
+"मामुपेत्य पुनर्जन्म दुःखालयमशाश्वतम् | नाप्नुवन्ति महात्मानः संसिद्धिं परमां गताः ||८-१५||" </br>
+Translate: "8.15 Coming thus unto Me, these great souls go no more to the misery and death of earthly life, for they have gained perfection." </br>
 
 # Prefs
 
