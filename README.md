@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अव्यक्तोऽक्षर इत्युक्तस्तमाहुः परमां गतिम् | यं प्राप्य न निवर्तन्ते तद्धाम परमं मम ||८-२१||" </br>
-Translate: "8.21 The wise say that the Unmanifest and Indestructible is the highest goal of all; when once That is reached, there is no return. That is My Blessed Home." </br>
+"श्रीभगवानुवाच | हन्त ते कथयिष्यामि दिव्या ह्यात्मविभूतयः | प्राधान्यतः कुरुश्रेष्ठ नास्त्यन्तो विस्तरस्य मे ||१०-१९||" </br>
+Translate: "10.19 Lord Shri Krishna replied: So be it, My beloved fried! I will unfold to thee some of the chief aspects of My glory. Of its full extent there is no end." </br>
 
 # Prefs
 
