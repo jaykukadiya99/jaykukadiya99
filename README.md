@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बीजं मां सर्वभूतानां विद्धि पार्थ सनातनम् | बुद्धिर्बुद्धिमतामस्मि तेजस्तेजस्विनामहम् ||७-१०||" </br>
-Translate: "7.10 Know, O Arjuna, that I am the eternal Seed of being; I am the Intelligence of the intelligent, the Splendour of the resplendent." </br>
+"यातयामं गतरसं पूति पर्युषितं च यत् | उच्छिष्टमपि चामेध्यं भोजनं तामसप्रियम् ||१७-१०||" </br>
+Translate: "17.10 The Ignorant love food which is stale, not nourishing, putrid and corrupt, the leavings of others and unclean." </br>
 
 # Prefs
 
