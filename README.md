@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ | ततो युद्धाय युज्यस्व नैवं पापमवाप्स्यसि ||२-३८||" </br>
-Translate: "2.38 Look upon pleasure and pain, victory and defeat, with an equal eye. Make ready for the combat, and thou shalt commit no sin." </br>
+"सत्त्वानुरूपा सर्वस्य श्रद्धा भवति भारत | श्रद्धामयोऽयं पुरुषो यो यच्छ्रद्धः स एव सः ||१७-३||" </br>
+Translate: "17.3 The faith of every man conforms to his nature. By nature he is full of faith. He is in fact what his faith makes him." </br>
 
 # Prefs
 
