@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सन्तुष्टः सततं योगी यतात्मा दृढनिश्चयः | मय्यर्पितमनोबुद्धिर्यो मद्भक्तः स मे प्रियः ||१२-१४||" </br>
-Translate: "12.14 Always contented, self-centred, self-controlled, resolute, with mind and reason dedicated to Me, such a devotee of Mine is My beloved." </br>
+"न हि ज्ञानेन सदृशं पवित्रमिह विद्यते | तत्स्वयं योगसंसिद्धः कालेनात्मनि विन्दति ||४-३८||" </br>
+Translate: "4.38 There is nothing in the world so purifying as wisdom; and he who is a perfect saint finds that at last in his own Self." </br>
 
 # Prefs
 
