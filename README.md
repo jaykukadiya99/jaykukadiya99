@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"विषयेन्द्रियसंयोगाद्यत्तदग्रेऽमृतोपमम् | परिणामे विषमिव तत्सुखं राजसं स्मृतम् ||१८-३८||" </br>
-Translate: "18.38 That which as first is like nectar, because the senses revel in their objects, but in the end acts like poison - that pleasure arises from Passion." </br>
+"श्रीभगवानुवाच | पार्थ नैवेह नामुत्र विनाशस्तस्य विद्यते | न हि कल्याणकृत्कश्चिद् दुर्गतिं तात गच्छति ||६-४०||" </br>
+Translate: "6.40 Lord Shri Krishna replied: My beloved child! There is no destruction for him, either in this world or in the next. No evil fate awaits him who treads the path of righteousness." </br>
 
 # Prefs
 
