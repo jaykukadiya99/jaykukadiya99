@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स्वधर्ममपि चावेक्ष्य न विकम्पितुमर्हसि | धर्म्याद्धि युद्धाच्छ्रेयोऽन्यत्क्षत्रियस्य न विद्यते ||२-३१||" </br>
-Translate: "2.31 Thou must look at thy duty. Nothing can be more welcome to a soldier than a righteous war. Therefore to waver in this resolve is unworthy, O Arjuna!" </br>
+"ऋषिभिर्बहुधा गीतं छन्दोभिर्विविधैः पृथक् | ब्रह्मसूत्रपदैश्चैव हेतुमद्भिर्विनिश्चितैः ||१३-५||" </br>
+Translate: "13.5 Seers have sung of It in various ways, in many hymns and sacred Vedic songs, weighty in thought and convincing in argument." </br>
 
 # Prefs
 
