@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वभूतस्थमात्मानं सर्वभूतानि चात्मनि | ईक्षते योगयुक्तात्मा सर्वत्र समदर्शनः ||६-२९||" </br>
-Translate: "6.29 He who experiences the unity of life sees his own Self in all beings, and all beings in his own Self, and looks on everything with an impartial eye;" </br>
+"महर्षीणां भृगुरहं गिरामस्म्येकमक्षरम् | यज्ञानां जपयज्ञोऽस्मि स्थावराणां हिमालयः ||१०-२५||" </br>
+Translate: "10.25 Of the great seers I am Bhrigu, of words I am Om, of offerings I am the silent prayer, among things immovable I am the Himalayas." </br>
 
 # Prefs
 
