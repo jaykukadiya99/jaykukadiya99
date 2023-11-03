@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्र काले त्वनावृत्तिमावृत्तिं चैव योगिनः | प्रयाता यान्ति तं कालं वक्ष्यामि भरतर्षभ ||८-२३||" </br>
-Translate: "8.23 *Now I will tell thee, O Arjuna, of the times at which, if the mystics go forth, they do not return, and at which they go forth only to return." </br>
+"नैव किञ्चित्करोमीति युक्तो मन्येत तत्त्ववित् | पश्यञ्शृण्वन्स्पृशञ्जिघ्रन्नश्नन्गच्छन्स्वपञ्श्वसन् ||५-८||" </br>
+Translate: "5.8 Though the saint sees, hears, touches, smells, eats, moves, sleeps and breathes, yet he knows the Truth, and he knows that it is not he who acts." </br>
 
 # Prefs
 
