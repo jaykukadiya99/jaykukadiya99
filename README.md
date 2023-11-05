@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ममैवांशो जीवलोके जीवभूतः सनातनः | मनःषष्ठानीन्द्रियाणि प्रकृतिस्थानि कर्षति ||१५-७||" </br>
-Translate: "15.7 It is only a very small part of My Eternal Self, which is the life of the universe, drawing round itself the six senses, the mind the last, which have their source in Nature." </br>
+"सत्त्वं रजस्तम इति गुणाः प्रकृतिसम्भवाः | निबध्नन्ति महाबाहो देहे देहिनमव्ययम् ||१४-५||" </br>
+Translate: "14.5 Purity, Passion and Ignorance are the Qualities which the Law of nature bringeth forth. They fetter the free Spirit in all beings." </br>
 
 # Prefs
 
