@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मनः प्रसादः सौम्यत्वं मौनमात्मविनिग्रहः | भावसंशुद्धिरित्येतत्तपो मानसमुच्यते ||१७-१६||" </br>
-Translate: "17.16 Serenity, kindness, silence, self-control and purity - this is austerity of mind." </br>
+"त्रैगुण्यविषया वेदा निस्त्रैगुण्यो भवार्जुन | निर्द्वन्द्वो नित्यसत्त्वस्थो निर्योगक्षेम आत्मवान् ||२-४५||" </br>
+Translate: "2.45 The Vedic Scriptures tell of the three constituents of life - the Qualities. Rise above all of them, O Arjuna, above all the pairs of opposing sensations; be steady in truth, free from worldly anxieties and centered in the Self." </br>
 
 # Prefs
 
