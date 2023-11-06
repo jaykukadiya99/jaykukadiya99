@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कार्यकारणकर्तृत्वे हेतुः प्रकृतिरुच्यते | पुरुषः सुखदुःखानां भोक्तृत्वे हेतुरुच्यते ||१३-२१||" </br>
-Translate: "13.21 Nature is the Law which generates cause and effect; God is the source of the enjoyment of all pleasure and pain." </br>
+"बुद्धिर्ज्ञानमसम्मोहः क्षमा सत्यं दमः शमः | सुखं दुःखं भवोऽभावो भयं चाभयमेव च ||१०-४||" </br>
+Translate: "10.4 Intelligence, wisdom, non-illusion, forgiveness, truth, self-control, calmness, pleasure, pain, birth, death, fear and fearlessness;" </br>
 
 # Prefs
 
