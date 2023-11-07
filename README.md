@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यो मामेवमसम्मूढो जानाति पुरुषोत्तमम् | स सर्वविद्भजति मां सर्वभावेन भारत ||१५-१९||" </br>
-Translate: "15.19 He who with unclouded vision sees Me as the Lord-God, knows all there is to be known, and always shall worship Me with his whole heart." </br>
+"अपर्याप्तं तदस्माकं बलं भीष्माभिरक्षितम् | पर्याप्तं त्विदमेतेषां बलं भीमाभिरक्षितम् ||१-१०||" </br>
+Translate: "1.10 Yet our army seems the weaker, though commanded by Bheeshma; their army seems the stronger, though commanded by Bheema." </br>
 
 # Prefs
 
