@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दंष्ट्राकरालानि च ते मुखानि दृष्ट्वैव कालानलसन्निभानि | दिशो न जाने न लभे च शर्म प्रसीद देवेश जगन्निवास ||११-२५||" </br>
-Translate: "11.25 When I see Thy mouths with their fearful jaws like glowing fires at the dissolution of creation, I lose all sense of place; I find no rest. Be merciful, O Lord in whom this universe abides!" </br>
+"यस्य सर्वे समारम्भाः कामसङ्कल्पवर्जिताः | ज्ञानाग्निदग्धकर्माणं तमाहुः पण्डितं बुधाः ||४-१९||" </br>
+Translate: "4.19 The wise call him a sage, for whatever he undertakes is free from the motive of desire, and his deeds are purified by the fire of Wisdom." </br>
 
 # Prefs
 
