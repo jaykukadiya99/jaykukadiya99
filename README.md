@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अपर्याप्तं तदस्माकं बलं भीष्माभिरक्षितम् | पर्याप्तं त्विदमेतेषां बलं भीमाभिरक्षितम् ||१-१०||" </br>
-Translate: "1.10 Yet our army seems the weaker, though commanded by Bheeshma; their army seems the stronger, though commanded by Bheema." </br>
+"दंष्ट्राकरालानि च ते मुखानि दृष्ट्वैव कालानलसन्निभानि | दिशो न जाने न लभे च शर्म प्रसीद देवेश जगन्निवास ||११-२५||" </br>
+Translate: "11.25 When I see Thy mouths with their fearful jaws like glowing fires at the dissolution of creation, I lose all sense of place; I find no rest. Be merciful, O Lord in whom this universe abides!" </br>
 
 # Prefs
 
