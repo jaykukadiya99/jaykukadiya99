@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | प्रकृतिं पुरुषं चैव क्षेत्रं क्षेत्रज्ञमेव च | एतद्वेदितुमिच्छामि ज्ञानं ज्ञेयं च केशव ||१३-१||" </br>
-Translate: "13.1 "Arjuna asked: My Lord! Who is God and what is Nature; what is Matter and what is the Self; what is that they call Wisdom, and what is it that is worth knowing? I wish to have this explained." </br>
+"व्यासप्रसादाच्छ्रुतवानेतद्गुह्यमहं परम् | योगं योगेश्वरात्कृष्णात्साक्षात्कथयतः स्वयम् ||१८-७५||" </br>
+Translate: "18.75 Through the blessing of the sage Vyasa, I listened to this secret and noble science from the lips of its Master, the Lord Shri Krishna." </br>
 
 # Prefs
 
