@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते | एतैर्विमोहयत्येष ज्ञानमावृत्य देहिनम् ||३-४०||" </br>
-Translate: "3.40 It works through the senses, the mind and the reason; and with their help destroys wisdom and confounds the soul." </br>
+"अहं हि सर्वयज्ञानां भोक्ता च प्रभुरेव च | न तु मामभिजानन्ति तत्त्वेनातश्च्यवन्ति ते ||९-२४||" </br>
+Translate: "9.24 I am the willing recipient of sacrifice, and I am its true Lord. But these do not know me in truth, and so they sink back." </br>
 
 # Prefs
 
