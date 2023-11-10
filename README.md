@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तमेव शरणं गच्छ सर्वभावेन भारत | तत्प्रसादात्परां शान्तिं स्थानं प्राप्स्यसि शाश्वतम् ||१८-६२||" </br>
-Translate: "18.62 With all thy strength, fly unto Him and surrender thyself, and by His grace shalt thou attain Supreme Peace and reach the Eternal Home." </br>
+"आशापाशशतैर्बद्धाः कामक्रोधपरायणाः | ईहन्ते कामभोगार्थमन्यायेनार्थसञ्चयान् ||१६-१२||" </br>
+Translate: "16.12 Caught in the toils of a hundred vain hopes, the slaves of passion and wrath, they accumulate hoards of unjust wealth, only to pander to their sensual desire." </br>
 
 # Prefs
 
