@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदि ह्यहं न वर्तेयं जातु कर्मण्यतन्द्रितः | मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ||३-२३||" </br>
-Translate: "3.23 For were I not to act without ceasing, O prince, people would be glad to do likewise." </br>
+"योगयुक्तो विशुद्धात्मा विजितात्मा जितेन्द्रियः | सर्वभूतात्मभूतात्मा कुर्वन्नपि न लिप्यते ||५-७||" </br>
+Translate: "5.7 He who is spiritual, who is pure, who has overcome his senses and his personal self, who has realised his highest Self as the Self of all, such a one, even though he acts, is not bound by his acts." </br>
 
 # Prefs
 
