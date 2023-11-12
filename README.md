@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रूपं महत्ते बहुवक्त्रनेत्रं महाबाहो बहुबाहूरुपादम् | बहूदरं बहुदंष्ट्राकरालं दृष्ट्वा लोकाः प्रव्यथितास्तथाहम् ||११-२३||" </br>
-Translate: "11.23 Seeing Thy stupendous Form, O Most Mighty, with its myriad faces, its innumerable eyes and limbs and terrible jaws, I myself and all the worlds are overwhelmed with awe." </br>
+"मानापमानयोस्तुल्यस्तुल्यो मित्रारिपक्षयोः | सर्वारम्भपरित्यागी गुणातीतः स उच्यते ||१४-२५||" </br>
+Translate: "14.25 Who looks equally upon honour and dishonour, loves friends and foes alike, abandons all initiative, such is he who transcends the Qualities." </br>
 
 # Prefs
 
