@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्षयन्तः शरीरस्थं भूतग्राममचेतसः | मां चैवान्तःशरीरस्थं तान्विद्ध्यासुरनिश्चयान् ||१७-६||" </br>
-Translate: "17.6 They are ignorant. They torment the organs of the body; and they harass Me also, Who lives within. Know that they are devoted to evil." </br>
+"नासतो विद्यते भावो नाभावो विद्यते सतः | उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभिः ||२-१६||" </br>
+Translate: "2.16 That which is not, shall never be; that which is, shall never cease to be. To the wise, these truths are self-evident." </br>
 
 # Prefs
 
