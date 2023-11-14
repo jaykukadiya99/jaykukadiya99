@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् | प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम् ||९-१८||" </br>
-Translate: "9.18 I am the Goal, the Sustainer, the Lord, the Witness, the Home, the Shelter, the Lover and the Origin; I am Life and Death; I am the Fountain and the Seed Imperishable." </br>
+"तमस्त्वज्ञानजं विद्धि मोहनं सर्वदेहिनाम् | प्रमादालस्यनिद्राभिस्तन्निबध्नाति भारत ||१४-८||" </br>
+Translate: "14.8 But Ignorance, the product of darkness, stupefies the senses in all embodied beings, binding them by chains of folly, indolence and lethargy." </br>
 
 # Prefs
 
