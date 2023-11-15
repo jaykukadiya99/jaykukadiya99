@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यथा दीपो निवातस्थो नेङ्गते सोपमा स्मृता | योगिनो यतचित्तस्य युञ्जतो योगमात्मनः ||६-१९||" </br>
-Translate: "6.19 The wise man who has conquered his mind and is absorbed in the Self is as a lamp which does not flicker, since it stands sheltered from every wind." </br>
+"कायेन मनसा बुद्ध्या केवलैरिन्द्रियैरपि | योगिनः कर्म कुर्वन्ति सङ्गं त्यक्त्वात्मशुद्धये ||५-११||" </br>
+Translate: "5.11 The sage performs his action dispassionately, using his body, mind and intellect, and even his senses, always as a means of purification." </br>
 
 # Prefs
 
