@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | नष्टो मोहः स्मृतिर्लब्धा त्वत्प्रसादान्मयाच्युत | स्थितोऽस्मि गतसन्देहः करिष्ये वचनं तव ||१८-७३||" </br>
-Translate: "18.73 Arjuna replied: My Lord! O Immutable One! My delusion has fled. By Thy Grace, O Changeless One, the light has dawned. My doubts are gone, and I stand before Thee ready to do Thy will."" </br>
+"यो न हृष्यति न द्वेष्टि न शोचति न काङ्क्षति | शुभाशुभपरित्यागी भक्तिमान्यः स मे प्रियः ||१२-१७||" </br>
+Translate: "12.17 He who is beyond joy and hate, who neither laments nor desires, to whom good and evil fortunes are the same, such a one is My beloved." </br>
 
 # Prefs
 
