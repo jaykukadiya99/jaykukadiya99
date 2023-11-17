@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ऊर्ध्वं गच्छन्ति सत्त्वस्था मध्ये तिष्ठन्ति राजसाः | जघन्यगुणवृत्तिस्था अधो गच्छन्ति तामसाः ||१४-१८||" </br>
-Translate: "14.18 When Purity is in the ascendant, the man evolves; when Passion, he neither evolves nor degenerates; when Ignorance, he is lost." </br>
+"रागी कर्मफलप्रेप्सुर्लुब्धो हिंसात्मकोऽशुचिः | हर्षशोकान्वितः कर्ता राजसः परिकीर्तितः ||१८-२७||" </br>
+Translate: "18.27 In him who is impulsive, greedy, looking for reward, violent, impure, torn between joy and sorrow,it may be assumed that in him Passion is predominant." </br>
 
 # Prefs
 
