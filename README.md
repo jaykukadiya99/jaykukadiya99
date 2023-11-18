@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"संन्यासस्तु महाबाहो दुःखमाप्तुमयोगतः | योगयुक्तो मुनिर्ब्रह्म नचिरेणाधिगच्छति ||५-६||" </br>
-Translate: "5.6 Without concentration, O Mighty Man, renunciation is difficult. But the sage who is always meditating on the Divine, before long shall attain the Absolute." </br>
+"तत्क्षेत्रं यच्च यादृक्च यद्विकारि यतश्च यत् | स च यो यत्प्रभावश्च तत्समासेन मे शृणु ||१३-४||" </br>
+Translate: "13.4 What is called Matter, of what it is composed, whence it came, and why it changes, what the Self is, and what Its power - this I will now briefly set forth." </br>
 
 # Prefs
 
