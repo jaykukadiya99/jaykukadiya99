@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दिव्यमाल्याम्बरधरं दिव्यगन्धानुलेपनम् | सर्वाश्चर्यमयं देवमनन्तं विश्वतोमुखम् ||११-११||" </br>
-Translate: "11.11 Crowned with heavenly garlands, clothed in shining garments, anointed with divine unctions, He showed Himself as the Resplendent One, Marvellous, Boundless, Omnipresent." </br>
+"भूतग्रामः स एवायं भूत्वा भूत्वा प्रलीयते | रात्र्यागमेऽवशः पार्थ प्रभवत्यहरागमे ||८-१९||" </br>
+Translate: "8.19 The same multitude of beings, which have lived on earth so often, all are dissolved as the night of the universe approaches, to issue forth anew when morning breaks. Thus is it ordained." </br>
 
 # Prefs
 
