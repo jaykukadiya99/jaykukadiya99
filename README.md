@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भूतग्रामः स एवायं भूत्वा भूत्वा प्रलीयते | रात्र्यागमेऽवशः पार्थ प्रभवत्यहरागमे ||८-१९||" </br>
-Translate: "8.19 The same multitude of beings, which have lived on earth so often, all are dissolved as the night of the universe approaches, to issue forth anew when morning breaks. Thus is it ordained." </br>
+"असंयतात्मना योगो दुष्प्राप इति मे मतिः | वश्यात्मना तु यतता शक्योऽवाप्तुमुपायतः ||६-३६||" </br>
+Translate: "6.36 It is not possible to attain Self-Realisation if a man does not know how to control himself; but for him who, striving by proper means, learns such control, it is possible." </br>
 
 # Prefs
 
