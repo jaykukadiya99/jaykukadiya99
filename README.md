@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"देवद्विजगुरुप्राज्ञपूजनं शौचमार्जवम् | ब्रह्मचर्यमहिंसा च शारीरं तप उच्यते ||१७-१४||" </br>
-Translate: "17.14 Worship of God and the Master; respect for the preacher and the philosopher; purity, rectitude, continence and harmlessness - all this is physical austerity." </br>
+"मा ते व्यथा मा च विमूढभावो दृष्ट्वा रूपं घोरमीदृङ्ममेदम् | व्यपेतभीः प्रीतमनाः पुनस्त्वं तदेव मे रूपमिदं प्रपश्य ||११-४९||" </br>
+Translate: "11.49 Be not afraid or bewildered by the terrible vision. Put away thy fear and, with joyful mind, see Me once again in My usual Form."" </br>
 
 # Prefs
 
