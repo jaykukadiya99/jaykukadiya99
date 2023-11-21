@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ध्यानेनात्मनि पश्यन्ति केचिदात्मानमात्मना | अन्ये साङ्ख्येन योगेन कर्मयोगेन चापरे ||१३-२५||" </br>
-Translate: "13.25 Some realise the Supreme by meditating, by its aid, on the Self within, others by pure reason, others by right action." </br>
+"ब्रह्मण्याधाय कर्माणि सङ्गं त्यक्त्वा करोति यः | लिप्यते न स पापेन पद्मपत्रमिवाम्भसा ||५-१०||" </br>
+Translate: "5.10 He who dedicates his actions to the Spirit, without any personal attachment to them, he is no more tainted by sin than the water lily is wetted by water." </br>
 
 # Prefs
 
