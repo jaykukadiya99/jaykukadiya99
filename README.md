@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्रव्ययज्ञास्तपोयज्ञा योगयज्ञास्तथापरे | स्वाध्यायज्ञानयज्ञाश्च यतयः संशितव्रताः ||४-२८||" </br>
-Translate: "4.28 And yet others offer as their sacrifice wealth, austerities and meditation. Monks wedded to their vows renounce their scriptural learning and even their spiritual powers." </br>
+"सर्गाणामादिरन्तश्च मध्यं चैवाहमर्जुन | अध्यात्मविद्या विद्यानां वादः प्रवदतामहम् ||१०-३२||" </br>
+Translate: "10.32 I am the Beginning, the Middle and the End in creation; among sciences, I am the science of Spirituality; I am the Discussion among disputants." </br>
 
 # Prefs
 
