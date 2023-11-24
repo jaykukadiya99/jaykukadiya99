@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शुक्लकृष्णे गती ह्येते जगतः शाश्वते मते | एकया यात्यनावृत्तिमन्ययावर्तते पुनः ||८-२६||" </br>
-Translate: "8.26 These bright and dark paths out of the world have always existed. Whoso takes the former, returns not; he who chooses the latter, returns.*" </br>
+"सुखं त्विदानीं त्रिविधं शृणु मे भरतर्षभ | अभ्यासाद्रमते यत्र दुःखान्तं च निगच्छति ||१८-३६||" </br>
+Translate: "18.36 Hear further the three kinds of pleasure. That which increases day after day delivers one from misery," </br>
 
 # Prefs
 
