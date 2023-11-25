@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यातयामं गतरसं पूति पर्युषितं च यत् | उच्छिष्टमपि चामेध्यं भोजनं तामसप्रियम् ||१७-१०||" </br>
-Translate: "17.10 The Ignorant love food which is stale, not nourishing, putrid and corrupt, the leavings of others and unclean." </br>
+"त्रैगुण्यविषया वेदा निस्त्रैगुण्यो भवार्जुन | निर्द्वन्द्वो नित्यसत्त्वस्थो निर्योगक्षेम आत्मवान् ||२-४५||" </br>
+Translate: "2.45 The Vedic Scriptures tell of the three constituents of life - the Qualities. Rise above all of them, O Arjuna, above all the pairs of opposing sensations; be steady in truth, free from worldly anxieties and centered in the Self." </br>
 
 # Prefs
 
