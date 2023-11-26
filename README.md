@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दातव्यमिति यद्दानं दीयतेऽनुपकारिणे | देशे काले च पात्रे च तद्दानं सात्त्विकं स्मृतम् ||१७-२०||" </br>
-Translate: "17.20 The gift which is given without thought of recompense, in the belief that it ought to be made, in a fit place, at an opportune time and to a deserving person - such a gift is Pure." </br>
+"पुरुषः प्रकृतिस्थो हि भुङ्क्ते प्रकृतिजान्गुणान् | कारणं गुणसङ्गोऽस्य सदसद्योनिजन्मसु ||१३-२२||" </br>
+Translate: "13.22 God dwelling in the heart of Nature experiences the Qualities which nature brings forth; and His affinity towards the Qualities is the reason for His living in a good or evil body." </br>
 
 # Prefs
 
