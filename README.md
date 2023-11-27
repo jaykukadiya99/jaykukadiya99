@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्त्वं रजस्तम इति गुणाः प्रकृतिसम्भवाः | निबध्नन्ति महाबाहो देहे देहिनमव्ययम् ||१४-५||" </br>
-Translate: "14.5 Purity, Passion and Ignorance are the Qualities which the Law of nature bringeth forth. They fetter the free Spirit in all beings." </br>
+"नास्ति बुद्धिरयुक्तस्य न चायुक्तस्य भावना | न चाभावयतः शान्तिरशान्तस्य कुतः सुखम् ||२-६६||" </br>
+Translate: "2.66 Right discrimination is not for him who cannot concentrate. Without concentration, there cannot be meditation; he who cannot meditate must not expect peace; and without peace, how can anyone expect happiness?" </br>
 
 # Prefs
 
