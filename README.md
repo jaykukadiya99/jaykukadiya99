@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रकृतेर्गुणसम्मूढाः सज्जन्ते गुणकर्मसु | तानकृत्स्नविदो मन्दान्कृत्स्नविन्न विचालयेत् ||३-२९||" </br>
-Translate: "3.29 Those who do not understand the Qualities are interested in the act. Still, the wise man who knows the truth should not disturb the mind of him who does not." </br>
+"यावत्सञ्जायते किञ्चित्सत्त्वं स्थावरजङ्गमम् | क्षेत्रक्षेत्रज्ञसंयोगात्तद्विद्धि भरतर्षभ ||१३-२७||" </br>
+Translate: "13.27 Wherever life is seen in things movable or immovable, it is the joint product of Matter and Spirit." </br>
 
 # Prefs
 
