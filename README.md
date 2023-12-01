@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बहिरन्तश्च भूतानामचरं चरमेव च | सूक्ष्मत्वात्तदविज्ञेयं दूरस्थं चान्तिके च तत् ||१३-१६||" </br>
-Translate: "13.16 It is within all beings, yet outside; motionless yet moving; too subtle to be perceived; far away yet always near." </br>
+"अजोऽपि सन्नव्ययात्मा भूतानामीश्वरोऽपि सन् | प्रकृतिं स्वामधिष्ठाय सम्भवाम्यात्ममायया ||४-६||" </br>
+Translate: "4.6 have no beginning. Though I am imperishable, as well as Lord of all that exists, yet by My own will and power do I manifest Myself." </br>
 
 # Prefs
 
