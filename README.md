@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भोक्तारं यज्ञतपसां सर्वलोकमहेश्वरम् | सुहृदं सर्वभूतानां ज्ञात्वा मां शान्तिमृच्छति ||५-२९||" </br>
-Translate: "5.29 Knowing me as Him who gladly receives all offerings of austerity and sacrifice, as the Might Ruler of all the Worlds and the Friend of all beings, he passes to Eternal Peace."" </br>
+"नाहं प्रकाशः सर्वस्य योगमायासमावृतः | मूढोऽयं नाभिजानाति लोको मामजमव्ययम् ||७-२५||" </br>
+Translate: "7.25 I am not visible to all, for I am enveloped by the illusion of Phenomenon. This deluded world does not know Me as the Unborn and the Imperishable." </br>
 
 # Prefs
 
