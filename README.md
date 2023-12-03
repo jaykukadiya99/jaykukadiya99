@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदक्षरं वेदविदो वदन्ति विशन्ति यद्यतयो वीतरागाः | यदिच्छन्तो ब्रह्मचर्यं चरन्ति तत्ते पदं संग्रहेण प्रवक्ष्ये ||८-११||" </br>
-Translate: "8.11 Now I will speak briefly of the imperishable goal, proclaimed by those versed in the scriptures, which the mystic attains when free from passion, and for which he is content to undergo the vow of continence." </br>
+"कार्यकारणकर्तृत्वे हेतुः प्रकृतिरुच्यते | पुरुषः सुखदुःखानां भोक्तृत्वे हेतुरुच्यते ||१३-२१||" </br>
+Translate: "13.21 Nature is the Law which generates cause and effect; God is the source of the enjoyment of all pleasure and pain." </br>
 
 # Prefs
 
