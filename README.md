@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अपर्याप्तं तदस्माकं बलं भीष्माभिरक्षितम् | पर्याप्तं त्विदमेतेषां बलं भीमाभिरक्षितम् ||१-१०||" </br>
-Translate: "1.10 Yet our army seems the weaker, though commanded by Bheeshma; their army seems the stronger, though commanded by Bheema." </br>
+"युञ्जन्नेवं सदात्मानं योगी नियतमानसः | शान्तिं निर्वाणपरमां मत्संस्थामधिगच्छति ||६-१५||" </br>
+Translate: "6.15 Thus keeping his mind always in communion with Me, and with his thoughts subdued, he shall attain that Peace which is mine and which will lead him to liberation at last." </br>
 
 # Prefs
 
