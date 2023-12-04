@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यस्य नाहंकृतो भावो बुद्धिर्यस्य न लिप्यते | हत्वाऽपि स इमाँल्लोकान्न हन्ति न निबध्यते ||१८-१७||" </br>
-Translate: "18.17 He who has no pride, and whose intellect is unalloyed by attachment, even though he kill these people, yet he does not kill them, and his act does not bind him." </br>
+"परस्तस्मात्तु भावोऽन्योऽव्यक्तोऽव्यक्तात्सनातनः | यः स सर्वेषु भूतेषु नश्यत्सु न विनश्यति ||८-२०||" </br>
+Translate: "8.20 In truth, therefore, there is the Eternal Unmanifest, which is beyond and above the Unmanifest Spirit of Creation, which is never destroyed when all these being perish." </br>
 
 # Prefs
 
