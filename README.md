@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रद्धया परया तप्तं तपस्तत्त्रिविधं नरैः | अफलाकाङ्क्षिभिर्युक्तैः सात्त्विकं परिचक्षते ||१७-१७||" </br>
-Translate: "17.17 These threefold austerities performed with faith, and without thought of reward, may truly be accounted Pure." </br>
+"यस्य नाहंकृतो भावो बुद्धिर्यस्य न लिप्यते | हत्वाऽपि स इमाँल्लोकान्न हन्ति न निबध्यते ||१८-१७||" </br>
+Translate: "18.17 He who has no pride, and whose intellect is unalloyed by attachment, even though he kill these people, yet he does not kill them, and his act does not bind him." </br>
 
 # Prefs
 
