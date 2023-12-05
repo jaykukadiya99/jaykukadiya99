@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्तु प्रत्युपकारार्थं फलमुद्दिश्य वा पुनः | दीयते च परिक्लिष्टं तद्दानं राजसं स्मृतम् ||१७-२१||" </br>
-Translate: "17.21 That which is given for the sake of the results it will produce, or with the hope of recompense,or grudgingly - that may truly be said to be the outcome of Passion." </br>
+"य एवं वेत्ति पुरुषं प्रकृतिं च गुणैः सह | सर्वथा वर्तमानोऽपि न स भूयोऽभिजायते ||१३-२४||" </br>
+Translate: "13.24 He who understands God and Nature along with her qualities, whatever be his condition in life, he comes not again to earth." </br>
 
 # Prefs
 
