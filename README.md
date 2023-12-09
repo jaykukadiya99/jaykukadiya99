@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रूपं महत्ते बहुवक्त्रनेत्रं महाबाहो बहुबाहूरुपादम् | बहूदरं बहुदंष्ट्राकरालं दृष्ट्वा लोकाः प्रव्यथितास्तथाहम् ||११-२३||" </br>
-Translate: "11.23 Seeing Thy stupendous Form, O Most Mighty, with its myriad faces, its innumerable eyes and limbs and terrible jaws, I myself and all the worlds are overwhelmed with awe." </br>
+"नाहं वेदैर्न तपसा न दानेन न चेज्यया | शक्य एवंविधो द्रष्टुं दृष्टवानसि मां यथा ||११-५३||" </br>
+Translate: "11.53 Not by study of the scriptures, or by austerities, not by gifts or sacrifices, is it possible to see Me as thou hast done." </br>
 
 # Prefs
 
