@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अव्यक्ताद् व्यक्तयः सर्वाः प्रभवन्त्यहरागमे | रात्र्यागमे प्रलीयन्ते तत्रैवाव्यक्तसंज्ञके ||८-१८||" </br>
-Translate: "8.18 At the dawning of that day all objects in manifestation stream forth from the Unmanifest, and when evening falls they are dissolved into It again." </br>
+"सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः | मनसैवेन्द्रियग्रामं विनियम्य समन्ततः ||६-२४||" </br>
+Translate: "6.24 Renouncing every desire which imagination can conceive, controlling the senses at every point by the power of mind;" </br>
 
 # Prefs
 
