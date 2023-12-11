@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कथं न ज्ञेयमस्माभिः पापादस्मान्निवर्तितुम् | कुलक्षयकृतं दोषं प्रपश्यद्भिर्जनार्दन ||१-३९||" </br>
-Translate: "1.39 Should not we, whose eyes are open, who consider it to be wrong to annihilate our house, turn away from so great a crime?" </br>
+"श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला | समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ||२-५३||" </br>
+Translate: "2.53 When the intellect, bewildered by the multiplicity of holy scripts, stands unperturbed in blissful contemplation of the Infinite, then hast thou attained Spirituality." </br>
 
 # Prefs
 
