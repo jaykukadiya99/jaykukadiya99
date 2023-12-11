@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वकर्माणि मनसा संन्यस्यास्ते सुखं वशी | नवद्वारे पुरे देही नैव कुर्वन्न कारयन् ||५-१३||" </br>
-Translate: "5.13 Mentally renouncing all actions, the self-controlled soul enjoys bliss in this body, the city of the nine gates, neither doing anything himself nor causing anything to be done." </br>
+"रागद्वेषविमुक्तैस्तु विषयानिन्द्रियैश्चरन् | (or वियुक्तैस्तु) आत्मवश्यैर्विधेयात्मा प्रसादमधिगच्छति ||२-६४||" </br>
+Translate: "2.64 But the self-controlled soul, who moves amongst sense objects, free from either attachment or repulsion, he wins eternal Peace." </br>
 
 # Prefs
 
