@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यतो यतो निश्चरति मनश्चञ्चलमस्थिरम् | ततस्ततो नियम्यैतदात्मन्येव वशं नयेत् ||६-२६||" </br>
-Translate: "6.26 When the volatile and wavering mind would wander, let him restrain it and bring it again to its allegiance to the Self." </br>
+"यतन्तो योगिनश्चैनं पश्यन्त्यात्मन्यवस्थितम् | यतन्तोऽप्यकृतात्मानो नैनं पश्यन्त्यचेतसः ||१५-११||" </br>
+Translate: "15.11 The saints with great effort find Him within themselves; but not the unintelligent, who in spite of every effort cannot control their minds." </br>
 
 # Prefs
 
