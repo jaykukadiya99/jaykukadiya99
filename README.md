@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्षेत्रज्ञं चापि मां विद्धि सर्वक्षेत्रेषु भारत | क्षेत्रक्षेत्रज्ञयोर्ज्ञानं यत्तज्ज्ञानं मतं मम ||१३-३||" </br>
-Translate: "13.3 I am the Omniscient self that abides in the playground of Matter; knowledge of Matter and of the all-knowing Self is wisdom." </br>
+"श्रीभगवानुवाच | काम एष क्रोध एष रजोगुणसमुद्भवः | महाशनो महापाप्मा विद्ध्येनमिह वैरिणम् ||३-३७||" </br>
+Translate: "3.37 Lord Shri Krishna: It is desire, it is aversion, born of passion. Desire consumes and corrupts everything. It is man's greatest enemy." </br>
 
 # Prefs
 
