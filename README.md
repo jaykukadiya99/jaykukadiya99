@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मणैव हि संसिद्धिमास्थिता जनकादयः | लोकसंग्रहमेवापि सम्पश्यन्कर्तुमर्हसि ||३-२०||" </br>
-Translate: "3.20 King Janaka and others attained perfection through action alone. Even for the sake of enlightening the world, it is thy duty to act;" </br>
+"सततं कीर्तयन्तो मां यतन्तश्च दृढव्रताः | नमस्यन्तश्च मां भक्त्या नित्ययुक्ता उपासते ||९-१४||" </br>
+Translate: "9.14 Always extolling Me, strenuous, firm in their vows, prostrating themselves before Me, they worship Me continually with concentrated devotion." </br>
 
 # Prefs
 
