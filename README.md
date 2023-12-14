@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"निराशीर्यतचित्तात्मा त्यक्तसर्वपरिग्रहः | शारीरं केवलं कर्म कुर्वन्नाप्नोति किल्बिषम् ||४-२१||" </br>
-Translate: "4.21 Expecting nothing, his mind and personality controlled, without greed, doing bodily actions only; though he acts, yet he remains untainted." </br>
+"अर्जुन उवाच | ज्यायसी चेत्कर्मणस्ते मता बुद्धिर्जनार्दन | तत्किं कर्मणि घोरे मां नियोजयसि केशव ||३-१||" </br>
+Translate: "3.1 "Arjuna questioned: My Lord! If Wisdom is above action, why dost Thou advise me to engage in this terrible fight?" </br>
 
 # Prefs
 
