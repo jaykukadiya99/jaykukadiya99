@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आयुधानामहं वज्रं धेनूनामस्मि कामधुक् | प्रजनश्चास्मि कन्दर्पः सर्पाणामस्मि वासुकिः ||१०-२८||" </br>
-Translate: "10.28 I am the Thunderbolt among weapons; of cows I am the Cow of Plenty, I am Passion in those who procreate, and I am the Cobra among serpents." </br>
+"आशापाशशतैर्बद्धाः कामक्रोधपरायणाः | ईहन्ते कामभोगार्थमन्यायेनार्थसञ्चयान् ||१६-१२||" </br>
+Translate: "16.12 Caught in the toils of a hundred vain hopes, the slaves of passion and wrath, they accumulate hoards of unjust wealth, only to pander to their sensual desire." </br>
 
 # Prefs
 
