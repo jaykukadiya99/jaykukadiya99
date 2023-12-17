@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्य सञ्जनयन्हर्षं कुरुवृद्धः पितामहः | सिंहनादं विनद्योच्चैः शङ्खं दध्मौ प्रतापवान् ||१-१२||" </br>
-Translate: "1.12 Then to enliven his spirits, the brave Grandfather Bheeshma, eldest of the Kuru-clan, blew his conch, till it sounded like a lion's roar." </br>
+"ये तु धर्म्यामृतमिदं यथोक्तं पर्युपासते | श्रद्दधाना मत्परमा भक्तास्तेऽतीव मे प्रियाः ||१२-२०||" </br>
+Translate: "12.20 Verily those who love the spiritual wisdom as I have taught, whose faith never fails, and who concentrate their whole nature on Me, they indeed are My most beloved."" </br>
 
 # Prefs
 
