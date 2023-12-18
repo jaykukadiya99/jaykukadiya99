@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | अशोच्यानन्वशोचस्त्वं प्रज्ञावादांश्च भाषसे | गतासूनगतासूंश्च नानुशोचन्ति पण्डिताः ||२-११||" </br>
-Translate: "2.11 Lord Shri Krishna said: Why grieve for those for whom no grief is due, and yet profess wisdom? The wise grieve neither for the dead nor the living." </br>
+"धूमो रात्रिस्तथा कृष्णः षण्मासा दक्षिणायनम् | तत्र चान्द्रमसं ज्योतिर्योगी प्राप्य निवर्तते ||८-२५||" </br>
+Translate: "8.25 But if he departs in gloom, at night, during the fortnight of the waning moon and in the six months before the Southern solstice, then he reaches but lunar light and he will be born again." </br>
 
 # Prefs
 
