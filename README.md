@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | स्थितप्रज्ञस्य का भाषा समाधिस्थस्य केशव | स्थितधीः किं प्रभाषेत किमासीत व्रजेत किम् ||२-५४||" </br>
-Translate: "2.54 Arjuna asked: My Lord! How can we recognise the saint who has attained Pure Intellect, who has reached this state of Bliss, and whose mind is steady? how does he talk, how does he live, and how does he act?" </br>
+"तस्मादोमित्युदाहृत्य यज्ञदानतपःक्रियाः | प्रवर्तन्ते विधानोक्ताः सततं ब्रह्मवादिनाम् ||१७-२४||" </br>
+Translate: "17.24 Therefore all acts of sacrifice, gifts and austerities, prescribed by the scriptures, are always begun by those who understand the Spirit with the word Om." </br>
 
 # Prefs
 
