@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बुद्धेर्भेदं धृतेश्चैव गुणतस्त्रिविधं शृणु | प्रोच्यमानमशेषेण पृथक्त्वेन धनञ्जय ||१८-२९||" </br>
-Translate: "18.29 Reason and conviction are threefold, according to the Quality which is dominant. I will explain them fully and severally, O Arjuna!" </br>
+"नाहं प्रकाशः सर्वस्य योगमायासमावृतः | मूढोऽयं नाभिजानाति लोको मामजमव्ययम् ||७-२५||" </br>
+Translate: "7.25 I am not visible to all, for I am enveloped by the illusion of Phenomenon. This deluded world does not know Me as the Unborn and the Imperishable." </br>
 
 # Prefs
 
