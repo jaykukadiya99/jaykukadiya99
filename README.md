@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वतः पाणिपादं तत्सर्वतोऽक्षिशिरोमुखम् | सर्वतः श्रुतिमल्लोके सर्वमावृत्य तिष्ठति ||१३-१४||" </br>
-Translate: "13.14 Everywhere are Its hands and Its feet; everywhere It has eyes that see, heads that think and mouths that speak; everywhere It listens; It dwells in all the worlds; It envelops them all." </br>
+"यथा प्रकाशयत्येकः कृत्स्नं लोकमिमं रविः | क्षेत्रं क्षेत्री तथा कृत्स्नं प्रकाशयति भारत ||१३-३४||" </br>
+Translate: "13.34 As the one Sun illuminates the whole earth, so the Lord illumines the whole universe." </br>
 
 # Prefs
 
