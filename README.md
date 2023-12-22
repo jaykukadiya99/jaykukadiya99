@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वेन्द्रियगुणाभासं सर्वेन्द्रियविवर्जितम् | असक्तं सर्वभृच्चैव निर्गुणं गुणभोक्तृ च ||१३-१५||" </br>
-Translate: "13.15 Beyond the senses, It yet shines through every sense perception. Bound to nothing, It yet sustains everything. Unaffected by the Qualities, It still enjoys them all." </br>
+"सीदन्ति मम गात्राणि मुखं च परिशुष्यति | वेपथुश्च शरीरे मे रोमहर्षश्च जायते ||१-२९||" </br>
+Translate: "1.29 My limbs fail me and my throat is parched, my body trembles and my hair stands on end." </br>
 
 # Prefs
 
