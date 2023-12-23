@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सीदन्ति मम गात्राणि मुखं च परिशुष्यति | वेपथुश्च शरीरे मे रोमहर्षश्च जायते ||१-२९||" </br>
-Translate: "1.29 My limbs fail me and my throat is parched, my body trembles and my hair stands on end." </br>
+"उद्धरेदात्मनात्मानं नात्मानमवसादयेत् | आत्मैव ह्यात्मनो बन्धुरात्मैव रिपुरात्मनः ||६-५||" </br>
+Translate: "6.5 Let him seek liberation by the help of his Highest Self, and let him never disgrace his own Self. For that Self is his only friend; yet it may also be his enemy." </br>
 
 # Prefs
 
