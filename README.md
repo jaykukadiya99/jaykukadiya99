@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नियतस्य तु संन्यासः कर्मणो नोपपद्यते | मोहात्तस्य परित्यागस्तामसः परिकीर्तितः ||१८-७||" </br>
-Translate: "18.7 It is not right to give up actions which are obligatory; and if they are misunderstood, it is the result of sheer ignorance." </br>
+"प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् | उपैति शान्तरजसं ब्रह्मभूतमकल्मषम् ||६-२७||" </br>
+Translate: "6.27 Supreme Bliss is the lot of the sage, whose mind attains Peace, whose passions subside, who is without sin, and who becomes one with the Absolute." </br>
 
 # Prefs
 
