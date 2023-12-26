@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रद्धया परया तप्तं तपस्तत्त्रिविधं नरैः | अफलाकाङ्क्षिभिर्युक्तैः सात्त्विकं परिचक्षते ||१७-१७||" </br>
-Translate: "17.17 These threefold austerities performed with faith, and without thought of reward, may truly be accounted Pure." </br>
+"सर्वकर्माणि मनसा संन्यस्यास्ते सुखं वशी | नवद्वारे पुरे देही नैव कुर्वन्न कारयन् ||५-१३||" </br>
+Translate: "5.13 Mentally renouncing all actions, the self-controlled soul enjoys bliss in this body, the city of the nine gates, neither doing anything himself nor causing anything to be done." </br>
 
 # Prefs
 
