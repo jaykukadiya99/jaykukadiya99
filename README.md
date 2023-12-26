@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तपाम्यहमहं वर्षं निगृह्णाम्युत्सृजामि च | अमृतं चैव मृत्युश्च सदसच्चाहमर्जुन ||९-१९||" </br>
-Translate: "9.19 I am the Heat of the Sun, I release and hold back the Rains. I am Death and Immortality; I am Being and Not-Being." </br>
+"स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः | प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ||५-२७||" </br>
+Translate: "5.27 Excluding external objects, his gaze fixed between the eyebrows, the inward and outward breathings passing equally through his nostrils;" </br>
 
 # Prefs
 
