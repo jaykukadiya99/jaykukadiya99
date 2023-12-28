@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ज्ञानेन तु तदज्ञानं येषां नाशितमात्मनः | तेषामादित्यवज्ज्ञानं प्रकाशयति तत्परम् ||५-१६||" </br>
-Translate: "5.16 Surely wisdom is like the sun, revealing the supreme truth to those whose ignorance is dispelled by the wisdom of the Self." </br>
+"सर्वमेतदृतं मन्ये यन्मां वदसि केशव | न हि ते भगवन्व्यक्तिं विदुर्देवा न दानवाः ||१०-१४||" </br>
+Translate: "10.14 I believe in what Thou hast said, my Lord! For neither the godly not the godless comprehend Thy manifestation." </br>
 
 # Prefs
 
