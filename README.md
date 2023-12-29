@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सङ्करो नरकायैव कुलघ्नानां कुलस्य च | पतन्ति पितरो ह्येषां लुप्तपिण्डोदकक्रियाः ||१-४२||" </br>
-Translate: "1.42 Promiscuity ruins both the family and those who defile it; while the souls of our ancestors droop, through lack of the funeral cakes and ablutions." </br>
+"तत्रैकस्थं जगत्कृत्स्नं प्रविभक्तमनेकधा | अपश्यद्देवदेवस्य शरीरे पाण्डवस्तदा ||११-१३||" </br>
+Translate: "11.13 In that vision Arjuna saw the universe, with its manifold shapes, all embraced in One, its Supreme Lord." </br>
 
 # Prefs
 
