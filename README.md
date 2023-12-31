@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"योगयुक्तो विशुद्धात्मा विजितात्मा जितेन्द्रियः | सर्वभूतात्मभूतात्मा कुर्वन्नपि न लिप्यते ||५-७||" </br>
-Translate: "5.7 He who is spiritual, who is pure, who has overcome his senses and his personal self, who has realised his highest Self as the Self of all, such a one, even though he acts, is not bound by his acts." </br>
+"अर्जुन उवाच | पश्यामि देवांस्तव देव देहे सर्वांस्तथा भूतविशेषसङ्घान् | ब्रह्माणमीशं कमलासनस्थ- मृषींश्च सर्वानुरगांश्च दिव्यान् ||११-१५||" </br>
+Translate: "11.15 Arjuna said: O almighty God! I see in Thee the powers of Nature, the various creatures of the world, the Progenitor on his lotus throne, the Sages and the shining angels." </br>
 
 # Prefs
 
