@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अश्वत्थः सर्ववृक्षाणां देवर्षीणां च नारदः | गन्धर्वाणां चित्ररथः सिद्धानां कपिलो मुनिः ||१०-२६||" </br>
-Translate: "10.26 Of trees I am the sacred Fig-tree, of the Divine Seers Narada, of the heavenly singers I am Chitraratha, their Leader, and of sages I am Kapila." </br>
+"योगयुक्तो विशुद्धात्मा विजितात्मा जितेन्द्रियः | सर्वभूतात्मभूतात्मा कुर्वन्नपि न लिप्यते ||५-७||" </br>
+Translate: "5.7 He who is spiritual, who is pure, who has overcome his senses and his personal self, who has realised his highest Self as the Self of all, such a one, even though he acts, is not bound by his acts." </br>
 
 # Prefs
 
