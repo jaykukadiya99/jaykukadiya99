@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अफलाङ्क्षिभिर्यज्ञो विधिदृष्टो य इज्यते | यष्टव्यमेवेति मनः समाधाय स सात्त्विकः ||१७-११||" </br>
-Translate: "17.11 Sacrifice is Pure when it is offered by one who does not covet the fruit thereof, when it is done according to the commands of scripture, and with implicit faith that the sacrifice is a duty." </br>
+"तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया | उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिनः ||४-३४||" </br>
+Translate: "4.34 This shalt thou learn by prostrating thyself at the Master's feet, by questioning Him and by serving Him. The wise who have realised the Truth will teach thee wisdom." </br>
 
 # Prefs
 
