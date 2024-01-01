@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रयत्नाद्यतमानस्तु योगी संशुद्धकिल्बिषः | अनेकजन्मसंसिद्धस्ततो याति परां गतिम् ||६-४५||" </br>
-Translate: "6.45 Then after many lives, the student of spirituality, who earnestly strives, and whose sins are absolved, attains perfection and reaches the Supreme." </br>
+"एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन | अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ||१-३५||" </br>
+Translate: "1.35 I would not kill them, even for three worlds; why then for this poor earth? It matters not if I myself am killed." </br>
 
 # Prefs
 
