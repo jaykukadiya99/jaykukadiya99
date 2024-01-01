@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः | निर्ममो निरहङ्कारः स शान्तिमधिगच्छति ||२-७१||" </br>
-Translate: "2.71 He attains Peace who, giving up desire, moves through the world without aspiration, possessing nothing which he can call his own, and free from pride." </br>
+"अवाच्यवादांश्च बहून्वदिष्यन्ति तवाहिताः | निन्दन्तस्तव सामर्थ्यं ततो दुःखतरं नु किम् ||२-३६||" </br>
+Translate: "2.36 Thine enemies will spread scandal and mock at thy courage. Can anything be more humiliating?" </br>
 
 # Prefs
 
