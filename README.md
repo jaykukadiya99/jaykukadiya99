@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन | ज्ञानाग्निः सर्वकर्माणि भस्मसात्कुरुते तथा ||४-३७||" </br>
-Translate: "4.37 As the kindled fire consumes the fuel, so, O Arjuna, in the flame of wisdom the embers of action are burnt to ashes." </br>
+"इन्द्रियार्थेषु वैराग्यमनहंकार एव च | जन्ममृत्युजराव्याधिदुःखदोषानुदर्शनम् ||१३-९||" </br>
+Translate: "13.9 Renunciation of the delights of sense, absence of pride, right understanding of the painful problem of birth and death, of age and sickness;" </br>
 
 # Prefs
 
