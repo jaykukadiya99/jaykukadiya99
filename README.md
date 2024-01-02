@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षिताम् | उवाच पार्थ पश्यैतान्समवेतान्कुरूनिति ||१-२५||" </br>
-Translate: "1.25 Whither Bheeshma and Drona had led all the rulers of the earth, and spoke thus: O Arjuna! Behold these members of the family of Kuru assembled." </br>
+"यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन | ज्ञानाग्निः सर्वकर्माणि भस्मसात्कुरुते तथा ||४-३७||" </br>
+Translate: "4.37 As the kindled fire consumes the fuel, so, O Arjuna, in the flame of wisdom the embers of action are burnt to ashes." </br>
 
 # Prefs
 
