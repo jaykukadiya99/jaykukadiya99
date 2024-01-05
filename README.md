@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | इत्यहं वासुदेवस्य पार्थस्य च महात्मनः | संवादमिममश्रौषमद्भुतं रोमहर्षणम् ||१८-७४||" </br>
-Translate: "18.74 Sanjaya told: "Thus have I heard this rare, wonderful and soul-stirring discourse of the Lord Shri Krishna and the great-souled Arjuna." </br>
+"एतां विभूतिं योगं च मम यो वेत्ति तत्त्वतः | सोऽविकम्पेन योगेन युज्यते नात्र संशयः ||१०-७||" </br>
+Translate: "10.7 He who rightly understands My manifested glory and My Creative Power, beyond doubt attains perfect peace." </br>
 
 # Prefs
 
