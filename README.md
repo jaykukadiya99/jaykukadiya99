@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | इत्यर्जुनं वासुदेवस्तथोक्त्वा स्वकं रूपं दर्शयामास भूयः | आश्वासयामास च भीतमेनं भूत्वा पुनः सौम्यवपुर्महात्मा ||११-५०||" </br>
-Translate: "11.50 Sanjaya continued: "Having thus spoken to Arjuna, Lord Shri Krishna showed Himself again in His accustomed form; and the Mighty Lord, in gentle tones, softly consoled him who lately trembled with fear." </br>
+"मया ततमिदं सर्वं जगदव्यक्तमूर्तिना | मत्स्थानि सर्वभूतानि न चाहं तेष्ववस्थितः ||९-४||" </br>
+Translate: "9.4 The whole world is pervaded by Me, yet My form is not seen. All living things have their being in Me, yet I am not limited by them." </br>
 
 # Prefs
 
