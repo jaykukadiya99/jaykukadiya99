@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मया ततमिदं सर्वं जगदव्यक्तमूर्तिना | मत्स्थानि सर्वभूतानि न चाहं तेष्ववस्थितः ||९-४||" </br>
-Translate: "9.4 The whole world is pervaded by Me, yet My form is not seen. All living things have their being in Me, yet I am not limited by them." </br>
+"अव्यक्तोऽक्षर इत्युक्तस्तमाहुः परमां गतिम् | यं प्राप्य न निवर्तन्ते तद्धाम परमं मम ||८-२१||" </br>
+Translate: "8.21 The wise say that the Unmanifest and Indestructible is the highest goal of all; when once That is reached, there is no return. That is My Blessed Home." </br>
 
 # Prefs
 
