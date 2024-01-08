@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नियतस्य तु संन्यासः कर्मणो नोपपद्यते | मोहात्तस्य परित्यागस्तामसः परिकीर्तितः ||१८-७||" </br>
-Translate: "18.7 It is not right to give up actions which are obligatory; and if they are misunderstood, it is the result of sheer ignorance." </br>
+"यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ | समदुःखसुखं धीरं सोऽमृतत्वाय कल्पते ||२-१५||" </br>
+Translate: "2.15 The hero whose soul is unmoved by circumstance, who accepts pleasure and pain with equanimity, only he is fit for immortality." </br>
 
 # Prefs
 
