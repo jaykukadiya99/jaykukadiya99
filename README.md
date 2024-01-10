@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रद्धावाँल्लभते ज्ञानं तत्परः संयतेन्द्रियः | ज्ञानं लब्ध्वा परां शान्तिमचिरेणाधिगच्छति ||४-३९||" </br>
-Translate: "4.39 He who is full of faith attains wisdom, and he too who can control his senses, having attained that wisdom, he shall ere long attain Supreme Peace." </br>
+"यतः प्रवृत्तिर्भूतानां येन सर्वमिदं ततम् | स्वकर्मणा तमभ्यर्च्य सिद्धिं विन्दति मानवः ||१८-४६||" </br>
+Translate: "18.46 Man reaches perfection by dedicating his actions to God, Who is the source of all being, and fills everything." </br>
 
 # Prefs
 
