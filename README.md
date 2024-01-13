@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"गुणानेतानतीत्य त्रीन्देही देहसमुद्भवान् | जन्ममृत्युजरादुःखैर्विमुक्तोऽमृतमश्नुते ||१४-२०||" </br>
-Translate: "14.20 When the soul transcends the Qualities, which are the real cause of physical existence, then, freed from birth and death, from old age and misery, he quaffs the nectar of immortality." </br>
+"न कर्तृत्वं न कर्माणि लोकस्य सृजति प्रभुः | न कर्मफलसंयोगं स्वभावस्तु प्रवर्तते ||५-१४||" </br>
+Translate: "5.14 The Lord of this universe has not ordained activity, or any incentive thereto, or any relation between an act and its consequences. All this is the work of Nature." </br>
 
 # Prefs
 
