@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रयाणकाले मनसाऽचलेन भक्त्या युक्तो योगबलेन चैव | भ्रुवोर्मध्ये प्राणमावेश्य सम्यक् स तं परं पुरुषमुपैति दिव्यम् ||८-१०||" </br>
-Translate: "8.10 He who leaves the body with mind unmoved and filled with devotion, by the power of his meditation gathering between his eyebrows his whole vital energy, attains the Supreme." </br>
+"उपद्रष्टानुमन्ता च भर्ता भोक्ता महेश्वरः | परमात्मेति चाप्युक्तो देहेऽस्मिन्पुरुषः परः ||१३-२३||" </br>
+Translate: "13.23 Thus in the body of man dwells the Supreme God; He who sees and permits, upholds and enjoys, the Highest God and the Highest Self." </br>
 
 # Prefs
 
