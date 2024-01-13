@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | परं भूयः प्रवक्ष्यामि ज्ञानानां ज्ञानमुत्तमम् | यज्ज्ञात्वा मुनयः सर्वे परां सिद्धिमितो गताः ||१४-१||" </br>
-Translate: "14.1 "Lord Shri Krishna continued: Now I will reveal unto the Wisdom which is beyond knowledge, by attaining which the sages have reached Perfection." </br>
+"गुणानेतानतीत्य त्रीन्देही देहसमुद्भवान् | जन्ममृत्युजरादुःखैर्विमुक्तोऽमृतमश्नुते ||१४-२०||" </br>
+Translate: "14.20 When the soul transcends the Qualities, which are the real cause of physical existence, then, freed from birth and death, from old age and misery, he quaffs the nectar of immortality." </br>
 
 # Prefs
 
