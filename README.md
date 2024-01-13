@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"जन्म कर्म च मे दिव्यमेवं यो वेत्ति तत्त्वतः | त्यक्त्वा देहं पुनर्जन्म नैति मामेति सोऽर्जुन ||४-९||" </br>
-Translate: "4.9 He who realises the divine truth concerning My birth and life is not born again; and when he leaves his body, he becomes one with Me." </br>
+"एतद्योनीनि भूतानि सर्वाणीत्युपधारय | अहं कृत्स्नस्य जगतः प्रभवः प्रलयस्तथा ||७-६||" </br>
+Translate: "7.6 It is the womb of all being; for I am He by Whom the worlds were created and shall be dissolved." </br>
 
 # Prefs
 
