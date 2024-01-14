@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"योगस्थः कुरु कर्माणि सङ्गं त्यक्त्वा धनञ्जय | सिद्ध्यसिद्ध्योः समो भूत्वा समत्वं योग उच्यते ||२-४८||" </br>
-Translate: "2.48 Perform all thy actions with mind concentrated on the Divine, renouncing attachment and looking upon success and failure with an equal eye. Spirituality implies equanimity." </br>
+"ब्रह्मभूतः प्रसन्नात्मा न शोचति न काङ्क्षति | समः सर्वेषु भूतेषु मद्भक्तिं लभते पराम् ||१८-५४||" </br>
+Translate: "18.54 And when he becomes one with the Eternal, and his soul knows the bliss that belongs to the Self, he feels no desire and no regret, he regards all beings equally and enjoys the blessing of supreme devotion to Me." </br>
 
 # Prefs
 
