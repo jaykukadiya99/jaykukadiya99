@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यस्य सर्वे समारम्भाः कामसङ्कल्पवर्जिताः | ज्ञानाग्निदग्धकर्माणं तमाहुः पण्डितं बुधाः ||४-१९||" </br>
-Translate: "4.19 The wise call him a sage, for whatever he undertakes is free from the motive of desire, and his deeds are purified by the fire of Wisdom." </br>
+"इन्द्रियार्थेषु वैराग्यमनहंकार एव च | जन्ममृत्युजराव्याधिदुःखदोषानुदर्शनम् ||१३-९||" </br>
+Translate: "13.9 Renunciation of the delights of sense, absence of pride, right understanding of the painful problem of birth and death, of age and sickness;" </br>
 
 # Prefs
 
