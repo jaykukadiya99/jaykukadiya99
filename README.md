@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | परं ब्रह्म परं धाम पवित्रं परमं भवान् | पुरुषं शाश्वतं दिव्यमादिदेवमजं विभुम् ||१०-१२||" </br>
-Translate: "10.12 Arjuna asked: Thou art the Supreme Spirit, the Eternal Home, the Holiest of the Holy, the Eternal Divine Self, the Primal God, the Unborn and the Omnipresent." </br>
+"नैते सृती पार्थ जानन्योगी मुह्यति कश्चन | तस्मात्सर्वेषु कालेषु योगयुक्तो भवार्जुन ||८-२७||" </br>
+Translate: "8.27 O Arjuna! The saint knowing these paths is not confused. Therefore meditate perpetually." </br>
 
 # Prefs
 
