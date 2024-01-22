@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अथ चित्तं समाधातुं न शक्नोषि मयि स्थिरम् | अभ्यासयोगेन ततो मामिच्छाप्तुं धनञ्जय ||१२-९||" </br>
-Translate: "12.9 But if thou canst not fix thy mind firmly on Me, then, My beloved friend, try to do so by constant practice." </br>
+"अभिसन्धाय तु फलं दम्भार्थमपि चैव यत् | इज्यते भरतश्रेष्ठ तं यज्ञं विद्धि राजसम् ||१७-१२||" </br>
+Translate: "17.12 Sacrifice which is performed for the sake of its results, or for self-glorification - that, O best of Aryans, is the product of Passion." </br>
 
 # Prefs
 
