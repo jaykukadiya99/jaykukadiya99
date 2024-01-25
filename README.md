@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अवाच्यवादांश्च बहून्वदिष्यन्ति तवाहिताः | निन्दन्तस्तव सामर्थ्यं ततो दुःखतरं नु किम् ||२-३६||" </br>
-Translate: "2.36 Thine enemies will spread scandal and mock at thy courage. Can anything be more humiliating?" </br>
+"परस्तस्मात्तु भावोऽन्योऽव्यक्तोऽव्यक्तात्सनातनः | यः स सर्वेषु भूतेषु नश्यत्सु न विनश्यति ||८-२०||" </br>
+Translate: "8.20 In truth, therefore, there is the Eternal Unmanifest, which is beyond and above the Unmanifest Spirit of Creation, which is never destroyed when all these being perish." </br>
 
 # Prefs
 
