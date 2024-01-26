@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न कर्मणामनारम्भान्नैष्कर्म्यं पुरुषोऽश्नुते | न च संन्यसनादेव सिद्धिं समधिगच्छति ||३-४||" </br>
-Translate: "3.4 No man can attain freedom from activity by refraining from action; nor can he reach perfection by merely refusing to act." </br>
+"महाभूतान्यहंकारो बुद्धिरव्यक्तमेव च | इन्द्रियाणि दशैकं च पञ्च चेन्द्रियगोचराः ||१३-६||" </br>
+Translate: "13.6 The five great fundamentals (earth, fire, air, water and ether), personality, intellect, the mysterious life force, the ten organs of perception and action, the mind and the five domains of sensation;" </br>
 
 # Prefs
 
