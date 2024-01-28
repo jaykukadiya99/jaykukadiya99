@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अशास्त्रविहितं घोरं तप्यन्ते ये तपो जनाः | दम्भाहंकारसंयुक्ताः कामरागबलान्विताः ||१७-५||" </br>
-Translate: "17.5 Those who practise austerities not commanded by scripture, who are slaves to hypocrisy and egotism, who are carried away by the fury of desire and passion," </br>
+"उदाराः सर्व एवैते ज्ञानी त्वात्मैव मे मतम् | आस्थितः स हि युक्तात्मा मामेवानुत्तमां गतिम् ||७-१८||" </br>
+Translate: "7.18 Noble-minded are they all, but the wise man I hold as my own Self; for he, remaining always at peace with Me, makes me his final goal." </br>
 
 # Prefs
 
