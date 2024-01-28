@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वतः पाणिपादं तत्सर्वतोऽक्षिशिरोमुखम् | सर्वतः श्रुतिमल्लोके सर्वमावृत्य तिष्ठति ||१३-१४||" </br>
-Translate: "13.14 Everywhere are Its hands and Its feet; everywhere It has eyes that see, heads that think and mouths that speak; everywhere It listens; It dwells in all the worlds; It envelops them all." </br>
+"मां हि पार्थ व्यपाश्रित्य येऽपि स्युः पापयोनयः | स्त्रियो वैश्यास्तथा शूद्रास्तेऽपि यान्ति परां गतिम् ||९-३२||" </br>
+Translate: "9.32 For even the children of sinful parents, and those miscalled the weaker sex, and merchants, and labourers, if only they will make Me their refuge, they shall attain the Highest." </br>
 
 # Prefs
 
