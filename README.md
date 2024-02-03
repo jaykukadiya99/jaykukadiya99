@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यथा नदीनां बहवोऽम्बुवेगाः समुद्रमेवाभिमुखा द्रवन्ति | तथा तवामी नरलोकवीरा विशन्ति वक्त्राण्यभिविज्वलन्ति ||११-२८||" </br>
-Translate: "11.28 As rivers in flood surge furiously to the ocean, so these heroes, the greatest among men, fling themselves into Thy flaming mouths." </br>
+"शुक्लकृष्णे गती ह्येते जगतः शाश्वते मते | एकया यात्यनावृत्तिमन्ययावर्तते पुनः ||८-२६||" </br>
+Translate: "8.26 These bright and dark paths out of the world have always existed. Whoso takes the former, returns not; he who chooses the latter, returns.*" </br>
 
 # Prefs
 
