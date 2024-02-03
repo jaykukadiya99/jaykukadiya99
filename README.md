@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शुक्लकृष्णे गती ह्येते जगतः शाश्वते मते | एकया यात्यनावृत्तिमन्ययावर्तते पुनः ||८-२६||" </br>
-Translate: "8.26 These bright and dark paths out of the world have always existed. Whoso takes the former, returns not; he who chooses the latter, returns.*" </br>
+"स्वभावजेन कौन्तेय निबद्धः स्वेन कर्मणा | कर्तुं नेच्छसि यन्मोहात्करिष्यस्यवशोपि तत् ||१८-६०||" </br>
+Translate: "18.60 O Arjuna! Thy duty binds thee. From thine own nature has it arisen, and that which in thy delusion thou desire not to do, that very thing thou shalt do. Thou art helpless." </br>
 
 # Prefs
 
