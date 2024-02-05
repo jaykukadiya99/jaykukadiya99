@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स घोषो धार्तराष्ट्राणां हृदयानि व्यदारयत् | नभश्च पृथिवीं चैव तुमुलोऽभ्यनुनादयन् (or लोव्यनु) ||१-१९||" </br>
-Translate: "1.19 The tumult rent the hearts of the sons of Dhritarashtra, and violently shook heaven and earth with its echo." </br>
+"नेहाभिक्रमनाशोऽस्ति प्रत्यवायो न विद्यते | स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् ||२-४०||" </br>
+Translate: "2.40 On this Path, endeavour is never wasted, nor can it ever be repressed. Even a very little of its practice protects one from great danger." </br>
 
 # Prefs
 
