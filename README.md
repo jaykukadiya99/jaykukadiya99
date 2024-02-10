@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दूरेण ह्यवरं कर्म बुद्धियोगाद्धनञ्जय | बुद्धौ शरणमन्विच्छ कृपणाः फलहेतवः ||२-४९||" </br>
-Translate: "2.49 Physical action is far inferior to an intellect concentrated on the Divine. Have recourse then to Pure Intelligence. It is only the petty-minded who work for reward." </br>
+"देवान्भावयतानेन ते देवा भावयन्तु वः | परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ||३-११||" </br>
+Translate: "3.11 Worship the Powers of Nature thereby, and let them nourish you in return; thus supporting each other, you shall attain your highest welfare." </br>
 
 # Prefs
 
