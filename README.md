@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्मादसक्तः सततं कार्यं कर्म समाचर | असक्तो ह्याचरन्कर्म परमाप्नोति पूरुषः ||३-१९||" </br>
-Translate: "3.19 Therefore do thy duty perfectly, without care for the results, for he who does his duty disinterestedly attains the Supreme." </br>
+"असत्यमप्रतिष्ठं ते जगदाहुरनीश्वरम् | अपरस्परसम्भूतं किमन्यत्कामहैतुकम् ||१६-८||" </br>
+Translate: "16.8 They say the universe is an accident with no purpose and no God. Life is created by sexual union, a product of lust and nothing else." </br>
 
 # Prefs
 
