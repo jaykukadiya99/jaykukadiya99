@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्त्वात्सञ्जायते ज्ञानं रजसो लोभ एव च | प्रमादमोहौ तमसो भवतोऽज्ञानमेव च ||१४-१७||" </br>
-Translate: "14.17 Purity engenders Wisdom, Passion avarice, and Ignorance folly, infatuation and darkness." </br>
+"ओमित्येकाक्षरं ब्रह्म व्याहरन्मामनुस्मरन् | यः प्रयाति त्यजन्देहं स याति परमां गतिम् ||८-१३||" </br>
+Translate: "8.13 Repeating Om, the Symbol of Eternity, holding Me always in remembrance, he who thus leaves his body and goes forth reaches the Spirit Supreme." </br>
 
 # Prefs
 
