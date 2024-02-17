@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भूमिरापोऽनलो वायुः खं मनो बुद्धिरेव च | अहंकार इतीयं मे भिन्ना प्रकृतिरष्टधा ||७-४||" </br>
-Translate: "7.4 Earth, water, fire, air, ether, mind, intellect and personality; this is the eightfold division of My Manifested Nature." </br>
+"तस्मादसक्तः सततं कार्यं कर्म समाचर | असक्तो ह्याचरन्कर्म परमाप्नोति पूरुषः ||३-१९||" </br>
+Translate: "3.19 Therefore do thy duty perfectly, without care for the results, for he who does his duty disinterestedly attains the Supreme." </br>
 
 # Prefs
 
