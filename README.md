@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इदं ते नातपस्काय नाभक्ताय कदाचन | न चाशुश्रूषवे वाच्यं न च मां योऽभ्यसूयति ||१८-६७||" </br>
-Translate: "18.67 Speak not this to one who has not practised austerities, or to him who does not love, or who will not listen, or who mocks." </br>
+"यया स्वप्नं भयं शोकं विषादं मदमेव च | न विमुञ्चति दुर्मेधा धृतिः सा पार्थ तामसी ||१८-३५||" </br>
+Translate: "18.35 And that which clings perversely to false idealism, fear, grief, despair and vanity is the product of Ignorance." </br>
 
 # Prefs
 
