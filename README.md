@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यया स्वप्नं भयं शोकं विषादं मदमेव च | न विमुञ्चति दुर्मेधा धृतिः सा पार्थ तामसी ||१८-३५||" </br>
-Translate: "18.35 And that which clings perversely to false idealism, fear, grief, despair and vanity is the product of Ignorance." </br>
+"न च मत्स्थानि भूतानि पश्य मे योगमैश्वरम् | भूतभृन्न च भूतस्थो ममात्मा भूतभावनः ||९-५||" </br>
+Translate: "9.5 Nevertheless, they do not consciously abide in Me. Such is My Divine Sovereignty that though I, the Supreme Self, am the cause and upholder of all, yet I remain outside." </br>
 
 # Prefs
 
