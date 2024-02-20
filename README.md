@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"महात्मानस्तु मां पार्थ दैवीं प्रकृतिमाश्रिताः | भजन्त्यनन्यमनसो ज्ञात्वा भूतादिमव्ययम् ||९-१३||" </br>
-Translate: "9.13 But the Great Souls, O Arjuna! Filled with My Divine Spirit, they worship Me, they fix their minds on Me and on Me alone, for they know that I am the imperishable Source of being." </br>
+"निमित्तानि च पश्यामि विपरीतानि केशव | न च श्रेयोऽनुपश्यामि हत्वा स्वजनमाहवे ||१-३१||" </br>
+Translate: "1.31 The omens are adverse; what good can come from the slaughter of my people on this battlefield?" </br>
 
 # Prefs
 
