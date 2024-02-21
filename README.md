@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मन्यसे यदि तच्छक्यं मया द्रष्टुमिति प्रभो | योगेश्वर ततो मे त्वं दर्शयात्मानमव्ययम् ||११-४||" </br>
-Translate: "11.4 If Thou thinkest that it can be made possible for me to see it, show me, O Lord of Lords, Thine own Eternal Self." </br>
+"सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ | ततो युद्धाय युज्यस्व नैवं पापमवाप्स्यसि ||२-३८||" </br>
+Translate: "2.38 Look upon pleasure and pain, victory and defeat, with an equal eye. Make ready for the combat, and thou shalt commit no sin." </br>
 
 # Prefs
 
