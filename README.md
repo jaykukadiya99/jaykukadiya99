@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"गामाविश्य च भूतानि धारयाम्यहमोजसा | पुष्णामि चौषधीः सर्वाः सोमो भूत्वा रसात्मकः ||१५-१३||" </br>
-Translate: "15.13 1	enter this world and animate all My creatures with My vitality; and by My cool moonbeams I nourish the plants." </br>
+"सर्वभूतस्थमात्मानं सर्वभूतानि चात्मनि | ईक्षते योगयुक्तात्मा सर्वत्र समदर्शनः ||६-२९||" </br>
+Translate: "6.29 He who experiences the unity of life sees his own Self in all beings, and all beings in his own Self, and looks on everything with an impartial eye;" </br>
 
 # Prefs
 
