@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तत्र तं बुद्धिसंयोगं लभते पौर्वदेहिकम् | यतते च ततो भूयः संसिद्धौ कुरुनन्दन ||६-४३||" </br>
-Translate: "6.43 Then the experience acquired in his former life will revive, and with its help he will strive for perfection more eagerly than before." </br>
+"गामाविश्य च भूतानि धारयाम्यहमोजसा | पुष्णामि चौषधीः सर्वाः सोमो भूत्वा रसात्मकः ||१५-१३||" </br>
+Translate: "15.13 1	enter this world and animate all My creatures with My vitality; and by My cool moonbeams I nourish the plants." </br>
 
 # Prefs
 
