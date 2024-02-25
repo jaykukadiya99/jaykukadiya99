@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यथा सर्वगतं सौक्ष्म्यादाकाशं नोपलिप्यते | सर्वत्रावस्थितो देहे तथात्मा नोपलिप्यते ||१३-३३||" </br>
-Translate: "13.33 As space, though present everywhere, remains by reason of its subtlety unaffected, so the Self, though present in all forms, retains its purity unalloyed." </br>
+"श्रीभगवानुवाच | लोकेऽस्मिन् द्विविधा निष्ठा पुरा प्रोक्ता मयानघ | ज्ञानयोगेन साङ्ख्यानां कर्मयोगेन योगिनाम् ||३-३||" </br>
+Translate: "3.3 Lord Shri Krishna replied: In this world, as I have said, there is a twofold path, O Sinless One! There is the Path of Wisdom for those who meditate, and the Path of Action for those who work." </br>
 
 # Prefs
 
