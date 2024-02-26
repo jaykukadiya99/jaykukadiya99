@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भवान्भीष्मश्च कर्णश्च कृपश्च समितिञ्जयः | अश्वत्थामा विकर्णश्च सौमदत्तिस्तथैव च ||१-८||" </br>
-Translate: "1.8 You come first; then Bheeshma, Karna, Kripa, great soldiers; Ashwaththama, Vikarna and the son of Somadhatta;" </br>
+"सक्ताः कर्मण्यविद्वांसो यथा कुर्वन्ति भारत | कुर्याद्विद्वांस्तथासक्तश्चिकीर्षुर्लोकसंग्रहम् ||३-२५||" </br>
+Translate: "3.25 As the ignorant act, because of their fondness for action, so should the wise act without such attachment, fixing their eyes, O Arjuna, only on the welfare of the world." </br>
 
 # Prefs
 
