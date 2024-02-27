@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अवजानन्ति मां मूढा मानुषीं तनुमाश्रितम् | परं भावमजानन्तो मम भूतमहेश्वरम् ||९-११||" </br>
-Translate: "9.11 Fools disregard Me, seeing Me clad in human form. They know not that in My higher nature I am the Lord-God of all." </br>
+"सत्कारमानपूजार्थं तपो दम्भेन चैव यत् | क्रियते तदिह प्रोक्तं राजसं चलमध्रुवम् ||१७-१८||" </br>
+Translate: "17.18 Austerity coupled with hypocrisy or performed for the sake of self-glorification, popularity or vanity, comes from Passion, and its result is always doubtful and temporary." </br>
 
 # Prefs
 
