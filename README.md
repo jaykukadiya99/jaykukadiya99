@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्कारमानपूजार्थं तपो दम्भेन चैव यत् | क्रियते तदिह प्रोक्तं राजसं चलमध्रुवम् ||१७-१८||" </br>
-Translate: "17.18 Austerity coupled with hypocrisy or performed for the sake of self-glorification, popularity or vanity, comes from Passion, and its result is always doubtful and temporary." </br>
+"स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः | प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ||५-२७||" </br>
+Translate: "5.27 Excluding external objects, his gaze fixed between the eyebrows, the inward and outward breathings passing equally through his nostrils;" </br>
 
 # Prefs
 
