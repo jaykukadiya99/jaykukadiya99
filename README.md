@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नैव तस्य कृतेनार्थो नाकृतेनेह कश्चन | न चास्य सर्वभूतेषु कश्चिदर्थव्यपाश्रयः ||३-१८||" </br>
-Translate: "3.18 He has nothing to gain by the performance or non-performance of action. His welfare depends not on any contribution that an earthly creature can make." </br>
+"तेजः क्षमा धृतिः शौचमद्रोहो नातिमानिता | भवन्ति सम्पदं दैवीमभिजातस्य भारत ||१६-३||" </br>
+Translate: "16.3 Valour, forgiveness, fortitude, purity, freedom from hate and vanity; these are his who possesses the Godly Qualities, O Arjuna!" </br>
 
 # Prefs
 
