@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वेदाहं समतीतानि वर्तमानानि चार्जुन | भविष्याणि च भूतानि मां तु वेद न कश्चन ||७-२६||" </br>
-Translate: "7.26 I know, O Arjuna, all beings in the past, the present and the future; but they do not know Me." </br>
+"इन्द्रियाणां हि चरतां यन्मनोऽनुविधीयते | तदस्य हरति प्रज्ञां वायुर्नावमिवाम्भसि ||२-६७||" </br>
+Translate: "2.67 As a ship at sea is tossed by the tempest, so the reason is carried away by the mind when preyed upon by straying senses." </br>
 
 # Prefs
 
