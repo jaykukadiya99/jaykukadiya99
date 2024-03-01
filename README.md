@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | इत्यर्जुनं वासुदेवस्तथोक्त्वा स्वकं रूपं दर्शयामास भूयः | आश्वासयामास च भीतमेनं भूत्वा पुनः सौम्यवपुर्महात्मा ||११-५०||" </br>
-Translate: "11.50 Sanjaya continued: "Having thus spoken to Arjuna, Lord Shri Krishna showed Himself again in His accustomed form; and the Mighty Lord, in gentle tones, softly consoled him who lately trembled with fear." </br>
+"वेदाहं समतीतानि वर्तमानानि चार्जुन | भविष्याणि च भूतानि मां तु वेद न कश्चन ||७-२६||" </br>
+Translate: "7.26 I know, O Arjuna, all beings in the past, the present and the future; but they do not know Me." </br>
 
 # Prefs
 
