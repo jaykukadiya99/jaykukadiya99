@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न च मां तानि कर्माणि निबध्नन्ति धनञ्जय | उदासीनवदासीनमसक्तं तेषु कर्मसु ||९-९||" </br>
-Translate: "9.9 But these acts of mine do not bind Me. I remain outside and unattached." </br>
+"यज्ज्ञात्वा न पुनर्मोहमेवं यास्यसि पाण्डव | येन भूतान्यशेषेण द्रक्ष्यस्यात्मन्यथो मयि (var अशेषाणि) ||४-३५||" </br>
+Translate: "4.35 Having known That, thou shalt never again be confounded; and, O Arjuna, by the power of that wisdom, thou shalt see all these people as if they were thine own Self, and therefore as Me." </br>
 
 # Prefs
 
