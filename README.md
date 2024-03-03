@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यावानर्थ उदपाने सर्वतः सम्प्लुतोदके | तावान्सर्वेषु वेदेषु ब्राह्मणस्य विजानतः ||२-४६||" </br>
-Translate: "2.46 As a man can drink water from any side of a full tank, so the skilled theologian can wrest from any scripture that which will serve his purpose." </br>
+"दिवि सूर्यसहस्रस्य भवेद्युगपदुत्थिता | यदि भाः सदृशी सा स्याद्भासस्तस्य महात्मनः ||११-१२||" </br>
+Translate: "11.12 Could a thousand suns blaze forth together it would be but a faint reflection of the radiance of the Lord God." </br>
 
 # Prefs
 
