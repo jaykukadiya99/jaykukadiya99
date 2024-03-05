@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः | मनसस्तु परा बुद्धिर्यो बुद्धेः परतस्तु सः ||३-४२||" </br>
-Translate: "3.42 It is said that the senses are powerful. But beyond the senses is the mind, beyond the mind is the intellect, and beyond and greater than intellect is He." </br>
+"आपूर्यमाणमचलप्रतिष्ठं समुद्रमापः प्रविशन्ति यद्वत् | तद्वत्कामा यं प्रविशन्ति सर्वे स शान्तिमाप्नोति न कामकामी ||२-७०||" </br>
+Translate: "2.70 He attains Peace, into whom desires flow as rivers into the ocean, which though brimming with water remains ever the same; not he whom desire carries away." </br>
 
 # Prefs
 
