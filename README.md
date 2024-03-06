@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मयाध्यक्षेण प्रकृतिः सूयते सचराचरम् | हेतुनानेन कौन्तेय जगद्विपरिवर्तते ||९-१०||" </br>
-Translate: "9.10 Under my guidance, Nature produces all things movable and immovable. Thus it is, O Arjuna, that this universe revolves." </br>
+"साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः | एकमप्यास्थितः सम्यगुभयोर्विन्दते फलम् ||५-४||" </br>
+Translate: "5.4 Only the unenlightened speak of wisdom and right action as separate, not the wise. If any man knows one, he enjoys the fruit of both." </br>
 
 # Prefs
 
