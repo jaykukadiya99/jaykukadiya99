@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः | एकमप्यास्थितः सम्यगुभयोर्विन्दते फलम् ||५-४||" </br>
-Translate: "5.4 Only the unenlightened speak of wisdom and right action as separate, not the wise. If any man knows one, he enjoys the fruit of both." </br>
+"विषयेन्द्रियसंयोगाद्यत्तदग्रेऽमृतोपमम् | परिणामे विषमिव तत्सुखं राजसं स्मृतम् ||१८-३८||" </br>
+Translate: "18.38 That which as first is like nectar, because the senses revel in their objects, but in the end acts like poison - that pleasure arises from Passion." </br>
 
 # Prefs
 
