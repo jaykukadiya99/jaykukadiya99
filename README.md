@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यच्चावहासार्थमसत्कृतोऽसि विहारशय्यासनभोजनेषु | एकोऽथवाप्यच्युत तत्समक्षं तत्क्षामये त्वामहमप्रमेयम् ||११-४२||" </br>
-Translate: "11.42 Whatever insult I have offered to Thee in jest, in sport or in repose, in conversation or at the banquet, alone or in a multitude, I ask Thy forgiveness for them all, O Thou Who art without an equal!" </br>
+"उत्तमः पुरुषस्त्वन्यः परमात्मेत्युधाहृतः | यो लोकत्रयमाविश्य बिभर्त्यव्यय ईश्वरः ||१५-१७||" </br>
+Translate: "15.17 But higher than all am I, the Supreme God, the Absolute Self, the Eternal Lord, Who pervades the worlds and upholds them all." </br>
 
 # Prefs
 
