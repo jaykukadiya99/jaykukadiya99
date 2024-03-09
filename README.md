@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मण्येवाधिकारस्ते मा फलेषु कदाचन | मा कर्मफलहेतुर्भूर्मा ते सङ्गोऽस्त्वकर्मणि ||२-४७||" </br>
-Translate: "2.47 But thou hast only the right to work, but none to the fruit thereof. Let not then the fruit of thy action be thy motive; nor yet be thou enamored of inaction." </br>
+"पश्यादित्यान्वसून्रुद्रानश्विनौ मरुतस्तथा | बहून्यदृष्टपूर्वाणि पश्याश्चर्याणि भारत ||११-६||" </br>
+Translate: "11.6 Behold thou the Powers of Nature: fire, earth, wind and sky; the sun, the heavens, the moon, the stars; all forces of vitality and of healing; and the roving winds. See the myriad wonders revealed to none but thee." </br>
 
 # Prefs
 
