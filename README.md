@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ते तं भुक्त्वा स्वर्गलोकं विशालं क्षीणे पुण्ये मर्त्यलोकं विशन्ति | एवं त्रयीधर्ममनुप्रपन्ना गतागतं कामकामा लभन्ते ||९-२१||" </br>
-Translate: "9.21 Yet although they enjoy the spacious glories of Paradise, nevertheless, when their merit is exhausted, they are born again into this world of mortals. They have followed the letter of the scriptures, yet because they have sought but to fulfill their own desires, they must depart and return again and again." </br>
+"कायेन मनसा बुद्ध्या केवलैरिन्द्रियैरपि | योगिनः कर्म कुर्वन्ति सङ्गं त्यक्त्वात्मशुद्धये ||५-११||" </br>
+Translate: "5.11 The sage performs his action dispassionately, using his body, mind and intellect, and even his senses, always as a means of purification." </br>
 
 # Prefs
 
