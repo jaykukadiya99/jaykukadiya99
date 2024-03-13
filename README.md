@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एवं बुद्धेः परं बुद्ध्वा संस्तभ्यात्मानमात्मना | जहि शत्रुं महाबाहो कामरूपं दुरासदम् ||३-४३||" </br>
-Translate: "3.43 Thus, O Mighty-in-Arms, knowing Him to be beyond the intellect and, by His help, subduing thy personal egotism, kill thine enemy, Desire, extremely difficult though it be."" </br>
+"त्रैविद्या मां सोमपाः पूतपापा यज्ञैरिष्ट्वा स्वर्गतिं प्रार्थयन्ते | ते पुण्यमासाद्य सुरेन्द्रलोक- मश्नन्ति दिव्यान्दिवि देवभोगान् ||९-२०||" </br>
+Translate: "9.20 Those who are versed in the scriptures, who drink the mystic Soma-juice and are purified from sin, but who while worshipping Me with sacrifices pray that I will lead them to heaven; they reach the holy world where lives the Controller of the Powers of Nature, and they enjoy the feasts of Paradise." </br>
 
 # Prefs
 
