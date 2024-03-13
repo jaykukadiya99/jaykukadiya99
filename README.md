@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कृषिगौरक्ष्यवाणिज्यं वैश्यकर्म स्वभावजम् | परिचर्यात्मकं कर्म शूद्रस्यापि स्वभावजम् ||१८-४४||" </br>
-Translate: "18.44 Agriculture, protection of the cow and trade are the duty of a trader, again in accordance with his nature. The duty of a servant is to serve, and that too agrees with his nature." </br>
+"एतन्मे संशयं कृष्ण छेत्तुमर्हस्यशेषतः | त्वदन्यः संशयस्यास्य छेत्ता न ह्युपपद्यते ||६-३९||" </br>
+Translate: "6.39 My Lord! Thou art worthy to solve this doubt once and for all; save Thyself there is no one competent to do so." </br>
 
 # Prefs
 
