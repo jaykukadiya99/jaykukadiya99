@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अथैतदप्यशक्तोऽसि कर्तुं मद्योगमाश्रितः | सर्वकर्मफलत्यागं ततः कुरु यतात्मवान् ||१२-११||" </br>
-Translate: "12.11 And if thou art too weak even for this, then seek refuge in union with Me, and with perfect self-control renounce the fruit of thy action." </br>
+"यो मां पश्यति सर्वत्र सर्वं च मयि पश्यति | तस्याहं न प्रणश्यामि स च मे न प्रणश्यति ||६-३०||" </br>
+Translate: "6.30 He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." </br>
 
 # Prefs
 
