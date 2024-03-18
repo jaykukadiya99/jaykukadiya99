@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन | अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ||१-३५||" </br>
-Translate: "1.35 I would not kill them, even for three worlds; why then for this poor earth? It matters not if I myself am killed." </br>
+"वेदाविनाशिनं नित्यं य एनमजमव्ययम् | कथं स पुरुषः पार्थ कं घातयति हन्ति कम् ||२-२१||" </br>
+Translate: "2.21 He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" </br>
 
 # Prefs
 
