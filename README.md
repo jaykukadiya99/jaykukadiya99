@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्लैब्यं मा स्म गमः पार्थ नैतत्त्वय्युपपद्यते | क्षुद्रं हृदयदौर्बल्यं त्यक्त्वोत्तिष्ठ परन्तप ||२-३||" </br>
-Translate: "2.3 O Arjuna! Why give way to unmanliness? O thou who art the terror of thine enemies! Shake off such shameful effeminacy, make ready to act!" </br>
+"राजविद्या राजगुह्यं पवित्रमिदमुत्तमम् | प्रत्यक्षावगमं धर्म्यं सुसुखं कर्तुमव्ययम् ||९-२||" </br>
+Translate: "9.2 This is the Premier Science, the Sovereign Secret, the Purest and Best; intuitional, righteous; and to him who practiseth it pleasant beyond measure." </br>
 
 # Prefs
 
