@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रेयान्स्वधर्मो विगुणः परधर्मात्स्वनुष्ठितात् | स्वधर्मे निधनं श्रेयः परधर्मो भयावहः ||३-३५||" </br>
-Translate: "3.35 It is better to do thine own duty, however lacking in merit, than to do that of another, even though efficiently. It is better to die doing one's own duty, for to do the duty of another is fraught with danger." </br>
+"अहिंसा सत्यमक्रोधस्त्यागः शान्तिरपैशुनम् | दया भूतेष्वलोलुप्त्वं मार्दवं ह्रीरचापलम् ||१६-२||" </br>
+Translate: "16.2 harmlessness, truth, absence of wrath, renunciation, contentment, straightforwardness, compassion towards all, uncovetousness, courtesy, modesty, constancy," </br>
 
 # Prefs
 
