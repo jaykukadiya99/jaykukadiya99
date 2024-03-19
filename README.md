@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मण्यकर्म यः पश्येदकर्मणि च कर्म यः | स बुद्धिमान्मनुष्येषु स युक्तः कृत्स्नकर्मकृत् ||४-१८||" </br>
-Translate: "4.18 He who can see inaction in action, and action in inaction, is the wisest among men. He is a saint, even though he still acts." </br>
+"पूर्वाभ्यासेन तेनैव ह्रियते ह्यवशोऽपि सः | जिज्ञासुरपि योगस्य शब्दब्रह्मातिवर्तते ||६-४४||" </br>
+Translate: "6.44 Unconsciously he will return to the practices of his old life; so that he who tries to realise spiritual consciousness is certainly superior to one who only talks of it." </br>
 
 # Prefs
 
