@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनपेक्षः शुचिर्दक्ष उदासीनो गतव्यथः | सर्वारम्भपरित्यागी यो मद्भक्तः स मे प्रियः ||१२-१६||" </br>
-Translate: "12.16 He who expects nothing, who is pure, watchful, indifferent, unruffled, and who renounces all initiative, such a one is My beloved." </br>
+"दण्डो दमयतामस्मि नीतिरस्मि जिगीषताम् | मौनं चैवास्मि गुह्यानां ज्ञानं ज्ञानवतामहम् ||१०-३८||" </br>
+Translate: "10.38 I am the Sceptre of rulers, the Strategy of the conquerors, the Silence of mystery, the Wisdom of the wise." </br>
 
 # Prefs
 
