@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनेकचित्तविभ्रान्ता मोहजालसमावृताः | प्रसक्ताः कामभोगेषु पतन्ति नरकेऽशुचौ ||१६-१६||" </br>
-Translate: "16.16 Perplexed by discordant thoughts, entangled in the snares of desire, infatuated by passion, they sink into the horrors of hell." </br>
+"शक्नोतीहैव यः सोढुं प्राक्शरीरविमोक्षणात् | कामक्रोधोद्भवं वेगं स युक्तः स सुखी नरः ||५-२३||" </br>
+Translate: "5.23 He who, before he leaves his body, learns to surmount the promptings of desire and anger is a saint and is happy." </br>
 
 # Prefs
 
