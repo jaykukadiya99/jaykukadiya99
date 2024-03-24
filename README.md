@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहंकारं बलं दर्पं कामं क्रोधं च संश्रिताः | मामात्मपरदेहेषु प्रद्विषन्तोऽभ्यसूयकाः ||१६-१८||" </br>
-Translate: "16.18 Puffed up by power and inordinate conceit, swayed by lust and wrath, these wicked people hate Me Who am within them, as I am within all." </br>
+"रूपं महत्ते बहुवक्त्रनेत्रं महाबाहो बहुबाहूरुपादम् | बहूदरं बहुदंष्ट्राकरालं दृष्ट्वा लोकाः प्रव्यथितास्तथाहम् ||११-२३||" </br>
+Translate: "11.23 Seeing Thy stupendous Form, O Most Mighty, with its myriad faces, its innumerable eyes and limbs and terrible jaws, I myself and all the worlds are overwhelmed with awe." </br>
 
 # Prefs
 
