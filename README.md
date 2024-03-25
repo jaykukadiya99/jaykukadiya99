@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रकृतिं स्वामवष्टभ्य विसृजामि पुनः पुनः | भूतग्राममिमं कृत्स्नमवशं प्रकृतेर्वशात् ||९-८||" </br>
-Translate: "9.8 With the help of Nature, again and again I pour forth the whole multitude of beings, whether they will or no, for they are ruled by My Will." </br>
+"अधिभूतं क्षरो भावः पुरुषश्चाधिदैवतम् | अधियज्ञोऽहमेवात्र देहे देहभृतां वर ||८-४||" </br>
+Translate: "8.4 Matter consists of the forms that perish; Divinity is the Supreme Self; and He who inspires the spirit of sacrifice in man, O noblest of thy race, is I Myself, Who now stand in human form before thee." </br>
 
 # Prefs
 
