@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | सुदुर्दर्शमिदं रूपं दृष्टवानसि यन्मम | देवा अप्यस्य रूपस्य नित्यं दर्शनकाङ्क्षिणः ||११-५२||" </br>
-Translate: "11.52 Lord Shri Krishna replied: It is hard to see this vision of Me that thou hast seen. Even the most powerful have longed for it in vain." </br>
+"आयुःसत्त्वबलारोग्यसुखप्रीतिविवर्धनाः | रस्याः स्निग्धाः स्थिरा हृद्या आहाराः सात्त्विकप्रियाः ||१७-८||" </br>
+Translate: "17.8 The foods that prolong life and increase purity, vigour, health, cheerfulness and happiness are those that are delicious, soothing, substantial and agreeable. These are loved by the Pure." </br>
 
 # Prefs
 
