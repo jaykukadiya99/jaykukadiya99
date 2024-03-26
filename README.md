@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अथवा योगिनामेव कुले भवति धीमताम् | एतद्धि दुर्लभतरं लोके जन्म यदीदृशम् ||६-४२||" </br>
-Translate: "6.42 Or, he may be born in the family of the wise sages, though a birth like this is, indeed, very difficult to obtain." </br>
+"न मां दुष्कृतिनो मूढाः प्रपद्यन्ते नराधमाः | माययापहृतज्ञाना आसुरं भावमाश्रिताः ||७-१५||" </br>
+Translate: "7.15 The sinner, the ignorant, the vile, deprived of spiritual perception by the glamour of Illusion, and he who pursues a godless life - none of them shall find Me." </br>
 
 # Prefs
 
