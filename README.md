@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वक्त्राणि ते त्वरमाणा विशन्ति दंष्ट्राकरालानि भयानकानि | केचिद्विलग्ना दशनान्तरेषु सन्दृश्यन्ते चूर्णितैरुत्तमाङ्गैः ||११-२७||" </br>
-Translate: "11.27 1	see them all rushing headlong into Thy mouths, with terrible tusks, horrible to behold. Some are mangled between thy jaws, with their heads crushed to atoms." </br>
+"प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः | मनः संयम्य मच्चित्तो युक्त आसीत मत्परः ||६-१४||" </br>
+Translate: "6.14 With peace in his heart and nor fear, observing the vow of celibacy, with mind controlled and fixed on Me, let the student lose himself in contemplation of Me." </br>
 
 # Prefs
 
