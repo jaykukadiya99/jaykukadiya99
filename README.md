@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"य एनं वेत्ति हन्तारं यश्चैनं मन्यते हतम् | उभौ तौ न विजानीतो नायं हन्ति न हन्यते ||२-१९||" </br>
-Translate: "2.19 He who thinks that the Spirit kills, and he who thinks of It as killed, are both ignorant. The Spirit kills not, nor is It killed." </br>
+"वक्त्राणि ते त्वरमाणा विशन्ति दंष्ट्राकरालानि भयानकानि | केचिद्विलग्ना दशनान्तरेषु सन्दृश्यन्ते चूर्णितैरुत्तमाङ्गैः ||११-२७||" </br>
+Translate: "11.27 1	see them all rushing headlong into Thy mouths, with terrible tusks, horrible to behold. Some are mangled between thy jaws, with their heads crushed to atoms." </br>
 
 # Prefs
 
