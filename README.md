@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः | मनः संयम्य मच्चित्तो युक्त आसीत मत्परः ||६-१४||" </br>
-Translate: "6.14 With peace in his heart and nor fear, observing the vow of celibacy, with mind controlled and fixed on Me, let the student lose himself in contemplation of Me." </br>
+"आपूर्यमाणमचलप्रतिष्ठं समुद्रमापः प्रविशन्ति यद्वत् | तद्वत्कामा यं प्रविशन्ति सर्वे स शान्तिमाप्नोति न कामकामी ||२-७०||" </br>
+Translate: "2.70 He attains Peace, into whom desires flow as rivers into the ocean, which though brimming with water remains ever the same; not he whom desire carries away." </br>
 
 # Prefs
 
