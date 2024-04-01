@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्त्वानुरूपा सर्वस्य श्रद्धा भवति भारत | श्रद्धामयोऽयं पुरुषो यो यच्छ्रद्धः स एव सः ||१७-३||" </br>
-Translate: "17.3 The faith of every man conforms to his nature. By nature he is full of faith. He is in fact what his faith makes him." </br>
+"पुरुषः प्रकृतिस्थो हि भुङ्क्ते प्रकृतिजान्गुणान् | कारणं गुणसङ्गोऽस्य सदसद्योनिजन्मसु ||१३-२२||" </br>
+Translate: "13.22 God dwelling in the heart of Nature experiences the Qualities which nature brings forth; and His affinity towards the Qualities is the reason for His living in a good or evil body." </br>
 
 # Prefs
 
