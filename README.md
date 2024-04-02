@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"चिन्तामपरिमेयां च प्रलयान्तामुपाश्रिताः | कामोपभोगपरमा एतावदिति निश्चिताः ||१६-११||" </br>
-Translate: "16.11 Poring anxiously over evil resolutions, which only end in death; seeking only the gratification of desire as the highest goal; seeing nothing beyond;" </br>
+"बाह्यस्पर्शेष्वसक्तात्मा विन्दत्यात्मनि यत्सुखम् | स ब्रह्मयोगयुक्तात्मा सुखमक्षयमश्नुते ||५-२१||" </br>
+Translate: "5.21 He finds happiness in his own Self, and enjoys eternal bliss, whose heart does not yearn for the contacts of earth and whose Self is one with the Everlasting." </br>
 
 # Prefs
 
