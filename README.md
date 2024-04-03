@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रूपं महत्ते बहुवक्त्रनेत्रं महाबाहो बहुबाहूरुपादम् | बहूदरं बहुदंष्ट्राकरालं दृष्ट्वा लोकाः प्रव्यथितास्तथाहम् ||११-२३||" </br>
-Translate: "11.23 Seeing Thy stupendous Form, O Most Mighty, with its myriad faces, its innumerable eyes and limbs and terrible jaws, I myself and all the worlds are overwhelmed with awe." </br>
+"ये त्वेतदभ्यसूयन्तो नानुतिष्ठन्ति मे मतम् | सर्वज्ञानविमूढांस्तान्विद्धि नष्टानचेतसः ||३-३२||" </br>
+Translate: "3.32 But they who ridicule My word and do not keep it, are ignorant, devoid of wisdom and blind. They seek but their own destruction." </br>
 
 # Prefs
 
