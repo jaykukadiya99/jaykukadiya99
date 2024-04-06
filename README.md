@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मत्कर्मकृन्मत्परमो मद्भक्तः सङ्गवर्जितः | निर्वैरः सर्वभूतेषु यः स मामेति पाण्डव ||११-५५||" </br>
-Translate: "11.55 He whose every action is done for My sake, to whom I am the final goal, who loves Me only and hates no one - O My dearest son, only he can realize Me!"" </br>
+"एवं परम्पराप्राप्तमिमं राजर्षयो विदुः | स कालेनेह महता योगो नष्टः परन्तप ||४-२||" </br>
+Translate: "4.2 The Divine Kings knew it, for it was their tradition. Then, after a long time, at last it was forgotten." </br>
 
 # Prefs
 
