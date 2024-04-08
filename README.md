@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मण्यकर्म यः पश्येदकर्मणि च कर्म यः | स बुद्धिमान्मनुष्येषु स युक्तः कृत्स्नकर्मकृत् ||४-१८||" </br>
-Translate: "4.18 He who can see inaction in action, and action in inaction, is the wisest among men. He is a saint, even though he still acts." </br>
+"इति क्षेत्रं तथा ज्ञानं ज्ञेयं चोक्तं समासतः | मद्भक्त एतद्विज्ञाय मद्भावायोपपद्यते ||१३-१९||" </br>
+Translate: "13.19 Thus I have told thee in brief what Matter is, and the Self worth realising and what is Wisdom. He who is devoted to Me knows; and assuredly he will enter into Me." </br>
 
 # Prefs
 
