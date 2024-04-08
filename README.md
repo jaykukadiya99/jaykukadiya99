@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः | निर्ममो निरहङ्कारः स शान्तिमधिगच्छति ||२-७१||" </br>
-Translate: "2.71 He attains Peace who, giving up desire, moves through the world without aspiration, possessing nothing which he can call his own, and free from pride." </br>
+"कर्मण्यकर्म यः पश्येदकर्मणि च कर्म यः | स बुद्धिमान्मनुष्येषु स युक्तः कृत्स्नकर्मकृत् ||४-१८||" </br>
+Translate: "4.18 He who can see inaction in action, and action in inaction, is the wisest among men. He is a saint, even though he still acts." </br>
 
 # Prefs
 
