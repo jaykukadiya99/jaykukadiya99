@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इति क्षेत्रं तथा ज्ञानं ज्ञेयं चोक्तं समासतः | मद्भक्त एतद्विज्ञाय मद्भावायोपपद्यते ||१३-१९||" </br>
-Translate: "13.19 Thus I have told thee in brief what Matter is, and the Self worth realising and what is Wisdom. He who is devoted to Me knows; and assuredly he will enter into Me." </br>
+"सञ्जय उवाच | इत्यर्जुनं वासुदेवस्तथोक्त्वा स्वकं रूपं दर्शयामास भूयः | आश्वासयामास च भीतमेनं भूत्वा पुनः सौम्यवपुर्महात्मा ||११-५०||" </br>
+Translate: "11.50 Sanjaya continued: "Having thus spoken to Arjuna, Lord Shri Krishna showed Himself again in His accustomed form; and the Mighty Lord, in gentle tones, softly consoled him who lately trembled with fear." </br>
 
 # Prefs
 
