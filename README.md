@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इहैकस्थं जगत्कृत्स्नं पश्याद्य सचराचरम् | मम देहे गुडाकेश यच्चान्यद् द्रष्टुमिच्छसि ||११-७||" </br>
-Translate: "11.7 Here in Me living as one, O Arjuna, behold the whole universe, movable and immovable, and anything else that thou wouldst see!" </br>
+"इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते | एतैर्विमोहयत्येष ज्ञानमावृत्य देहिनम् ||३-४०||" </br>
+Translate: "3.40 It works through the senses, the mind and the reason; and with their help destroys wisdom and confounds the soul." </br>
 
 # Prefs
 
