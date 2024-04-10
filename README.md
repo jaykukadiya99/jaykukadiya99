@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नासतो विद्यते भावो नाभावो विद्यते सतः | उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभिः ||२-१६||" </br>
-Translate: "2.16 That which is not, shall never be; that which is, shall never cease to be. To the wise, these truths are self-evident." </br>
+"अनादित्वान्निर्गुणत्वात्परमात्मायमव्ययः | शरीरस्थोऽपि कौन्तेय न करोति न लिप्यते ||१३-३२||" </br>
+Translate: "13.32 The Supreme Spirit, O Prince, is without beginning, without Qualities and Imperishable, and though it be within the body, yet It does not act, nor is It affected by action." </br>
 
 # Prefs
 
