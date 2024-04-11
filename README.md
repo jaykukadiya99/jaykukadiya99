@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न च मां तानि कर्माणि निबध्नन्ति धनञ्जय | उदासीनवदासीनमसक्तं तेषु कर्मसु ||९-९||" </br>
-Translate: "9.9 But these acts of mine do not bind Me. I remain outside and unattached." </br>
+"युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः | सुखेन ब्रह्मसंस्पर्शमत्यन्तं सुखमश्नुते ||६-२८||" </br>
+Translate: "6.28 Thus, free from sin, abiding always in the Eternal, the saint enjoys without effort the Bliss which flows from realisation of the Infinite." </br>
 
 # Prefs
 
