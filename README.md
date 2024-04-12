@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्रोधाद्भवति सम्मोहः सम्मोहात्स्मृतिविभ्रमः | स्मृतिभ्रंशाद् बुद्धिनाशो बुद्धिनाशात्प्रणश्यति ||२-६३||" </br>
-Translate: "2.63 Anger induces delusion; delusion, loss of memory; through loss of memory, reason is shattered; and loss of reason leads to destruction." </br>
+"युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः | सुखेन ब्रह्मसंस्पर्शमत्यन्तं सुखमश्नुते ||६-२८||" </br>
+Translate: "6.28 Thus, free from sin, abiding always in the Eternal, the saint enjoys without effort the Bliss which flows from realisation of the Infinite." </br>
 
 # Prefs
 
