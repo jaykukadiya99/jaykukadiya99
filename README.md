@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शनैः शनैरुपरमेद् बुद्ध्या धृतिगृहीतया | आत्मसंस्थं मनः कृत्वा न किञ्चिदपि चिन्तयेत् ||६-२५||" </br>
-Translate: "6.25 Little by little, by the help of his reason controlled by fortitude, let him attain peace; and, fixing his mind on the Self, let him not think of any other thing." </br>
+"द्वौ भूतसर्गौ लोकेऽस्मिन्दैव आसुर एव च | दैवो विस्तरशः प्रोक्त आसुरं पार्थ मे शृणु ||१६-६||" </br>
+Translate: "16.6 All beings are of two classes: Godly and godless. The Godly I have described; I will now describe the other." </br>
 
 # Prefs
 
