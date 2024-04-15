@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तेषामेवानुकम्पार्थमहमज्ञानजं तमः | नाशयाम्यात्मभावस्थो ज्ञानदीपेन भास्वता ||१०-११||" </br>
-Translate: "10.11 By My grace, I live in their hearts; and I dispel the darkness of ignorance by the shining light of wisdom." </br>
+"शनैः शनैरुपरमेद् बुद्ध्या धृतिगृहीतया | आत्मसंस्थं मनः कृत्वा न किञ्चिदपि चिन्तयेत् ||६-२५||" </br>
+Translate: "6.25 Little by little, by the help of his reason controlled by fortitude, let him attain peace; and, fixing his mind on the Self, let him not think of any other thing." </br>
 
 # Prefs
 
