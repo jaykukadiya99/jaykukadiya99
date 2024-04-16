@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आयुःसत्त्वबलारोग्यसुखप्रीतिविवर्धनाः | रस्याः स्निग्धाः स्थिरा हृद्या आहाराः सात्त्विकप्रियाः ||१७-८||" </br>
-Translate: "17.8 The foods that prolong life and increase purity, vigour, health, cheerfulness and happiness are those that are delicious, soothing, substantial and agreeable. These are loved by the Pure." </br>
+"पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् | व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ||१-३||" </br>
+Translate: "1.3 Revered Father! Behold this mighty host of the Pandavas, paraded by the son of King Drupada, thy wise disciple." </br>
 
 # Prefs
 
