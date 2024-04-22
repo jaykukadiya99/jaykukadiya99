@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एवं प्रवर्तितं चक्रं नानुवर्तयतीह यः | अघायुरिन्द्रियारामो मोघं पार्थ स जीवति ||३-१६||" </br>
-Translate: "3.16 Thus he who does not help the revolving wheel of sacrifice, but instead leads a sinful life, rejoicing in the gratification of his senses, O Arjuna, he breathes in vain." </br>
+"कट्वम्ललवणात्युष्णतीक्ष्णरूक्षविदाहिनः | आहारा राजसस्येष्टा दुःखशोकामयप्रदाः ||१७-९||" </br>
+Translate: "17.9 Those in whom Passion is dominant like foods that are bitter, sour, salty, over-hot, pungent, dry and burning. These produce unhappiness, repentance and disease." </br>
 
 # Prefs
 
