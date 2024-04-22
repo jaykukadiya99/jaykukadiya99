@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मयाध्यक्षेण प्रकृतिः सूयते सचराचरम् | हेतुनानेन कौन्तेय जगद्विपरिवर्तते ||९-१०||" </br>
-Translate: "9.10 Under my guidance, Nature produces all things movable and immovable. Thus it is, O Arjuna, that this universe revolves." </br>
+"अर्जुन उवाच | अयतिः श्रद्धयोपेतो योगाच्चलितमानसः | अप्राप्य योगसंसिद्धिं कां गतिं कृष्ण गच्छति ||६-३७||" </br>
+Translate: "6.37 Arjuna asked: He who fails to control himself, whose mind falls from spiritual contemplation, who attains not perfection but retains his faith, what of him, my Lord?" </br>
 
 # Prefs
 
