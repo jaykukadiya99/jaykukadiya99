@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः | मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ||१८-५६||" </br>
-Translate: "18.56 Relying on Me in all his action and doing them for My sake, he attains, by My Grace, Eternal and Unchangeable Life." </br>
+"आश्चर्यवत्पश्यति कश्चिदेन- माश्चर्यवद्वदति तथैव चान्यः | आश्चर्यवच्चैनमन्यः शृणोति श्रुत्वाप्येनं वेद न चैव कश्चित् ||२-२९||" </br>
+Translate: "2.29 One hears of the Spirit with surprise, another thinks It marvellous, the third listens without comprehending. Thus, though many are told about It, scarcely is there one who knows It." </br>
 
 # Prefs
 
