@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शुक्लकृष्णे गती ह्येते जगतः शाश्वते मते | एकया यात्यनावृत्तिमन्ययावर्तते पुनः ||८-२६||" </br>
-Translate: "8.26 These bright and dark paths out of the world have always existed. Whoso takes the former, returns not; he who chooses the latter, returns.*" </br>
+"सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः | मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ||१८-५६||" </br>
+Translate: "18.56 Relying on Me in all his action and doing them for My sake, he attains, by My Grace, Eternal and Unchangeable Life." </br>
 
 # Prefs
 
