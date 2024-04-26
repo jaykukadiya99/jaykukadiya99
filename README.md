@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बन्धुरात्मात्मनस्तस्य येनात्मैवात्मना जितः | अनात्मनस्तु शत्रुत्वे वर्तेतात्मैव शत्रुवत् ||६-६||" </br>
-Translate: "6.6 To him who has conquered his lower nature by Its help, the Self is a friend, but to him who has not done so, It is an enemy." </br>
+"न हि देहभृता शक्यं त्यक्तुं कर्माण्यशेषतः | यस्तु कर्मफलत्यागी स त्यागीत्यभिधीयते ||१८-११||" </br>
+Translate: "18.11 But since those still in the body cannot entirely avoid action, in their case abandonment of the fruit of action is considered as complete renunciation." </br>
 
 # Prefs
 
