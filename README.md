@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रागी कर्मफलप्रेप्सुर्लुब्धो हिंसात्मकोऽशुचिः | हर्षशोकान्वितः कर्ता राजसः परिकीर्तितः ||१८-२७||" </br>
-Translate: "18.27 In him who is impulsive, greedy, looking for reward, violent, impure, torn between joy and sorrow,it may be assumed that in him Passion is predominant." </br>
+"शौर्यं तेजो धृतिर्दाक्ष्यं युद्धे चाप्यपलायनम् | दानमीश्वरभावश्च क्षात्रं कर्म स्वभावजम् ||१८-४३||" </br>
+Translate: "18.43 Valour, glory, firmness, skill, generosity, steadiness in battle and ability to rule - these constitute the duty of a soldier. They flow from his own nature." </br>
 
 # Prefs
 
