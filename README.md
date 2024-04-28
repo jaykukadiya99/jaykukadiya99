@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सहयज्ञाः प्रजाः सृष्ट्वा पुरोवाच प्रजापतिः | अनेन प्रसविष्यध्वमेष वोऽस्त्विष्टकामधुक् ||३-१०||" </br>
-Translate: "3.10 In the beginning, when God created all beings by the sacrifice of Himself, He said unto them: Through sacrifice you can procreate, and it shall satisfy all your desires." </br>
+"अहं सर्वस्य प्रभवो मत्तः सर्वं प्रवर्तते | इति मत्वा भजन्ते मां बुधा भावसमन्विताः ||१०-८||" </br>
+Translate: "10.8 I am the source of all; from Me everything flows. Therefore the wise worship Me with unchanging devotion." </br>
 
 # Prefs
 
