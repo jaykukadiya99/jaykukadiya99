@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दुःखमित्येव यत्कर्म कायक्लेशभयात्त्यजेत् | स कृत्वा राजसं त्यागं नैव त्यागफलं लभेत् ||१८-८||" </br>
-Translate: "18.8 To avoid an action through fear of physical suffering, because it is likely to be painful, is to act from passion, and the benefit of renunciation will not follow." </br>
+"तत्र सत्त्वं निर्मलत्वात्प्रकाशकमनामयम् | सुखसङ्गेन बध्नाति ज्ञानसङ्गेन चानघ ||१४-६||" </br>
+Translate: "14.6 O Sinless One! Of these, Purity, being luminous, strong and invulnerable, binds one by its yearning for happiness and illumination." </br>
 
 # Prefs
 
