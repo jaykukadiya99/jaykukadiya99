@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सखेति मत्वा प्रसभं यदुक्तं हे कृष्ण हे यादव हे सखेति | अजानता महिमानं तवेदं मया प्रमादात्प्रणयेन वापि ||११-४१||" </br>
-Translate: "11.41 Whatever I have said unto Thee in rashness, taking Thee only for a friend and addressing Thee as O Krishna! O Yadava! O Friend!' in thoughtless familiarity, no understanding Thy greatness;" </br>
+"महर्षयः सप्त पूर्वे चत्वारो मनवस्तथा | मद्भावा मानसा जाता येषां लोक इमाः प्रजाः ||१०-६||" </br>
+Translate: "10.6 The seven Great Seers,* the Progenitors of mankind, the Ancient Four,** and the Lawgivers were born of My Will and come forth direct from Me. The race of mankind has sprung from them. [* Mareechi, Atri, Angira, Pulah, Kratu, Pulastya, Vahishta. ** The Masters: Sanak, Sanandan, Sanatan, Sanatkumar.]" </br>
 
 # Prefs
 
