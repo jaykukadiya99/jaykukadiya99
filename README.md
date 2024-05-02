@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बाह्यस्पर्शेष्वसक्तात्मा विन्दत्यात्मनि यत्सुखम् | स ब्रह्मयोगयुक्तात्मा सुखमक्षयमश्नुते ||५-२१||" </br>
-Translate: "5.21 He finds happiness in his own Self, and enjoys eternal bliss, whose heart does not yearn for the contacts of earth and whose Self is one with the Everlasting." </br>
+"भयाद्रणादुपरतं मंस्यन्ते त्वां महारथाः | येषां च त्वं बहुमतो भूत्वा यास्यसि लाघवम् ||२-३५||" </br>
+Translate: "2.35 Great generals will think that thou hast fled from the battlefield through cowardice; though once honoured thou wilt seem despicable." </br>
 
 # Prefs
 
