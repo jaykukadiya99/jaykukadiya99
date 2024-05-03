@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्रोणं च भीष्मं च जयद्रथं च कर्णं तथान्यानपि योधवीरान् | मया हतांस्त्वं जहि मा व्यथिष्ठा युध्यस्व जेतासि रणे सपत्नान् ||११-३४||" </br>
-Translate: "11.34 Drona and Bheeshma, Jayadratha and Karna, and other brave warriors - I have condemned them all. Destroy them; fight and fear not. Thy foes shall be crushed."" </br>
+"गतसङ्गस्य मुक्तस्य ज्ञानावस्थितचेतसः | यज्ञायाचरतः कर्म समग्रं प्रविलीयते ||४-२३||" </br>
+Translate: "4.23 He who is without attachment, free, his mind centered in wisdom, his actions, being done as a sacrifice, leave no trace behind." </br>
 
 # Prefs
 
