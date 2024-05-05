@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया | उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिनः ||४-३४||" </br>
-Translate: "4.34 This shalt thou learn by prostrating thyself at the Master's feet, by questioning Him and by serving Him. The wise who have realised the Truth will teach thee wisdom." </br>
+"सत्त्वं रजस्तम इति गुणाः प्रकृतिसम्भवाः | निबध्नन्ति महाबाहो देहे देहिनमव्ययम् ||१४-५||" </br>
+Translate: "14.5 Purity, Passion and Ignorance are the Qualities which the Law of nature bringeth forth. They fetter the free Spirit in all beings." </br>
 
 # Prefs
 
