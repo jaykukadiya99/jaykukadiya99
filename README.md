@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मनुष्याणां सहस्रेषु कश्चिद्यतति सिद्धये | यततामपि सिद्धानां कश्चिन्मां वेत्ति तत्त्वतः ||७-३||" </br>
-Translate: "7.3 Among thousands of men scarcely one strives for perfection, and even amongst those who gain occult powers, perchance but one knows me in truth." </br>
+"तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया | उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिनः ||४-३४||" </br>
+Translate: "4.34 This shalt thou learn by prostrating thyself at the Master's feet, by questioning Him and by serving Him. The wise who have realised the Truth will teach thee wisdom." </br>
 
 # Prefs
 
