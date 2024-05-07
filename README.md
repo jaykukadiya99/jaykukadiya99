@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ | समदुःखसुखं धीरं सोऽमृतत्वाय कल्पते ||२-१५||" </br>
-Translate: "2.15 The hero whose soul is unmoved by circumstance, who accepts pleasure and pain with equanimity, only he is fit for immortality." </br>
+"अर्जुन उवाच | कथं भीष्ममहं सङ्ख्ये द्रोणं च मधुसूदन | इषुभिः प्रतियोत्स्यामि पूजार्हावरिसूदन ||२-४||" </br>
+Translate: "2.4 Arjuna argued: My Lord! How can I, when the battle rages, send an arrow through Bheeshma and Drona, who should receive my reverence?" </br>
 
 # Prefs
 
