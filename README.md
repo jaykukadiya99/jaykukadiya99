@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तत्रैकाग्रं मनः कृत्वा यतचित्तेन्द्रियक्रियः | उपविश्यासने युञ्ज्याद्योगमात्मविशुद्धये ||६-१२||" </br>
-Translate: "6.12 Seated thus, his mind concentrated, its functions controlled and his senses governed, let him practise meditation for the purification of his lower nature." </br>
+"यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ | समदुःखसुखं धीरं सोऽमृतत्वाय कल्पते ||२-१५||" </br>
+Translate: "2.15 The hero whose soul is unmoved by circumstance, who accepts pleasure and pain with equanimity, only he is fit for immortality." </br>
 
 # Prefs
 
