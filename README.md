@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ये हि संस्पर्शजा भोगा दुःखयोनय एव ते | आद्यन्तवन्तः कौन्तेय न तेषु रमते बुधः ||५-२२||" </br>
-Translate: "5.22 The joys that spring from external associations bring pain; they have their beginning and their endings. The wise man does not rejoice in them." </br>
+"अहंकारं बलं दर्पं कामं क्रोधं च संश्रिताः | मामात्मपरदेहेषु प्रद्विषन्तोऽभ्यसूयकाः ||१६-१८||" </br>
+Translate: "16.18 Puffed up by power and inordinate conceit, swayed by lust and wrath, these wicked people hate Me Who am within them, as I am within all." </br>
 
 # Prefs
 
