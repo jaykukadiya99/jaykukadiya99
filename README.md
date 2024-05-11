@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"योगस्थः कुरु कर्माणि सङ्गं त्यक्त्वा धनञ्जय | सिद्ध्यसिद्ध्योः समो भूत्वा समत्वं योग उच्यते ||२-४८||" </br>
-Translate: "2.48 Perform all thy actions with mind concentrated on the Divine, renouncing attachment and looking upon success and failure with an equal eye. Spirituality implies equanimity." </br>
+"श्रीभगवानुवाच | मया प्रसन्नेन तवार्जुनेदं रूपं परं दर्शितमात्मयोगात् | तेजोमयं विश्वमनन्तमाद्यं यन्मे त्वदन्येन न दृष्टपूर्वम् ||११-४७||" </br>
+Translate: "11.47 Lord Shri Krishna replied: My beloved friend! It is only through My grace and power that thou hast been able to see this vision of splendour, the Universal, the Infinite, the Original. Never has it been seen by any but thee." </br>
 
 # Prefs
 
