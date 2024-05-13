@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"हतो वा प्राप्स्यसि स्वर्गं जित्वा वा भोक्ष्यसे महीम् | तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः ||२-३७||" </br>
-Translate: "2.37 If killed, thou shalt attain Heaven; if victorious, enjoy the kingdom of earth. Therefore arise, O Son of Kunti, and fight!" </br>
+"यदृच्छालाभसन्तुष्टो द्वन्द्वातीतो विमत्सरः | समः सिद्धावसिद्धौ च कृत्वापि न निबध्यते ||४-२२||" </br>
+Translate: "4.22 Content with what comes to him without effort of his own, mounting above the pairs of opposites, free from envy, his mind balanced both in success and failure; though he acts, yet the consequences do not bind him." </br>
 
 # Prefs
 
