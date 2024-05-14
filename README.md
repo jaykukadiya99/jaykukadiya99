@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अपि चेदसि पापेभ्यः सर्वेभ्यः पापकृत्तमः | सर्वं ज्ञानप्लवेनैव वृजिनं सन्तरिष्यसि ||४-३६||" </br>
-Translate: "4.36 Be thou the greatest of sinners, yet thou shalt cross over all sin by the ferryboat of wisdom." </br>
+"न मां दुष्कृतिनो मूढाः प्रपद्यन्ते नराधमाः | माययापहृतज्ञाना आसुरं भावमाश्रिताः ||७-१५||" </br>
+Translate: "7.15 The sinner, the ignorant, the vile, deprived of spiritual perception by the glamour of Illusion, and he who pursues a godless life - none of them shall find Me." </br>
 
 # Prefs
 
