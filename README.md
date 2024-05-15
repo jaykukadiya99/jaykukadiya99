@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तेषां सततयुक्तानां भजतां प्रीतिपूर्वकम् | ददामि बुद्धियोगं तं येन मामुपयान्ति ते ||१०-१०||" </br>
-Translate: "10.10 To those who are always devout and who worship Me with love, I give the power of discrimination, which leads them to Me." </br>
+"नादत्ते कस्यचित्पापं न चैव सुकृतं विभुः | अज्ञानेनावृतं ज्ञानं तेन मुह्यन्ति जन्तवः ||५-१५||" </br>
+Translate: "5.15 The Lord does not accept responsibility for any man's sin or merit. Men are deluded because in them wisdom is submerged in ignorance." </br>
 
 # Prefs
 
