@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ज्ञानं तेऽहं सविज्ञानमिदं वक्ष्याम्यशेषतः | यज्ज्ञात्वा नेह भूयोऽन्यज्ज्ञातव्यमवशिष्यते ||७-२||" </br>
-Translate: "7.2 I will reveal to this knowledge unto thee, and how it may be realised; which, once accomplished, there remains nothing else worth having in this life." </br>
+"ऊर्ध्वं गच्छन्ति सत्त्वस्था मध्ये तिष्ठन्ति राजसाः | जघन्यगुणवृत्तिस्था अधो गच्छन्ति तामसाः ||१४-१८||" </br>
+Translate: "14.18 When Purity is in the ascendant, the man evolves; when Passion, he neither evolves nor degenerates; when Ignorance, he is lost." </br>
 
 # Prefs
 
