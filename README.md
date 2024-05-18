@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न च मत्स्थानि भूतानि पश्य मे योगमैश्वरम् | भूतभृन्न च भूतस्थो ममात्मा भूतभावनः ||९-५||" </br>
-Translate: "9.5 Nevertheless, they do not consciously abide in Me. Such is My Divine Sovereignty that though I, the Supreme Self, am the cause and upholder of all, yet I remain outside." </br>
+"कविं पुराणमनुशासितार- मणोरणीयंसमनुस्मरेद्यः | सर्वस्य धातारमचिन्त्यरूप- मादित्यवर्णं तमसः परस्तात् ||८-९||" </br>
+Translate: "8.9 Whoso meditates on the Omniscient, the Ancient, more minute than the atom, yet the Ruler and Upholder of all, Unimaginable, Brilliant like the Sun, Beyond the reach of darkness;" </br>
 
 # Prefs
 
