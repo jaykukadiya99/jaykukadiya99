@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अत्र शूरा महेष्वासा भीमार्जुनसमा युधि | युयुधानो विराटश्च द्रुपदश्च महारथः ||१-४||" </br>
-Translate: "1.4 In it are heroes and great bowmen; the equals in battle of Arjuna and Bheema, Yuyudhana, Virata and Drupada, great soldiers all;" </br>
+"श्रीभगवानुवाच | प्रजहाति यदा कामान्सर्वान्पार्थ मनोगतान् | आत्मन्येवात्मना तुष्टः स्थितप्रज्ञस्तदोच्यते ||२-५५||" </br>
+Translate: "2.55 Lord Shri Krishna replied: When a man has given up the desires of his heart and is satisfied with the Self alone, be sure that he has reached the highest state." </br>
 
 # Prefs
 
