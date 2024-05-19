@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रयाणकाले मनसाऽचलेन भक्त्या युक्तो योगबलेन चैव | भ्रुवोर्मध्ये प्राणमावेश्य सम्यक् स तं परं पुरुषमुपैति दिव्यम् ||८-१०||" </br>
-Translate: "8.10 He who leaves the body with mind unmoved and filled with devotion, by the power of his meditation gathering between his eyebrows his whole vital energy, attains the Supreme." </br>
+"सङ्करो नरकायैव कुलघ्नानां कुलस्य च | पतन्ति पितरो ह्येषां लुप्तपिण्डोदकक्रियाः ||१-४२||" </br>
+Translate: "1.42 Promiscuity ruins both the family and those who defile it; while the souls of our ancestors droop, through lack of the funeral cakes and ablutions." </br>
 
 # Prefs
 
