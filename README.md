@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु | मामेवैष्यसि युक्त्वैवमात्मानं मत्परायणः ||९-३४||" </br>
-Translate: "9.34 Fix thy mind on Me, devote thyself to Me, sacrifice for Me, surrender to Me, make Me the object of thy aspirations, and thou shalt assuredly become one with Me, Who am thine own Self."" </br>
+"न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत् | कार्यते ह्यवशः कर्म सर्वः प्रकृतिजैर्गुणैः ||३-५||" </br>
+Translate: "3.5 He cannot even for a moment remain really inactive, for the Qualities of Nature will compel him to act whether he will or no." </br>
 
 # Prefs
 
