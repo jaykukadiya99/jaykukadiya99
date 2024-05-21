@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न हि प्रपश्यामि ममापनुद्याद् यच्छोकमुच्छोषणमिन्द्रियाणाम् | अवाप्य भूमावसपत्नमृद्धं राज्यं सुराणामपि चाधिपत्यम् ||२-८||" </br>
-Translate: "2.8 For should I attain the monarchy of the visible world, or over the invisible world, it would not drive away the anguish which is now paralysing my senses."" </br>
+"यत्तु प्रत्युपकारार्थं फलमुद्दिश्य वा पुनः | दीयते च परिक्लिष्टं तद्दानं राजसं स्मृतम् ||१७-२१||" </br>
+Translate: "17.21 That which is given for the sake of the results it will produce, or with the hope of recompense,or grudgingly - that may truly be said to be the outcome of Passion." </br>
 
 # Prefs
 
