@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यो मामेवमसम्मूढो जानाति पुरुषोत्तमम् | स सर्वविद्भजति मां सर्वभावेन भारत ||१५-१९||" </br>
-Translate: "15.19 He who with unclouded vision sees Me as the Lord-God, knows all there is to be known, and always shall worship Me with his whole heart." </br>
+"सर्वेन्द्रियगुणाभासं सर्वेन्द्रियविवर्जितम् | असक्तं सर्वभृच्चैव निर्गुणं गुणभोक्तृ च ||१३-१५||" </br>
+Translate: "13.15 Beyond the senses, It yet shines through every sense perception. Bound to nothing, It yet sustains everything. Unaffected by the Qualities, It still enjoys them all." </br>
 
 # Prefs
 
