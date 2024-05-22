@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मयाध्यक्षेण प्रकृतिः सूयते सचराचरम् | हेतुनानेन कौन्तेय जगद्विपरिवर्तते ||९-१०||" </br>
-Translate: "9.10 Under my guidance, Nature produces all things movable and immovable. Thus it is, O Arjuna, that this universe revolves." </br>
+"निमित्तानि च पश्यामि विपरीतानि केशव | न च श्रेयोऽनुपश्यामि हत्वा स्वजनमाहवे ||१-३१||" </br>
+Translate: "1.31 The omens are adverse; what good can come from the slaughter of my people on this battlefield?" </br>
 
 # Prefs
 
