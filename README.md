@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्करोषि यदश्नासि यज्जुहोषि ददासि यत् | यत्तपस्यसि कौन्तेय तत्कुरुष्व मदर्पणम् ||९-२७||" </br>
-Translate: "9.27 Whatever thou doest, whatever thou dost eat, whatever thou dost sacrifice and give, whatever austerities thou practisest, do all as an offering to Me." </br>
+"इन्द्रियार्थेषु वैराग्यमनहंकार एव च | जन्ममृत्युजराव्याधिदुःखदोषानुदर्शनम् ||१३-९||" </br>
+Translate: "13.9 Renunciation of the delights of sense, absence of pride, right understanding of the painful problem of birth and death, of age and sickness;" </br>
 
 # Prefs
 
