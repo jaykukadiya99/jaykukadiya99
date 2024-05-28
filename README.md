@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यज्ञशिष्टाशिनः सन्तो मुच्यन्ते सर्वकिल्बिषैः | भुञ्जते ते त्वघं पापा ये पचन्त्यात्मकारणात् ||३-१३||" </br>
-Translate: "3.13 The sages who enjoy the food that remains after the sacrifice is made are freed from all sin; but the selfish who spread their feast only for themselves feed on sin only." </br>
+"आश्चर्यवत्पश्यति कश्चिदेन- माश्चर्यवद्वदति तथैव चान्यः | आश्चर्यवच्चैनमन्यः शृणोति श्रुत्वाप्येनं वेद न चैव कश्चित् ||२-२९||" </br>
+Translate: "2.29 One hears of the Spirit with surprise, another thinks It marvellous, the third listens without comprehending. Thus, though many are told about It, scarcely is there one who knows It." </br>
 
 # Prefs
 
