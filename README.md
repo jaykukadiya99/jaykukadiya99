@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अध्यात्मज्ञाननित्यत्वं तत्त्वज्ञानार्थदर्शनम् | एतज्ज्ञानमिति प्रोक्तमज्ञानं यदतोऽन्यथा ||१३-१२||" </br>
-Translate: "13.12 Constant yearning for the knowledge of Self, and pondering over the lessons of the great Truth - this is Wisdom, all else ignorance." </br>
+"प्रयाणकाले मनसाऽचलेन भक्त्या युक्तो योगबलेन चैव | भ्रुवोर्मध्ये प्राणमावेश्य सम्यक् स तं परं पुरुषमुपैति दिव्यम् ||८-१०||" </br>
+Translate: "8.10 He who leaves the body with mind unmoved and filled with devotion, by the power of his meditation gathering between his eyebrows his whole vital energy, attains the Supreme." </br>
 
 # Prefs
 
