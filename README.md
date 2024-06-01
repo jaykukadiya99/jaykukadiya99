@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एवं बुद्धेः परं बुद्ध्वा संस्तभ्यात्मानमात्मना | जहि शत्रुं महाबाहो कामरूपं दुरासदम् ||३-४३||" </br>
-Translate: "3.43 Thus, O Mighty-in-Arms, knowing Him to be beyond the intellect and, by His help, subduing thy personal egotism, kill thine enemy, Desire, extremely difficult though it be."" </br>
+"आढ्योऽभिजनवानस्मि कोऽन्योऽस्ति सदृशो मया | यक्ष्ये दास्यामि मोदिष्य इत्यज्ञानविमोहिताः ||१६-१५||" </br>
+Translate: "16.15 I am rich, I am well-bred; who is there to compare with me? I will sacrifice, I will give, I will pay - and I will enjoy. Thus blinded by Ignorance," </br>
 
 # Prefs
 
