@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"युञ्जन्नेवं सदात्मानं योगी नियतमानसः | शान्तिं निर्वाणपरमां मत्संस्थामधिगच्छति ||६-१५||" </br>
-Translate: "6.15 Thus keeping his mind always in communion with Me, and with his thoughts subdued, he shall attain that Peace which is mine and which will lead him to liberation at last." </br>
+"एवं बुद्धेः परं बुद्ध्वा संस्तभ्यात्मानमात्मना | जहि शत्रुं महाबाहो कामरूपं दुरासदम् ||३-४३||" </br>
+Translate: "3.43 Thus, O Mighty-in-Arms, knowing Him to be beyond the intellect and, by His help, subduing thy personal egotism, kill thine enemy, Desire, extremely difficult though it be."" </br>
 
 # Prefs
 
