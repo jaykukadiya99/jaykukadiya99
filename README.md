@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा भूतपृथग्भावमेकस्थमनुपश्यति | तत एव च विस्तारं ब्रह्म सम्पद्यते तदा ||१३-३१||" </br>
-Translate: "13.31 He who sees the diverse forms of life all rooted in One, and growing forth from Him, he shall indeed find the Absolute." </br>
+"सर्वाणीन्द्रियकर्माणि प्राणकर्माणि चापरे | आत्मसंयमयोगाग्नौ जुह्वति ज्ञानदीपिते ||४-२७||" </br>
+Translate: "4.27 Other again sacrifice their activities and their vitality in the Spiritual fire of self-abnegation, kindled by wisdom." </br>
 
 # Prefs
 
