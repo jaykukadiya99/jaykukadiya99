@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न मे विदुः सुरगणाः प्रभवं न महर्षयः | अहमादिर्हि देवानां महर्षीणां च सर्वशः ||१०-२||" </br>
-Translate: "10.2 Neither the professors of divinity nor the great ascetics know My origin, for I am the source of them all." </br>
+"अर्जुन उवाच | संन्यासं कर्मणां कृष्ण पुनर्योगं च शंससि | यच्छ्रेय एतयोरेकं तन्मे ब्रूहि सुनिश्चितम् ||५-१||" </br>
+Translate: "5.1 "Arjuna said: My Lord! At one moment Thou praisest renunciation of action; at another, right action. Tell me truly, I pray, which of these is the more conducive to my highest welfare?" </br>
 
 # Prefs
 
