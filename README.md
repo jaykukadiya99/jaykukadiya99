@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अजोऽपि सन्नव्ययात्मा भूतानामीश्वरोऽपि सन् | प्रकृतिं स्वामधिष्ठाय सम्भवाम्यात्ममायया ||४-६||" </br>
-Translate: "4.6 have no beginning. Though I am imperishable, as well as Lord of all that exists, yet by My own will and power do I manifest Myself." </br>
+"सञ्जय उवाच | एवमुक्त्वा ततो राजन्महायोगेश्वरो हरिः | दर्शयामास पार्थाय परमं रूपमैश्वरम् ||११-९||" </br>
+Translate: "11.9 Sanjaya continued: "Having thus spoken, O King, the Lord Shri Krishna, the Almighty Prince of Wisdom, showed to Arjuna the Supreme Form of the Great God." </br>
 
 # Prefs
 
