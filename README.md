@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्र काले त्वनावृत्तिमावृत्तिं चैव योगिनः | प्रयाता यान्ति तं कालं वक्ष्यामि भरतर्षभ ||८-२३||" </br>
-Translate: "8.23 *Now I will tell thee, O Arjuna, of the times at which, if the mystics go forth, they do not return, and at which they go forth only to return." </br>
+"अहं सर्वस्य प्रभवो मत्तः सर्वं प्रवर्तते | इति मत्वा भजन्ते मां बुधा भावसमन्विताः ||१०-८||" </br>
+Translate: "10.8 I am the source of all; from Me everything flows. Therefore the wise worship Me with unchanging devotion." </br>
 
 # Prefs
 
