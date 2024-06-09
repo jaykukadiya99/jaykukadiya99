@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अद्वेष्टा सर्वभूतानां मैत्रः करुण एव च | निर्ममो निरहङ्कारः समदुःखसुखः क्षमी ||१२-१३||" </br>
-Translate: "12.13 He who is incapable of hatred towards any being, who is kind and compassionate, free from selfishness, without pride, equable in pleasure and in pain, and forgiving," </br>
+"कट्वम्ललवणात्युष्णतीक्ष्णरूक्षविदाहिनः | आहारा राजसस्येष्टा दुःखशोकामयप्रदाः ||१७-९||" </br>
+Translate: "17.9 Those in whom Passion is dominant like foods that are bitter, sour, salty, over-hot, pungent, dry and burning. These produce unhappiness, repentance and disease." </br>
 
 # Prefs
 
