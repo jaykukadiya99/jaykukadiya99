@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यो मामजमनादिं च वेत्ति लोकमहेश्वरम् | असम्मूढः स मर्त्येषु सर्वपापैः प्रमुच्यते ||१०-३||" </br>
-Translate: "10.3 He who knows Me as the unborn, without beginning, the Lord of the universe, he, stripped of his delusion, becomes free from all conceivable sin." </br>
+"सञ्जय उवाच | एवमुक्तो हृषीकेशो गुडाकेशेन भारत | सेनयोरुभयोर्मध्ये स्थापयित्वा रथोत्तमम् ||१-२४||" </br>
+Translate: "1.24 Sanjaya said: "Having listened to the request of Arjuna, Lord Shri Krishna drew up His bright chariot exactly in the midst between the two armies," </br>
 
 # Prefs
 
