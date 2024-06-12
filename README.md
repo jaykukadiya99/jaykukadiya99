@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सन्नियम्येन्द्रियग्रामं सर्वत्र समबुद्धयः | ते प्राप्नुवन्ति मामेव सर्वभूतहिते रताः ||१२-४||" </br>
-Translate: "12.4 Subduing their senses, viewing all conditions of life with the same eye, and working for the welfare of all beings, assuredly they come to Me." </br>
+"विद्याविनयसम्पन्ने ब्राह्मणे गवि हस्तिनि | शुनि चैव श्वपाके च पण्डिताः समदर्शिनः ||५-१८||" </br>
+Translate: "5.18 Sages look equally upon all, whether he be a minister of learning and humility, or an infidel, or whether it be a cow, an elephant or a dog." </br>
 
 # Prefs
 
