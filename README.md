@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वृष्णीनां वासुदेवोऽस्मि पाण्डवानां धनञ्जयः | मुनीनामप्यहं व्यासः कवीनामुशना कविः ||१०-३७||" </br>
-Translate: "10.37 I am Shri Krishna among the Vishnu-clan and Arjuna among the Pandavas; of the saints I am Vyasa, and I am Shukracharya among the sages." </br>
+"रजस्तमश्चाभिभूय सत्त्वं भवति भारत | रजः सत्त्वं तमश्चैव तमः सत्त्वं रजस्तथा ||१४-१०||" </br>
+Translate: "14.10 O Prince! Purity prevails when Passion and Ignorance are overcome; Passion, when Purity and Ignorance are overcome; and Ignorance when it overcomes Purity and Passion." </br>
 
 # Prefs
 
