@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तत्रापश्यत्स्थितान्पार्थः पितॄनथ पितामहान् | आचार्यान्मातुलान्भ्रातॄन्पुत्रान्पौत्रान्सखींस्तथा ||१-२६||" </br>
-Translate: "1.26 There Arjuna noticed fathers, grandfathers, uncles, cousins, sons, grandsons, teachers, friends;" </br>
+"लभन्ते ब्रह्मनिर्वाणमृषयः क्षीणकल्मषाः | छिन्नद्वैधा यतात्मानः सर्वभूतहिते रताः ||५-२५||" </br>
+Translate: "5.25 Sages whose sins have been washed away, whose sense of separateness has vanished, who have subdued themselves, and seek only the welfare of all, come to the Eternal Spirit." </br>
 
 # Prefs
 
