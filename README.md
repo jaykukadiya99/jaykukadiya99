@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदग्रे चानुबन्धे च सुखं मोहनमात्मनः | निद्रालस्यप्रमादोत्थं तत्तामसमुदाहृतम् ||१८-३९||" </br>
-Translate: "18.39 While the pleasure which from first to last merely drugs the senses, which springs from indolence, lethargy and folly - that pleasure flows from Ignorance." </br>
+"यामिमां पुष्पितां वाचं प्रवदन्त्यविपश्चितः | वेदवादरताः पार्थ नान्यदस्तीति वादिनः ||२-४२||" </br>
+Translate: "2.42 Only the ignorant speak in figurative language. It is they who extol the letter of the scriptures, saying, There is nothing deeper than this.'" </br>
 
 # Prefs
 
