@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नैव तस्य कृतेनार्थो नाकृतेनेह कश्चन | न चास्य सर्वभूतेषु कश्चिदर्थव्यपाश्रयः ||३-१८||" </br>
-Translate: "3.18 He has nothing to gain by the performance or non-performance of action. His welfare depends not on any contribution that an earthly creature can make." </br>
+"आब्रह्मभुवनाल्लोकाः पुनरावर्तिनोऽर्जुन | मामुपेत्य तु कौन्तेय पुनर्जन्म न विद्यते ||८-१६||" </br>
+Translate: "8.16 The worlds, with the whole realm of creation, come and go; but, O Arjuna, whoso comes to Me, for him there is nor rebirth." </br>
 
 # Prefs
 
