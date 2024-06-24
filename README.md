@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स घोषो धार्तराष्ट्राणां हृदयानि व्यदारयत् | नभश्च पृथिवीं चैव तुमुलोऽभ्यनुनादयन् (or लोव्यनु) ||१-१९||" </br>
-Translate: "1.19 The tumult rent the hearts of the sons of Dhritarashtra, and violently shook heaven and earth with its echo." </br>
+"श्रीभगवानुवाच | अभयं सत्त्वसंशुद्धिर्ज्ञानयोगव्यवस्थितिः | दानं दमश्च यज्ञश्च स्वाध्यायस्तप आर्जवम् ||१६-१||" </br>
+Translate: "16.1 "Lord Shri Krishna continued: Fearlessness, clean living, unceasing concentration on wisdom, readiness to give, self-control, a spirit of sacrifice, regular study of the scriptures, austerities, candour," </br>
 
 # Prefs
 
