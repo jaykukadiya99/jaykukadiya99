@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मजं बुद्धियुक्ता हि फलं त्यक्त्वा मनीषिणः | जन्मबन्धविनिर्मुक्ताः पदं गच्छन्त्यनामयम् ||२-५१||" </br>
-Translate: "2.51 The sages guided by Pure Intellect renounce the fruit of action; and, freed from the chains of rebirth, they reach the highest bliss." </br>
+"मूढग्राहेणात्मनो यत्पीडया क्रियते तपः | परस्योत्सादनार्थं वा तत्तामसमुदाहृतम् ||१७-१९||" </br>
+Translate: "17.19 Austerity done under delusion, and accompanied with sorcery or torture to oneself or another, may be assumed to spring from Ignorance." </br>
 
 # Prefs
 
