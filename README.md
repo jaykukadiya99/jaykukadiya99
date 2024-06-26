@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्लेशोऽधिकतरस्तेषामव्यक्तासक्तचेतसाम् | अव्यक्ता हि गतिर्दुःखं देहवद्भिरवाप्यते ||१२-५||" </br>
-Translate: "12.5 But they who thus fix their attention on the Absolute and Impersonal encounter greater hardships, for it is difficult for those who possess a body to realise Me as without one." </br>
+"भयाद्रणादुपरतं मंस्यन्ते त्वां महारथाः | येषां च त्वं बहुमतो भूत्वा यास्यसि लाघवम् ||२-३५||" </br>
+Translate: "2.35 Great generals will think that thou hast fled from the battlefield through cowardice; though once honoured thou wilt seem despicable." </br>
 
 # Prefs
 
