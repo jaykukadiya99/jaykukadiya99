@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतान्यपि तु कर्माणि सङ्गं त्यक्त्वा फलानि च | कर्तव्यानीति मे पार्थ निश्चितं मतमुत्तमम् ||१८-६||" </br>
-Translate: "18.6 But they should be done with detachment and without thought of recompense. This is my final judgment." </br>
+"सर्वकर्माणि मनसा संन्यस्यास्ते सुखं वशी | नवद्वारे पुरे देही नैव कुर्वन्न कारयन् ||५-१३||" </br>
+Translate: "5.13 Mentally renouncing all actions, the self-controlled soul enjoys bliss in this body, the city of the nine gates, neither doing anything himself nor causing anything to be done." </br>
 
 # Prefs
 
