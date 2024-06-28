@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्रोपरमते चित्तं निरुद्धं योगसेवया | यत्र चैवात्मनात्मानं पश्यन्नात्मनि तुष्यति ||६-२०||" </br>
-Translate: "6.20 There, where the whole nature is seen in the light of the Self, where the man abides within his Self and is satisfied there, its functions restrained by its union with the Divine, the mind finds rest." </br>
+"तस्मात्सर्वेषु कालेषु मामनुस्मर युध्य च | मय्यर्पितमनोबुद्धिर्मामेवैष्यस्यसंशयः (orसंशयम्) ||८-७||" </br>
+Translate: "8.7 Therefore meditate always on Me, and fight; if thy mind and thy reason be fixed on Me, to Me shalt thou surely come." </br>
 
 # Prefs
 
