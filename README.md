@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अमानित्वमदम्भित्वमहिंसा क्षान्तिरार्जवम् | आचार्योपासनं शौचं स्थैर्यमात्मविनिग्रहः ||१३-८||" </br>
-Translate: "13.8 Humility, sincerity, harmlessness, forgiveness, rectitude, service of the Master, purity, steadfastness, self-control;" </br>
+"कर्मणो ह्यपि बोद्धव्यं बोद्धव्यं च विकर्मणः | अकर्मणश्च बोद्धव्यं गहना कर्मणो गतिः ||४-१७||" </br>
+Translate: "4.17 It is necessary to consider what is right action, what is wrong action, and what is inaction, for mysterious is the law of action." </br>
 
 # Prefs
 
