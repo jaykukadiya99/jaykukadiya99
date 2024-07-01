@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यामिमां पुष्पितां वाचं प्रवदन्त्यविपश्चितः | वेदवादरताः पार्थ नान्यदस्तीति वादिनः ||२-४२||" </br>
-Translate: "2.42 Only the ignorant speak in figurative language. It is they who extol the letter of the scriptures, saying, There is nothing deeper than this.'" </br>
+"शरीरं यदवाप्नोति यच्चाप्युत्क्रामतीश्वरः | गृहीत्वैतानि संयाति वायुर्गन्धानिवाशयात् ||१५-८||" </br>
+Translate: "15.8 When the Supreme Lord enters a body or leaves it, He gathers these senses together and travels on with them, as the wind gathers perfume while passing through the flowers." </br>
 
 # Prefs
 
