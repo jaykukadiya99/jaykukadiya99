@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मयि चानन्ययोगेन भक्तिरव्यभिचारिणी | विविक्तदेशसेवित्वमरतिर्जनसंसदि ||१३-११||" </br>
-Translate: "13.11 Unswerving devotion to Me, by concentration on Me and Me alone, a love for solitude, indifference to social life;" </br>
+"भवाप्ययौ हि भूतानां श्रुतौ विस्तरशो मया | त्वत्तः कमलपत्राक्ष माहात्म्यमपि चाव्ययम् ||११-२||" </br>
+Translate: "11.2 O Lord, whose eyes are like the lotus petal! Thou hast described in detail the origin and the dissolution of being, and Thine own Eternal Majesty." </br>
 
 # Prefs
 
