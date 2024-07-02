@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यान्ति देवव्रता देवान्पितॄन्यान्ति पितृव्रताः | भूतानि यान्ति भूतेज्या यान्ति मद्याजिनोऽपि माम् ||९-२५||" </br>
-Translate: "9.25 The votaries of the lesser Powers go to them; the devotees of spirits go to them; they who worship the Powers of Darkness, to such Powers shall they go; and so, too, those who worship Me shall come to Me." </br>
+"मयि चानन्ययोगेन भक्तिरव्यभिचारिणी | विविक्तदेशसेवित्वमरतिर्जनसंसदि ||१३-११||" </br>
+Translate: "13.11 Unswerving devotion to Me, by concentration on Me and Me alone, a love for solitude, indifference to social life;" </br>
 
 # Prefs
 
