@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न काङ्क्षे विजयं कृष्ण न च राज्यं सुखानि च | किं नो राज्येन गोविन्द किं भोगैर्जीवितेन वा ||१-३२||" </br>
-Translate: "1.32 Ah my Lord! I crave not for victory, nor for the kingdom, nor for any pleasure. What were a kingdom or happiness or life to me," </br>
+"कर्मण्यकर्म यः पश्येदकर्मणि च कर्म यः | स बुद्धिमान्मनुष्येषु स युक्तः कृत्स्नकर्मकृत् ||४-१८||" </br>
+Translate: "4.18 He who can see inaction in action, and action in inaction, is the wisest among men. He is a saint, even though he still acts." </br>
 
 # Prefs
 
