@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अच्छेद्योऽयमदाह्योऽयमक्लेद्योऽशोष्य एव च | नित्यः सर्वगतः स्थाणुरचलोऽयं सनातनः ||२-२४||" </br>
-Translate: "2.24 It is impenetrable; It can be neither drowned nor scorched nor dried. It is Eternal, All-pervading, Unchanging, Immovable and Most Ancient." </br>
+"श्रीभगवानुवाच | प्रजहाति यदा कामान्सर्वान्पार्थ मनोगतान् | आत्मन्येवात्मना तुष्टः स्थितप्रज्ञस्तदोच्यते ||२-५५||" </br>
+Translate: "2.55 Lord Shri Krishna replied: When a man has given up the desires of his heart and is satisfied with the Self alone, be sure that he has reached the highest state." </br>
 
 # Prefs
 
