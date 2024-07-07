@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वेदाविनाशिनं नित्यं य एनमजमव्ययम् | कथं स पुरुषः पार्थ कं घातयति हन्ति कम् ||२-२१||" </br>
-Translate: "2.21 He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" </br>
+"तेषामेवानुकम्पार्थमहमज्ञानजं तमः | नाशयाम्यात्मभावस्थो ज्ञानदीपेन भास्वता ||१०-११||" </br>
+Translate: "10.11 By My grace, I live in their hearts; and I dispel the darkness of ignorance by the shining light of wisdom." </br>
 
 # Prefs
 
