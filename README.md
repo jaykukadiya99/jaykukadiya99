@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ममैवांशो जीवलोके जीवभूतः सनातनः | मनःषष्ठानीन्द्रियाणि प्रकृतिस्थानि कर्षति ||१५-७||" </br>
-Translate: "15.7 It is only a very small part of My Eternal Self, which is the life of the universe, drawing round itself the six senses, the mind the last, which have their source in Nature." </br>
+"इति गुह्यतमं शास्त्रमिदमुक्तं मयानघ | एतद्बुद्ध्वा बुद्धिमान्स्यात्कृतकृत्यश्च भारत ||१५-२०||" </br>
+Translate: "15.20 Thus, O Sinless One, I have revealed to thee this most mystic knowledge. He who understands gains wisdom and attains the consummation of life."" </br>
 
 # Prefs
 
