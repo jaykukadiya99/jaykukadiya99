@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यतः प्रवृत्तिर्भूतानां येन सर्वमिदं ततम् | स्वकर्मणा तमभ्यर्च्य सिद्धिं विन्दति मानवः ||१८-४६||" </br>
-Translate: "18.46 Man reaches perfection by dedicating his actions to God, Who is the source of all being, and fills everything." </br>
+"नाहं वेदैर्न तपसा न दानेन न चेज्यया | शक्य एवंविधो द्रष्टुं दृष्टवानसि मां यथा ||११-५३||" </br>
+Translate: "11.53 Not by study of the scriptures, or by austerities, not by gifts or sacrifices, is it possible to see Me as thou hast done." </br>
 
 # Prefs
 
