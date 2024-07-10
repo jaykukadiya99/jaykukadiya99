@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वयोनिषु कौन्तेय मूर्तयः सम्भवन्ति याः | तासां ब्रह्म महद्योनिरहं बीजप्रदः पिता ||१४-४||" </br>
-Translate: "14.4 O illustrious son of Kunti! Through whatever wombs men are born, it is the Spirit Itself that conceives, and I am their Father." </br>
+"अभ्यासयोगयुक्तेन चेतसा नान्यगामिना | परमं पुरुषं दिव्यं याति पार्थानुचिन्तयन् ||८-८||" </br>
+Translate: "8.8 He whose mind does not wander, and who is engaged in constant meditation, attains the Supreme Spirit." </br>
 
 # Prefs
 
