@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अभ्यासयोगयुक्तेन चेतसा नान्यगामिना | परमं पुरुषं दिव्यं याति पार्थानुचिन्तयन् ||८-८||" </br>
-Translate: "8.8 He whose mind does not wander, and who is engaged in constant meditation, attains the Supreme Spirit." </br>
+"किरीटिनं गदिनं चक्रिणं च तेजोराशिं सर्वतो दीप्तिमन्तम् | पश्यामि त्वां दुर्निरीक्ष्यं समन्ताद् दीप्तानलार्कद्युतिमप्रमेयम् ||११-१७||" </br>
+Translate: "11.17 I see thee with the crown, the sceptre and the discus; a blaze of splendour. Scarce can I gaze on thee, so radiant thou art, glowing like the blazing fire, brilliant as the sun, immeasurable." </br>
 
 # Prefs
 
