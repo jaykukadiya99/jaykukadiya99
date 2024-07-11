@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"किरीटिनं गदिनं चक्रिणं च तेजोराशिं सर्वतो दीप्तिमन्तम् | पश्यामि त्वां दुर्निरीक्ष्यं समन्ताद् दीप्तानलार्कद्युतिमप्रमेयम् ||११-१७||" </br>
-Translate: "11.17 I see thee with the crown, the sceptre and the discus; a blaze of splendour. Scarce can I gaze on thee, so radiant thou art, glowing like the blazing fire, brilliant as the sun, immeasurable." </br>
+"तस्मात्त्वमिन्द्रियाण्यादौ नियम्य भरतर्षभ | पाप्मानं प्रजहि ह्येनं ज्ञानविज्ञाननाशनम् ||३-४१||" </br>
+Translate: "3.41 Therefore, O Arjuna, first control thy senses and then slay desire, for it is full of sin, and is the destroyer of knowledge and of wisdom." </br>
 
 # Prefs
 
