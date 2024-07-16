@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्षेत्रक्षेत्रज्ञयोरेवमन्तरं ज्ञानचक्षुषा | भूतप्रकृतिमोक्षं च ये विदुर्यान्ति ते परम् ||१३-३५||" </br>
-Translate: "13.35 Those who with the eyes of wisdom thus see the difference between Matter and Spirit, and know how to liberate Life from the Law of Nature, they attain the Supreme."" </br>
+"अयनेषु च सर्वेषु यथाभागमवस्थिताः | भीष्ममेवाभिरक्षन्तु भवन्तः सर्व एव हि ||१-११||" </br>
+Translate: "1.11 Therefore in the rank and file, let stand firm in their posts, according to battalions; and all you generals about Bheeshma." </br>
 
 # Prefs
 
