@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नमः पुरस्तादथ पृष्ठतस्ते नमोऽस्तु ते सर्वत एव सर्व | अनन्तवीर्यामितविक्रमस्त्वं सर्वं समाप्नोषि ततोऽसि सर्वः ||११-४०||" </br>
-Translate: "11.40 Salutations to Thee in front and on every side, Thou who encompasseth me round about. Thy power is infinite; Thy majesty immeasurable; thou upholdest all things; yea,Thou Thyself art All." </br>
+"सुखमात्यन्तिकं यत्तद् बुद्धिग्राह्यमतीन्द्रियम् | वेत्ति यत्र न चैवायं स्थितश्चलति तत्त्वतः ||६-२१||" </br>
+Translate: "6.21 When he enjoys the Bliss which passes sense, and which only the Pure Intellect can grasp, when he comes to rest within his own highest Self, never again will he stray from reality." </br>
 
 # Prefs
 
