@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अध्यात्मज्ञाननित्यत्वं तत्त्वज्ञानार्थदर्शनम् | एतज्ज्ञानमिति प्रोक्तमज्ञानं यदतोऽन्यथा ||१३-१२||" </br>
-Translate: "13.12 Constant yearning for the knowledge of Self, and pondering over the lessons of the great Truth - this is Wisdom, all else ignorance." </br>
+"अन्नाद्भवन्ति भूतानि पर्जन्यादन्नसम्भवः | यज्ञाद्भवति पर्जन्यो यज्ञः कर्मसमुद्भवः ||३-१४||" </br>
+Translate: "3.14 All creatures are the product of food, food is the product of rain, rain comes by sacrifice, and sacrifice is the noblest form of action." </br>
 
 # Prefs
 
