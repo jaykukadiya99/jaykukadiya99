@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नासतो विद्यते भावो नाभावो विद्यते सतः | उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभिः ||२-१६||" </br>
-Translate: "2.16 That which is not, shall never be; that which is, shall never cease to be. To the wise, these truths are self-evident." </br>
+"आहारस्त्वपि सर्वस्य त्रिविधो भवति प्रियः | यज्ञस्तपस्तथा दानं तेषां भेदमिमं शृणु ||१७-७||" </br>
+Translate: "17.7 The food which men enjoy is also threefold, like the ways of sacrifice, austerity and almsgiving. Listen to the distinction." </br>
 
 # Prefs
 
