@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनेकवक्त्रनयनमनेकाद्भुतदर्शनम् | अनेकदिव्याभरणं दिव्यानेकोद्यतायुधम् ||११-१०||" </br>
-Translate: "11.10 There were countless eyes and mouths, and mystic forms innumerable, with shining ornaments and flaming celestial weapons." </br>
+"इच्छा द्वेषः सुखं दुःखं संघातश्चेतना धृतिः | एतत्क्षेत्रं समासेन सविकारमुदाहृतम् ||१३-७||" </br>
+Translate: "13.7 Desire, aversion, pleasure, pain, sympathy, vitality and the persistent clinging to life, these are in brief the constituents of changing Matter." </br>
 
 # Prefs
 
