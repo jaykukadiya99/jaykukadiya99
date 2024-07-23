@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मां हि पार्थ व्यपाश्रित्य येऽपि स्युः पापयोनयः | स्त्रियो वैश्यास्तथा शूद्रास्तेऽपि यान्ति परां गतिम् ||९-३२||" </br>
-Translate: "9.32 For even the children of sinful parents, and those miscalled the weaker sex, and merchants, and labourers, if only they will make Me their refuge, they shall attain the Highest." </br>
+"योगिनामपि सर्वेषां मद्गतेनान्तरात्मना | श्रद्धावान्भजते यो मां स मे युक्ततमो मतः ||६-४७||" </br>
+Translate: "6.47 I look upon him as the best of mystics who, full of faith, worshippeth Me and abideth in Me."" </br>
 
 # Prefs
 
