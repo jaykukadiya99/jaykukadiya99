@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वाणीन्द्रियकर्माणि प्राणकर्माणि चापरे | आत्मसंयमयोगाग्नौ जुह्वति ज्ञानदीपिते ||४-२७||" </br>
-Translate: "4.27 Other again sacrifice their activities and their vitality in the Spiritual fire of self-abnegation, kindled by wisdom." </br>
+"अवजानन्ति मां मूढा मानुषीं तनुमाश्रितम् | परं भावमजानन्तो मम भूतमहेश्वरम् ||९-११||" </br>
+Translate: "9.11 Fools disregard Me, seeing Me clad in human form. They know not that in My higher nature I am the Lord-God of all." </br>
 
 # Prefs
 
