@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन | अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ||१-३५||" </br>
-Translate: "1.35 I would not kill them, even for three worlds; why then for this poor earth? It matters not if I myself am killed." </br>
+"यातयामं गतरसं पूति पर्युषितं च यत् | उच्छिष्टमपि चामेध्यं भोजनं तामसप्रियम् ||१७-१०||" </br>
+Translate: "17.10 The Ignorant love food which is stale, not nourishing, putrid and corrupt, the leavings of others and unclean." </br>
 
 # Prefs
 
