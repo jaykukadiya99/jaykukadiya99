@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आत्मौपम्येन सर्वत्र समं पश्यति योऽर्जुन | सुखं वा यदि वा दुःखं स योगी परमो मतः ||६-३२||" </br>
-Translate: "6.32 O Arjuna! He is the perfect saint who, taught by the likeness within himself, sees the same Self everywhere, whether the outer form be pleasurable or painful." </br>
+"ततः श्वेतैर्हयैर्युक्ते महति स्यन्दने स्थितौ | माधवः पाण्डवश्चैव दिव्यौ शङ्खौ प्रदध्मतुः ||१-१४||" </br>
+Translate: "1.14 Then seated in their spacious war chariot, yoked with white horses, Lord Shri Krishna and Arjuna sounded their divine shells." </br>
 
 # Prefs
 
