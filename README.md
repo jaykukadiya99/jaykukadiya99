@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदहंकारमाश्रित्य न योत्स्य इति मन्यसे | मिथ्यैष व्यवसायस्ते प्रकृतिस्त्वां नियोक्ष्यति ||१८-५९||" </br>
-Translate: "18.59 If thou in thy vanity thinkest of avoiding this fight, thy will shall not be fulfilled, for Nature herself will compel thee." </br>
+"भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षिताम् | उवाच पार्थ पश्यैतान्समवेतान्कुरूनिति ||१-२५||" </br>
+Translate: "1.25 Whither Bheeshma and Drona had led all the rulers of the earth, and spoke thus: O Arjuna! Behold these members of the family of Kuru assembled." </br>
 
 # Prefs
 
