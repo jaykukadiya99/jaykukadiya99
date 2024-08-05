@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रसादे सर्वदुःखानां हानिरस्योपजायते | प्रसन्नचेतसो ह्याशु बुद्धिः पर्यवतिष्ठते ||२-६५||" </br>
-Translate: "2.65 Having attained Peace, he becomes free from misery; for when the mind gains peace, right discrimination follows." </br>
+"अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन | प्रयाणकाले च कथं ज्ञेयोऽसि नियतात्मभिः ||८-२||" </br>
+Translate: "8.2 Who is it who rules the spirit sacrifice in many; and at the time of death how may those who have learned self-control come to the knowledge of Thee?" </br>
 
 # Prefs
 
