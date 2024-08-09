@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्षिप्रं भवति धर्मात्मा शश्वच्छान्तिं निगच्छति | कौन्तेय प्रतिजानीहि न मे भक्तः प्रणश्यति ||९-३१||" </br>
-Translate: "9.31 He shall attain spirituality ere long, and Eternal Peace shall be his. O Arjuna! Believe me, My devotee is never lost." </br>
+"आशापाशशतैर्बद्धाः कामक्रोधपरायणाः | ईहन्ते कामभोगार्थमन्यायेनार्थसञ्चयान् ||१६-१२||" </br>
+Translate: "16.12 Caught in the toils of a hundred vain hopes, the slaves of passion and wrath, they accumulate hoards of unjust wealth, only to pander to their sensual desire." </br>
 
 # Prefs
 
