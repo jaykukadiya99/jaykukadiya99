@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ये तु सर्वाणि कर्माणि मयि संन्यस्य मत्परः | अनन्येनैव योगेन मां ध्यायन्त उपासते ||१२-६||" </br>
-Translate: "12.6 Verily, those who surrender their actions to Me, who muse on Me, worship Me and meditate on Me alone, with no thought save of Me," </br>
+"भोगैश्वर्यप्रसक्तानां तयापहृतचेतसाम् | व्यवसायात्मिका बुद्धिः समाधौ न विधीयते ||२-४४||" </br>
+Translate: "2.44 While their minds are absorbed with ideas of power and personal enjoyment, they cannot concentrate their discrimination on one point." </br>
 
 # Prefs
 
