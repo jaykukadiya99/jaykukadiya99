@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनेकचित्तविभ्रान्ता मोहजालसमावृताः | प्रसक्ताः कामभोगेषु पतन्ति नरकेऽशुचौ ||१६-१६||" </br>
-Translate: "16.16 Perplexed by discordant thoughts, entangled in the snares of desire, infatuated by passion, they sink into the horrors of hell." </br>
+"अवजानन्ति मां मूढा मानुषीं तनुमाश्रितम् | परं भावमजानन्तो मम भूतमहेश्वरम् ||९-११||" </br>
+Translate: "9.11 Fools disregard Me, seeing Me clad in human form. They know not that in My higher nature I am the Lord-God of all." </br>
 
 # Prefs
 
