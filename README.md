@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भूमिरापोऽनलो वायुः खं मनो बुद्धिरेव च | अहंकार इतीयं मे भिन्ना प्रकृतिरष्टधा ||७-४||" </br>
-Translate: "7.4 Earth, water, fire, air, ether, mind, intellect and personality; this is the eightfold division of My Manifested Nature." </br>
+"कर्मेन्द्रियाणि संयम्य य आस्ते मनसा स्मरन् | इन्द्रियार्थान्विमूढात्मा मिथ्याचारः स उच्यते ||३-६||" </br>
+Translate: "3.6 He who remains motionless, refusing to act, but all the while brooding over sensuous object, that deluded soul is simply a hypocrite." </br>
 
 # Prefs
 
