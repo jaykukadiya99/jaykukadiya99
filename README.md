@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न मां कर्माणि लिम्पन्ति न मे कर्मफले स्पृहा | इति मां योऽभिजानाति कर्मभिर्न स बध्यते ||४-१४||" </br>
-Translate: "4.14 My actions do not fetter Me, nor do I desire anything that they can bring. He who thus realises Me is not enslaved by action." </br>
+"भूमिरापोऽनलो वायुः खं मनो बुद्धिरेव च | अहंकार इतीयं मे भिन्ना प्रकृतिरष्टधा ||७-४||" </br>
+Translate: "7.4 Earth, water, fire, air, ether, mind, intellect and personality; this is the eightfold division of My Manifested Nature." </br>
 
 # Prefs
 
