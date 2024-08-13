@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कुलक्षये प्रणश्यन्ति कुलधर्माः सनातनाः | धर्मे नष्टे कुलं कृत्स्नमधर्मोऽभिभवत्युत ||१-४०||" </br>
-Translate: "1.40 The destruction of our kindred means the destruction of the traditions of our ancient lineage, and when these are lost, irreligion will overrun our homes." </br>
+"यस्य नाहंकृतो भावो बुद्धिर्यस्य न लिप्यते | हत्वाऽपि स इमाँल्लोकान्न हन्ति न निबध्यते ||१८-१७||" </br>
+Translate: "18.17 He who has no pride, and whose intellect is unalloyed by attachment, even though he kill these people, yet he does not kill them, and his act does not bind him." </br>
 
 # Prefs
 
