@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उत्क्रामन्तं स्थितं वापि भुञ्जानं वा गुणान्वितम् | विमूढा नानुपश्यन्ति पश्यन्ति ज्ञानचक्षुषः ||१५-१०||" </br>
-Translate: "15.10 The ignorant do not see that it is He Who is present in life and Who departs at death or even that it is He Who enjoys pleasure through the Qualities. Only the eye of wisdom sees." </br>
+"नेहाभिक्रमनाशोऽस्ति प्रत्यवायो न विद्यते | स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् ||२-४०||" </br>
+Translate: "2.40 On this Path, endeavour is never wasted, nor can it ever be repressed. Even a very little of its practice protects one from great danger." </br>
 
 # Prefs
 
