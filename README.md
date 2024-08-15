@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहिंसा समता तुष्टिस्तपो दानं यशोऽयशः | भवन्ति भावा भूतानां मत्त एव पृथग्विधाः ||१०-५||" </br>
-Translate: "10.5 Harmlessness, equanimity, contentment, austerity, beneficence, fame and failure, all these, the characteristics of beings, spring from Me only." </br>
+"यत्र योगेश्वरः कृष्णो यत्र पार्थो धनुर्धरः | तत्र श्रीर्विजयो भूतिर्ध्रुवा नीतिर्मतिर्मम ||१८-७८||" </br>
+Translate: "18.78 Wherever is the Lord Shri Krishna, the Prince of Wisdom, and wherever is Arjuna, the Great Archer, I am more than convinced that good fortune, victory, happiness and righteousness will follow"" </br>
 
 # Prefs
 
