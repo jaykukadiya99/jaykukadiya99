@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रद्धया परया तप्तं तपस्तत्त्रिविधं नरैः | अफलाकाङ्क्षिभिर्युक्तैः सात्त्विकं परिचक्षते ||१७-१७||" </br>
-Translate: "17.17 These threefold austerities performed with faith, and without thought of reward, may truly be accounted Pure." </br>
+"श्रीभगवानुवाच | मय्यावेश्य मनो ये मां नित्ययुक्ता उपासते | श्रद्धया परयोपेताः ते मे युक्ततमा मताः ||१२-२||" </br>
+Translate: "12.2 Lord Shri Krishna replied: Those who keep their minds fixed on Me, who worship Me always with unwavering faith and concentration; these are the very best." </br>
 
 # Prefs
 
