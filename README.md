@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मात्रास्पर्शास्तु कौन्तेय शीतोष्णसुखदुःखदाः | आगमापायिनोऽनित्यास्तांस्तितिक्षस्व भारत ||२-१४||" </br>
-Translate: "2.14 Those external relations which bring cold and heat, pain and happiness, they come and go; they are not permanent. Endure them bravely, O Prince!" </br>
+"श्रद्धया परया तप्तं तपस्तत्त्रिविधं नरैः | अफलाकाङ्क्षिभिर्युक्तैः सात्त्विकं परिचक्षते ||१७-१७||" </br>
+Translate: "17.17 These threefold austerities performed with faith, and without thought of reward, may truly be accounted Pure." </br>
 
 # Prefs
 
