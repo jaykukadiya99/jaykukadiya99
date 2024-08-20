@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मामुपेत्य पुनर्जन्म दुःखालयमशाश्वतम् | नाप्नुवन्ति महात्मानः संसिद्धिं परमां गताः ||८-१५||" </br>
-Translate: "8.15 Coming thus unto Me, these great souls go no more to the misery and death of earthly life, for they have gained perfection." </br>
+"उत्तमः पुरुषस्त्वन्यः परमात्मेत्युधाहृतः | यो लोकत्रयमाविश्य बिभर्त्यव्यय ईश्वरः ||१५-१७||" </br>
+Translate: "15.17 But higher than all am I, the Supreme God, the Absolute Self, the Eternal Lord, Who pervades the worlds and upholds them all." </br>
 
 # Prefs
 
