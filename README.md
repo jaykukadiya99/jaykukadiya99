@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ये तु धर्म्यामृतमिदं यथोक्तं पर्युपासते | श्रद्दधाना मत्परमा भक्तास्तेऽतीव मे प्रियाः ||१२-२०||" </br>
-Translate: "12.20 Verily those who love the spiritual wisdom as I have taught, whose faith never fails, and who concentrate their whole nature on Me, they indeed are My most beloved."" </br>
+"चातुर्वर्ण्यं मया सृष्टं गुणकर्मविभागशः | तस्य कर्तारमपि मां विद्ध्यकर्तारमव्ययम् ||४-१३||" </br>
+Translate: "4.13 The four divisions of society (the wise, the soldier, the merchant, the labourer) were created by Me, according to the natural distribution of Qualities and instincts. I am the author of them, though I Myself do no action, and am changeless." </br>
 
 # Prefs
 
