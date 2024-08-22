@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स एवायं मया तेऽद्य योगः प्रोक्तः पुरातनः | भक्तोऽसि मे सखा चेति रहस्यं ह्येतदुत्तमम् ||४-३||" </br>
-Translate: "4.3 It is the same ancient Path that I have now revealed to thee, since thou are My devotee and My friend. It is the supreme Secret." </br>
+"सञ्जय उवाच | एवमुक्त्वा हृषीकेशं गुडाकेशः परन्तप | न योत्स्य इति गोविन्दमुक्त्वा तूष्णीं बभूव ह ||२-९||" </br>
+Translate: "2.9 Sanjaya continued: "Arjuna, the conqueror of all enemies, then told the Lord of All-Hearts that he would no fight, and became silent, O King!" </br>
 
 # Prefs
 
