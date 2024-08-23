@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न काङ्क्षे विजयं कृष्ण न च राज्यं सुखानि च | किं नो राज्येन गोविन्द किं भोगैर्जीवितेन वा ||१-३२||" </br>
-Translate: "1.32 Ah my Lord! I crave not for victory, nor for the kingdom, nor for any pleasure. What were a kingdom or happiness or life to me," </br>
+"स एवायं मया तेऽद्य योगः प्रोक्तः पुरातनः | भक्तोऽसि मे सखा चेति रहस्यं ह्येतदुत्तमम् ||४-३||" </br>
+Translate: "4.3 It is the same ancient Path that I have now revealed to thee, since thou are My devotee and My friend. It is the supreme Secret." </br>
 
 # Prefs
 
