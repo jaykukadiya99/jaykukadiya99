@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रेयो हि ज्ञानमभ्यासाज्ज्ञानाद्ध्यानं विशिष्यते | ध्यानात्कर्मफलत्यागस्त्यागाच्छान्तिरनन्तरम् ||१२-१२||" </br>
-Translate: "12.12 Knowledge is superior to blind action, meditation to mere knowledge, renunciation of the fruit of action to meditation, and where there is renunciation peace will follow." </br>
+"ये तु सर्वाणि कर्माणि मयि संन्यस्य मत्परः | अनन्येनैव योगेन मां ध्यायन्त उपासते ||१२-६||" </br>
+Translate: "12.6 Verily, those who surrender their actions to Me, who muse on Me, worship Me and meditate on Me alone, with no thought save of Me," </br>
 
 # Prefs
 
