@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मच्चित्तः सर्वदुर्गाणि मत्प्रसादात्तरिष्यसि | अथ चेत्त्वमहंकारान्न श्रोष्यसि विनङ्क्ष्यसि ||१८-५८||" </br>
-Translate: "18.58 Fix but thy mind on Me, and by My grace thou shalt overcome the obstacles in thy path. But if, misled by pride, thou wilt not listen, then indeed thou shalt be lost." </br>
+"ज्ञानं तेऽहं सविज्ञानमिदं वक्ष्याम्यशेषतः | यज्ज्ञात्वा नेह भूयोऽन्यज्ज्ञातव्यमवशिष्यते ||७-२||" </br>
+Translate: "7.2 I will reveal to this knowledge unto thee, and how it may be realised; which, once accomplished, there remains nothing else worth having in this life." </br>
 
 # Prefs
 
