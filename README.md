@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् | व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ||१-३||" </br>
-Translate: "1.3 Revered Father! Behold this mighty host of the Pandavas, paraded by the son of King Drupada, thy wise disciple." </br>
+"तस्मात्प्रणम्य प्रणिधाय कायं प्रसादये त्वामहमीशमीड्यम् | पितेव पुत्रस्य सखेव सख्युः प्रियः प्रियायार्हसि देव सोढुम् ||११-४४||" </br>
+Translate: "11.44 Therefore I prostrate myself before Thee, O Lord! Most Adorable! I salute Thee, I ask Thy blessing. Only Thou canst be trusted to bear with me, as father to son, as friend to friend, as lover to his beloved." </br>
 
 # Prefs
 
