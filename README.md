@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"धृतराष्ट्र उवाच | धर्मक्षेत्रे कुरुक्षेत्रे समवेता युयुत्सवः | मामकाः पाण्डवाश्चैव किमकुर्वत सञ्जय ||१-१||" </br>
-Translate: "1.1 The King Dhritarashtra asked: "O Sanjaya! What happened on the sacred battlefield of Kurukshetra, when my people gathered against the Pandavas?"" </br>
+"श्रीभगवानुवाच | पश्य मे पार्थ रूपाणि शतशोऽथ सहस्रशः | नानाविधानि दिव्यानि नानावर्णाकृतीनि च ||११-५||" </br>
+Translate: "11.5 Lord Shri Krishna replied: Behold, O Arjuna! My celestial forms, by hundred and thousands, various in kind, in colour and in shape." </br>
 
 # Prefs
 
