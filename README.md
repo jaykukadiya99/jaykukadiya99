@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्त्वं सुखे सञ्जयति रजः कर्मणि भारत | ज्ञानमावृत्य तु तमः प्रमादे सञ्जयत्युत ||१४-९||" </br>
-Translate: "14.9 Purity brings happiness, Passion commotion, and Ignorance, which obscures wisdom, leads to a life of failure." </br>
+"प्रकृतिं पुरुषं चैव विद्ध्यनादी उभावपि | विकारांश्च गुणांश्चैव विद्धि प्रकृतिसम्भवान् ||१३-२०||" </br>
+Translate: "13.20 Know thou further that Nature and God have no beginning; and that differences of character and quality have their origin in Nature only." </br>
 
 # Prefs
 
