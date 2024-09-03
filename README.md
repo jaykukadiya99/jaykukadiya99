@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अभ्यासयोगयुक्तेन चेतसा नान्यगामिना | परमं पुरुषं दिव्यं याति पार्थानुचिन्तयन् ||८-८||" </br>
-Translate: "8.8 He whose mind does not wander, and who is engaged in constant meditation, attains the Supreme Spirit." </br>
+"क्षेत्रक्षेत्रज्ञयोरेवमन्तरं ज्ञानचक्षुषा | भूतप्रकृतिमोक्षं च ये विदुर्यान्ति ते परम् ||१३-३५||" </br>
+Translate: "13.35 Those who with the eyes of wisdom thus see the difference between Matter and Spirit, and know how to liberate Life from the Law of Nature, they attain the Supreme."" </br>
 
 # Prefs
 
