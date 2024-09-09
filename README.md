@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अपि चेत्सुदुराचारो भजते मामनन्यभाक् | साधुरेव स मन्तव्यः सम्यग्व्यवसितो हि सः ||९-३०||" </br>
-Translate: "9.30 Even the most sinful, if he worship Me with his whole heart, shalt be considered righteous, for he is treading the right path." </br>
+"कुलक्षये प्रणश्यन्ति कुलधर्माः सनातनाः | धर्मे नष्टे कुलं कृत्स्नमधर्मोऽभिभवत्युत ||१-४०||" </br>
+Translate: "1.40 The destruction of our kindred means the destruction of the traditions of our ancient lineage, and when these are lost, irreligion will overrun our homes." </br>
 
 # Prefs
 
