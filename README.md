@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | सेनयोरुभयोर्मध्ये रथं स्थापय मेऽच्युत ||१-२१||" </br>
-Translate: "1.21 Raising his bow, spoke this to the Lord Shri Krishna: O Infallible! Lord of the earth! Please draw up my chariot betwixt the two armies," </br>
+"सर्वद्वाराणि संयम्य मनो हृदि निरुध्य च | मूध्न्यार्धायात्मनः प्राणमास्थितो योगधारणाम् ||८-१२||" </br>
+Translate: "8.12 Closing the gates of the body, drawing the forces of his mind into the heart and by the power of meditation concentrating his vital energy in the brain;" </br>
 
 # Prefs
 
