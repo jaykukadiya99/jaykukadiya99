@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्वौ भूतसर्गौ लोकेऽस्मिन्दैव आसुर एव च | दैवो विस्तरशः प्रोक्त आसुरं पार्थ मे शृणु ||१६-६||" </br>
-Translate: "16.6 All beings are of two classes: Godly and godless. The Godly I have described; I will now describe the other." </br>
+"क्लेशोऽधिकतरस्तेषामव्यक्तासक्तचेतसाम् | अव्यक्ता हि गतिर्दुःखं देहवद्भिरवाप्यते ||१२-५||" </br>
+Translate: "12.5 But they who thus fix their attention on the Absolute and Impersonal encounter greater hardships, for it is difficult for those who possess a body to realise Me as without one." </br>
 
 # Prefs
 
