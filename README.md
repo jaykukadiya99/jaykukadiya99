@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"त्रिविधं नरकस्येदं द्वारं नाशनमात्मनः | कामः क्रोधस्तथा लोभस्तस्मादेतत्त्रयं त्यजेत् ||१६-२१||" </br>
-Translate: "16.21 The gates of hell are three: lust, wrath and avarice. They destroy the Self. Avoid them." </br>
+"देवान्भावयतानेन ते देवा भावयन्तु वः | परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ||३-११||" </br>
+Translate: "3.11 Worship the Powers of Nature thereby, and let them nourish you in return; thus supporting each other, you shall attain your highest welfare." </br>
 
 # Prefs
 
