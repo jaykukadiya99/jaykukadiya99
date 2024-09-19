@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहंकारं बलं दर्पं कामं क्रोधं परिग्रहम् | विमुच्य निर्ममः शान्तो ब्रह्मभूयाय कल्पते ||१८-५३||" </br>
-Translate: "18.53 Having abandoned selfishness, power, arrogance, anger and desire, possessing nothing of his own and having attained peace, he is fit to join the Eternal Spirit." </br>
+"शरीरवाङ्मनोभिर्यत्कर्म प्रारभते नरः | न्याय्यं वा विपरीतं वा पञ्चैते तस्य हेतवः ||१८-१५||" </br>
+Translate: "18.15 Whatever action a man performs, whether by muscular effort or by speech or by thought, and whether it be right or wrong, these five are the essential causes." </br>
 
 # Prefs
 
