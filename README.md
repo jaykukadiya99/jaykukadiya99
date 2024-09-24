@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | मय्यावेश्य मनो ये मां नित्ययुक्ता उपासते | श्रद्धया परयोपेताः ते मे युक्ततमा मताः ||१२-२||" </br>
-Translate: "12.2 Lord Shri Krishna replied: Those who keep their minds fixed on Me, who worship Me always with unwavering faith and concentration; these are the very best." </br>
+"दंष्ट्राकरालानि च ते मुखानि दृष्ट्वैव कालानलसन्निभानि | दिशो न जाने न लभे च शर्म प्रसीद देवेश जगन्निवास ||११-२५||" </br>
+Translate: "11.25 When I see Thy mouths with their fearful jaws like glowing fires at the dissolution of creation, I lose all sense of place; I find no rest. Be merciful, O Lord in whom this universe abides!" </br>
 
 # Prefs
 
