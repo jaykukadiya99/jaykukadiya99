@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उद्धरेदात्मनात्मानं नात्मानमवसादयेत् | आत्मैव ह्यात्मनो बन्धुरात्मैव रिपुरात्मनः ||६-५||" </br>
-Translate: "6.5 Let him seek liberation by the help of his Highest Self, and let him never disgrace his own Self. For that Self is his only friend; yet it may also be his enemy." </br>
+"भूतग्रामः स एवायं भूत्वा भूत्वा प्रलीयते | रात्र्यागमेऽवशः पार्थ प्रभवत्यहरागमे ||८-१९||" </br>
+Translate: "8.19 The same multitude of beings, which have lived on earth so often, all are dissolved as the night of the universe approaches, to issue forth anew when morning breaks. Thus is it ordained." </br>
 
 # Prefs
 
