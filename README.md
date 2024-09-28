@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | एवमुक्तो हृषीकेशो गुडाकेशेन भारत | सेनयोरुभयोर्मध्ये स्थापयित्वा रथोत्तमम् ||१-२४||" </br>
-Translate: "1.24 Sanjaya said: "Having listened to the request of Arjuna, Lord Shri Krishna drew up His bright chariot exactly in the midst between the two armies," </br>
+"ततः पदं तत्परिमार्गितव्यं यस्मिन्गता न निवर्तन्ति भूयः | तमेव चाद्यं पुरुषं प्रपद्ये | यतः प्रवृत्तिः प्रसृता पुराणी ||१५-४||" </br>
+Translate: "15.4 Beyond lies the Path, from which, when found, there is no return. This is the Primal God from whence this ancient creation has sprung." </br>
 
 # Prefs
 
