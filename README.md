@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शुभाशुभफलैरेवं मोक्ष्यसे कर्मबन्धनैः | संन्यासयोगयुक्तात्मा विमुक्तो मामुपैष्यसि ||९-२८||" </br>
-Translate: "9.28 So shall thy action be attended by no result, either good or bad; but through the spirit of renunciation thou shalt come to Me and be free." </br>
+"अनिष्टमिष्टं मिश्रं च त्रिविधं कर्मणः फलम् | भवत्यत्यागिनां प्रेत्य न तु संन्यासिनां क्वचित् ||१८-१२||" </br>
+Translate: "18.12 For those who cannot renounce all desire, the fruit of action hereafter is threefold - good, evil, and partly good and partly evil. But for him who has renounced, there is none." </br>
 
 # Prefs
 
