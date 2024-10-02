@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न कर्मणामनारम्भान्नैष्कर्म्यं पुरुषोऽश्नुते | न च संन्यसनादेव सिद्धिं समधिगच्छति ||३-४||" </br>
-Translate: "3.4 No man can attain freedom from activity by refraining from action; nor can he reach perfection by merely refusing to act." </br>
+"मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु | मामेवैष्यसि सत्यं ते प्रतिजाने प्रियोऽसि मे ||१८-६५||" </br>
+Translate: "18.65 Dedicate thyself to Me, worship Me, sacrifice all for Me, prostrate thyself before Me, and to Me thou shalt surely come. Truly do I pledge thee; thou art My own beloved." </br>
 
 # Prefs
 
