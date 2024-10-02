@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अच्छेद्योऽयमदाह्योऽयमक्लेद्योऽशोष्य एव च | नित्यः सर्वगतः स्थाणुरचलोऽयं सनातनः ||२-२४||" </br>
-Translate: "2.24 It is impenetrable; It can be neither drowned nor scorched nor dried. It is Eternal, All-pervading, Unchanging, Immovable and Most Ancient." </br>
+"न कर्मणामनारम्भान्नैष्कर्म्यं पुरुषोऽश्नुते | न च संन्यसनादेव सिद्धिं समधिगच्छति ||३-४||" </br>
+Translate: "3.4 No man can attain freedom from activity by refraining from action; nor can he reach perfection by merely refusing to act." </br>
 
 # Prefs
 
