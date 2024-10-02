@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"चातुर्वर्ण्यं मया सृष्टं गुणकर्मविभागशः | तस्य कर्तारमपि मां विद्ध्यकर्तारमव्ययम् ||४-१३||" </br>
-Translate: "4.13 The four divisions of society (the wise, the soldier, the merchant, the labourer) were created by Me, according to the natural distribution of Qualities and instincts. I am the author of them, though I Myself do no action, and am changeless." </br>
+"द्वाविमौ पुरुषौ लोके क्षरश्चाक्षर एव च | क्षरः सर्वाणि भूतानि कूटस्थोऽक्षर उच्यते ||१५-१६||" </br>
+Translate: "15.16 There are two aspects in Nature: the perishable and the imperishable. All life in this world belongs to the former, the unchanging element belongs to the latter." </br>
 
 # Prefs
 
