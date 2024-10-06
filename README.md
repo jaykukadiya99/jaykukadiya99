@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनादित्वान्निर्गुणत्वात्परमात्मायमव्ययः | शरीरस्थोऽपि कौन्तेय न करोति न लिप्यते ||१३-३२||" </br>
-Translate: "13.32 The Supreme Spirit, O Prince, is without beginning, without Qualities and Imperishable, and though it be within the body, yet It does not act, nor is It affected by action." </br>
+"यत्तु कामेप्सुना कर्म साहंकारेण वा पुनः | क्रियते बहुलायासं तद्राजसमुदाहृतम् ||१८-२४||" </br>
+Translate: "18.24 But even though an action involve the most strenuous endeavour, yet if the doer is seeking to gratify his desires, and is filled with personal vanity, it may be assumed to originate in Passion." </br>
 
 # Prefs
 
