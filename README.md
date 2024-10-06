@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आचार्याः पितरः पुत्रास्तथैव च पितामहाः | मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा ||१-३४||" </br>
-Translate: "1.34 Teachers, fathers and grandfathers, sons and grandsons, uncles, father-in-law, brothers-in-law and other relatives." </br>
+"श्रीभगवानुवाच | इमं विवस्वते योगं प्रोक्तवानहमव्ययम् | विवस्वान्मनवे प्राह मनुरिक्ष्वाकवेऽब्रवीत् ||४-१||" </br>
+Translate: "4.1 "Lord Shri Krishna said: This imperishable philosophy I taught to Viwaswana, the founder of the Sun dynasty, Viwaswana gave it to Manu the lawgiver, and Manu to King Ikshwaku!" </br>
 
 # Prefs
 
