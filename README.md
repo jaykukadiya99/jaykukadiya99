@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इष्टान्भोगान्हि वो देवा दास्यन्ते यज्ञभाविताः | तैर्दत्तानप्रदायैभ्यो यो भुङ्क्ते स्तेन एव सः ||३-१२||" </br>
-Translate: "3.12 For, fed, on sacrifice, nature will give you all the enjoyment you can desire. But he who enjoys what she gives without returning is, indeed, a robber.'" </br>
+"अर्जुन उवाच | कथं भीष्ममहं सङ्ख्ये द्रोणं च मधुसूदन | इषुभिः प्रतियोत्स्यामि पूजार्हावरिसूदन ||२-४||" </br>
+Translate: "2.4 Arjuna argued: My Lord! How can I, when the battle rages, send an arrow through Bheeshma and Drona, who should receive my reverence?" </br>
 
 # Prefs
 
