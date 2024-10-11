@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उत्सीदेयुरिमे लोका न कुर्यां कर्म चेदहम् | सङ्करस्य च कर्ता स्यामुपहन्यामिमाः प्रजाः ||३-२४||" </br>
-Translate: "3.24 And if I were to refrain from action, the human race would be ruined; I should lead the world to chaos, and destruction would follow." </br>
+"द्यूतं छलयतामस्मि तेजस्तेजस्विनामहम् | जयोऽस्मि व्यवसायोऽस्मि सत्त्वं सत्त्ववतामहम् ||१०-३६||" </br>
+Translate: "10.36 I am the Gambling of the cheat and the Splendour of the splendid; I am Victory; I am Effort; and I am the Purity of the pure." </br>
 
 # Prefs
 
