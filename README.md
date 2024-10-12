@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पुरुषः प्रकृतिस्थो हि भुङ्क्ते प्रकृतिजान्गुणान् | कारणं गुणसङ्गोऽस्य सदसद्योनिजन्मसु ||१३-२२||" </br>
-Translate: "13.22 God dwelling in the heart of Nature experiences the Qualities which nature brings forth; and His affinity towards the Qualities is the reason for His living in a good or evil body." </br>
+"कामक्रोधवियुक्तानां यतीनां यतचेतसाम् | अभितो ब्रह्मनिर्वाणं वर्तते विदितात्मनाम् ||५-२६||" </br>
+Translate: "5.26 Saints who know their Selves, who control their minds, and feel neither desire nor anger, find Eternal Bliss everywhere." </br>
 
 # Prefs
 
