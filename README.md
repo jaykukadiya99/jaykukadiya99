@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्साङ्ख्यैः प्राप्यते स्थानं तद्योगैरपि गम्यते | एकं साङ्ख्यं च योगं च यः पश्यति स पश्यति ||५-५||" </br>
-Translate: "5.5 The level which is reached by wisdom is attained through right action as well. He who perceives that the two are one, knows the truth." </br>
+"अधर्माभिभवात्कृष्ण प्रदुष्यन्ति कुलस्त्रियः | स्त्रीषु दुष्टासु वार्ष्णेय जायते वर्णसङ्करः ||१-४१||" </br>
+Translate: "1.41 When irreligion spreads, the women of the house begin to stray; when they lose their purity, adulteration of the stock follows." </br>
 
 # Prefs
 
