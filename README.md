@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"देवद्विजगुरुप्राज्ञपूजनं शौचमार्जवम् | ब्रह्मचर्यमहिंसा च शारीरं तप उच्यते ||१७-१४||" </br>
-Translate: "17.14 Worship of God and the Master; respect for the preacher and the philosopher; purity, rectitude, continence and harmlessness - all this is physical austerity." </br>
+"यत्साङ्ख्यैः प्राप्यते स्थानं तद्योगैरपि गम्यते | एकं साङ्ख्यं च योगं च यः पश्यति स पश्यति ||५-५||" </br>
+Translate: "5.5 The level which is reached by wisdom is attained through right action as well. He who perceives that the two are one, knows the truth." </br>
 
 # Prefs
 
