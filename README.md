@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यो मां पश्यति सर्वत्र सर्वं च मयि पश्यति | तस्याहं न प्रणश्यामि स च मे न प्रणश्यति ||६-३०||" </br>
-Translate: "6.30 He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." </br>
+"आदित्यानामहं विष्णुर्ज्योतिषां रविरंशुमान् | मरीचिर्मरुतामस्मि नक्षत्राणामहं शशी ||१०-२१||" </br>
+Translate: "10.21 Of all the creative Powers I am the Creator, of luminaries the Sun; the Whirlwind among the winds, and the Moon among planets." </br>
 
 # Prefs
 
