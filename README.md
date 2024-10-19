@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नेहाभिक्रमनाशोऽस्ति प्रत्यवायो न विद्यते | स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् ||२-४०||" </br>
-Translate: "2.40 On this Path, endeavour is never wasted, nor can it ever be repressed. Even a very little of its practice protects one from great danger." </br>
+"यज्ञशिष्टाशिनः सन्तो मुच्यन्ते सर्वकिल्बिषैः | भुञ्जते ते त्वघं पापा ये पचन्त्यात्मकारणात् ||३-१३||" </br>
+Translate: "3.13 The sages who enjoy the food that remains after the sacrifice is made are freed from all sin; but the selfish who spread their feast only for themselves feed on sin only." </br>
 
 # Prefs
 
