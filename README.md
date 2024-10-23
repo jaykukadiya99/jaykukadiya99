@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इदमद्य मया लब्धमिमं प्राप्स्ये मनोरथम् | इदमस्तीदमपि मे भविष्यति पुनर्धनम् ||१६-१३||" </br>
-Translate: "16.13 This I have gained today; tomorrow I will gratify another desire; this wealth is mine now, the rest shall be mine ere long;" </br>
+"न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् | जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ||३-२६||" </br>
+Translate: "3.26 But a wise man should not perturb the minds of the ignorant, who are attached to action; let him perform his own actions in the right spirit, with concentration on Me, thus inspiring all to do the same." </br>
 
 # Prefs
 
