@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | संन्यासं कर्मणां कृष्ण पुनर्योगं च शंससि | यच्छ्रेय एतयोरेकं तन्मे ब्रूहि सुनिश्चितम् ||५-१||" </br>
-Translate: "5.1 "Arjuna said: My Lord! At one moment Thou praisest renunciation of action; at another, right action. Tell me truly, I pray, which of these is the more conducive to my highest welfare?" </br>
+"श्रीभगवानुवाच | काम एष क्रोध एष रजोगुणसमुद्भवः | महाशनो महापाप्मा विद्ध्येनमिह वैरिणम् ||३-३७||" </br>
+Translate: "3.37 Lord Shri Krishna: It is desire, it is aversion, born of passion. Desire consumes and corrupts everything. It is man's greatest enemy." </br>
 
 # Prefs
 
