@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | कथं भीष्ममहं सङ्ख्ये द्रोणं च मधुसूदन | इषुभिः प्रतियोत्स्यामि पूजार्हावरिसूदन ||२-४||" </br>
-Translate: "2.4 Arjuna argued: My Lord! How can I, when the battle rages, send an arrow through Bheeshma and Drona, who should receive my reverence?" </br>
+"ज्ञानं ज्ञेयं परिज्ञाता त्रिविधा कर्मचोदना | करणं कर्म कर्तेति त्रिविधः कर्मसंग्रहः ||१८-१८||" </br>
+Translate: "18.18 Knowledge, the knower and the object of knowledge, these are the three incentives to action; and the act, the actor and the instrument are the threefold constituents." </br>
 
 # Prefs
 
