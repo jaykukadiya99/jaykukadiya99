@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्वशुरान्सुहृदश्चैव सेनयोरुभयोरपि | तान्समीक्ष्य स कौन्तेयः सर्वान्बन्धूनवस्थितान् ||१-२७||" </br>
-Translate: "1.27 Fathers-in-law and benefactors, arrayed on both sides. Arjuna then gazed at all those kinsmen before him." </br>
+"न द्वेष्ट्यकुशलं कर्म कुशले नानुषज्जते | त्यागी सत्त्वसमाविष्टो मेधावी छिन्नसंशयः ||१८-१०||" </br>
+Translate: "18.10 The wise man who has attained purity, whose doubts are solved, who is filled with the spirit of self-abnegation, does not shrink from action because it brings pain, nor does he desire it because it brings pleasure." </br>
 
 # Prefs
 
