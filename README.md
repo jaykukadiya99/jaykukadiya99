@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहिंसा सत्यमक्रोधस्त्यागः शान्तिरपैशुनम् | दया भूतेष्वलोलुप्त्वं मार्दवं ह्रीरचापलम् ||१६-२||" </br>
-Translate: "16.2 harmlessness, truth, absence of wrath, renunciation, contentment, straightforwardness, compassion towards all, uncovetousness, courtesy, modesty, constancy," </br>
+"तेषां सततयुक्तानां भजतां प्रीतिपूर्वकम् | ददामि बुद्धियोगं तं येन मामुपयान्ति ते ||१०-१०||" </br>
+Translate: "10.10 To those who are always devout and who worship Me with love, I give the power of discrimination, which leads them to Me." </br>
 
 # Prefs
 
