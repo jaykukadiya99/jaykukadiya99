@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | ज्यायसी चेत्कर्मणस्ते मता बुद्धिर्जनार्दन | तत्किं कर्मणि घोरे मां नियोजयसि केशव ||३-१||" </br>
-Translate: "3.1 "Arjuna questioned: My Lord! If Wisdom is above action, why dost Thou advise me to engage in this terrible fight?" </br>
+"प्रकृतिं पुरुषं चैव विद्ध्यनादी उभावपि | विकारांश्च गुणांश्चैव विद्धि प्रकृतिसम्भवान् ||१३-२०||" </br>
+Translate: "13.20 Know thou further that Nature and God have no beginning; and that differences of character and quality have their origin in Nature only." </br>
 
 # Prefs
 
