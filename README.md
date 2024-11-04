@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बुद्धियुक्तो जहातीह उभे सुकृतदुष्कृते | तस्माद्योगाय युज्यस्व योगः कर्मसु कौशलम् ||२-५०||" </br>
-Translate: "2.50 When a man attains to Pure Reason, he renounces in this world the results of good and evil alike. Cling thou to Right Action. Spirituality is the real art of living." </br>
+"किरीटिनं गदिनं चक्रहस्तं इच्छामि त्वां द्रष्टुमहं तथैव | तेनैव रूपेण चतुर्भुजेन सहस्रबाहो भव विश्वमूर्ते ||११-४६||" </br>
+Translate: "11.46 I long to see Thee as thou wert before, with the crown, the sceptre and the discus in Thy hands; in Thy other Form, with Thy four hands, O Thou Whose arms are countless and Whose forms are infinite." </br>
 
 # Prefs
 
