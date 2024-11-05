@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्तु कृत्स्नवदेकस्मिन्कार्ये सक्तमहैतुकम् | अतत्त्वार्थवदल्पं च तत्तामसमुदाहृतम् ||१८-२२||" </br>
-Translate: "18.22 But that which clings blindly to one idea as if it were all, without logic, truth or insight, that has its origin in Darkness." </br>
+"यो न हृष्यति न द्वेष्टि न शोचति न काङ्क्षति | शुभाशुभपरित्यागी भक्तिमान्यः स मे प्रियः ||१२-१७||" </br>
+Translate: "12.17 He who is beyond joy and hate, who neither laments nor desires, to whom good and evil fortunes are the same, such a one is My beloved." </br>
 
 # Prefs
 
