@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् | जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ||३-२६||" </br>
-Translate: "3.26 But a wise man should not perturb the minds of the ignorant, who are attached to action; let him perform his own actions in the right spirit, with concentration on Me, thus inspiring all to do the same." </br>
+"त्रिविधं नरकस्येदं द्वारं नाशनमात्मनः | कामः क्रोधस्तथा लोभस्तस्मादेतत्त्रयं त्यजेत् ||१६-२१||" </br>
+Translate: "16.21 The gates of hell are three: lust, wrath and avarice. They destroy the Self. Avoid them." </br>
 
 # Prefs
 
