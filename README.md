@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"धृत्या यया धारयते मनःप्राणेन्द्रियक्रियाः | योगेनाव्यभिचारिण्या धृतिः सा पार्थ सात्त्विकी ||१८-३३||" </br>
-Translate: "18.33 The conviction and steady concentration by which the mind, the vitality and the senses are controlled - O Arjuna! They are the product of Purity." </br>
+"ये चैव सात्त्विका भावा राजसास्तामसाश्च ये | मत्त एवेति तान्विद्धि न त्वहं तेषु ते मयि ||७-१२||" </br>
+Translate: "7.12 Whatever be the nature of their life, whether it be pure or passionate or ignorant, they are all derived from Me. They are in Me, but I am not in them." </br>
 
 # Prefs
 
