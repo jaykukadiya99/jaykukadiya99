@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रजस्तमश्चाभिभूय सत्त्वं भवति भारत | रजः सत्त्वं तमश्चैव तमः सत्त्वं रजस्तथा ||१४-१०||" </br>
-Translate: "14.10 O Prince! Purity prevails when Passion and Ignorance are overcome; Passion, when Purity and Ignorance are overcome; and Ignorance when it overcomes Purity and Passion." </br>
+"यदा विनियतं चित्तमात्मन्येवावतिष्ठते | निःस्पृहः सर्वकामेभ्यो युक्त इत्युच्यते तदा ||६-१८||" </br>
+Translate: "6.18 When the mind, completely controlled, is centered in the Self, and free from all earthly desires, then is the man truly spiritual." </br>
 
 # Prefs
 
