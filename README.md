@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आख्याहि मे को भवानुग्ररूपो नमोऽस्तु ते देववर प्रसीद | विज्ञातुमिच्छामि भवन्तमाद्यं न हि प्रजानामि तव प्रवृत्तिम् ||११-३१||" </br>
-Translate: "11.31 Tell me then who Thou art, that wearest this dreadful Form? I bow before Thee, O Mighty One! Have mercy, I pray, and let me see Thee as Thou wert at first. I do not know what Thou intendest." </br>
+"रजस्तमश्चाभिभूय सत्त्वं भवति भारत | रजः सत्त्वं तमश्चैव तमः सत्त्वं रजस्तथा ||१४-१०||" </br>
+Translate: "14.10 O Prince! Purity prevails when Passion and Ignorance are overcome; Passion, when Purity and Ignorance are overcome; and Ignorance when it overcomes Purity and Passion." </br>
 
 # Prefs
 
