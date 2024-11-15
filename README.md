@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अधिष्ठानं तथा कर्ता करणं च पृथग्विधम् | विविधाश्च पृथक्चेष्टा दैवं चैवात्र पञ्चमम् ||१८-१४||" </br>
-Translate: "18.14 They are a body, a personality, physical organs, their manifold activity and destiny." </br>
+"सञ्जय उवाच | तं तथा कृपयाविष्टमश्रुपूर्णाकुलेक्षणम् | विषीदन्तमिदं वाक्यमुवाच मधुसूदनः ||२-१||" </br>
+Translate: "2.1 Sanjaya then told how the Lord Shri Krishna, seeing Arjuna overwhelmed with compassion, his eyes dimmed with flowing tears and full of despondency, consoled him:" </br>
 
 # Prefs
 
