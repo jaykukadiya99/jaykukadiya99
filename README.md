@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ब्रह्मण्याधाय कर्माणि सङ्गं त्यक्त्वा करोति यः | लिप्यते न स पापेन पद्मपत्रमिवाम्भसा ||५-१०||" </br>
-Translate: "5.10 He who dedicates his actions to the Spirit, without any personal attachment to them, he is no more tainted by sin than the water lily is wetted by water." </br>
+"एवं बहुविधा यज्ञा वितता ब्रह्मणो मुखे | कर्मजान्विद्धि तान्सर्वानेवं ज्ञात्वा विमोक्ष्यसे ||४-३२||" </br>
+Translate: "4.32 In this way other sacrifices too may be undergone for the Spirit's sake. Know thou that they all depend on action. Knowing this, thou shalt be free." </br>
 
 # Prefs
 
