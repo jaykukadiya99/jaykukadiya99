@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एवं बहुविधा यज्ञा वितता ब्रह्मणो मुखे | कर्मजान्विद्धि तान्सर्वानेवं ज्ञात्वा विमोक्ष्यसे ||४-३२||" </br>
-Translate: "4.32 In this way other sacrifices too may be undergone for the Spirit's sake. Know thou that they all depend on action. Knowing this, thou shalt be free." </br>
+"किरीटिनं गदिनं चक्रहस्तं इच्छामि त्वां द्रष्टुमहं तथैव | तेनैव रूपेण चतुर्भुजेन सहस्रबाहो भव विश्वमूर्ते ||११-४६||" </br>
+Translate: "11.46 I long to see Thee as thou wert before, with the crown, the sceptre and the discus in Thy hands; in Thy other Form, with Thy four hands, O Thou Whose arms are countless and Whose forms are infinite." </br>
 
 # Prefs
 
