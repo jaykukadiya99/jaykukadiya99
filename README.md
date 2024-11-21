@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्त्वानुरूपा सर्वस्य श्रद्धा भवति भारत | श्रद्धामयोऽयं पुरुषो यो यच्छ्रद्धः स एव सः ||१७-३||" </br>
-Translate: "17.3 The faith of every man conforms to his nature. By nature he is full of faith. He is in fact what his faith makes him." </br>
+"ब्रह्मण्याधाय कर्माणि सङ्गं त्यक्त्वा करोति यः | लिप्यते न स पापेन पद्मपत्रमिवाम्भसा ||५-१०||" </br>
+Translate: "5.10 He who dedicates his actions to the Spirit, without any personal attachment to them, he is no more tainted by sin than the water lily is wetted by water." </br>
 
 # Prefs
 
