@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्र काले त्वनावृत्तिमावृत्तिं चैव योगिनः | प्रयाता यान्ति तं कालं वक्ष्यामि भरतर्षभ ||८-२३||" </br>
-Translate: "8.23 *Now I will tell thee, O Arjuna, of the times at which, if the mystics go forth, they do not return, and at which they go forth only to return." </br>
+"मामुपेत्य पुनर्जन्म दुःखालयमशाश्वतम् | नाप्नुवन्ति महात्मानः संसिद्धिं परमां गताः ||८-१५||" </br>
+Translate: "8.15 Coming thus unto Me, these great souls go no more to the misery and death of earthly life, for they have gained perfection." </br>
 
 # Prefs
 
