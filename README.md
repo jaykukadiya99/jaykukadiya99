@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | संन्यासस्य महाबाहो तत्त्वमिच्छामि वेदितुम् | त्यागस्य च हृषीकेश पृथक्केशिनिषूदन ||१८-१||" </br>
-Translate: "18.1 "Arjuna asked: O mighty One! I desire to know how relinquishment is distinguished from renunciation." </br>
+"यदग्रे चानुबन्धे च सुखं मोहनमात्मनः | निद्रालस्यप्रमादोत्थं तत्तामसमुदाहृतम् ||१८-३९||" </br>
+Translate: "18.39 While the pleasure which from first to last merely drugs the senses, which springs from indolence, lethargy and folly - that pleasure flows from Ignorance." </br>
 
 # Prefs
 
