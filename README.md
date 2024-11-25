@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सखेति मत्वा प्रसभं यदुक्तं हे कृष्ण हे यादव हे सखेति | अजानता महिमानं तवेदं मया प्रमादात्प्रणयेन वापि ||११-४१||" </br>
-Translate: "11.41 Whatever I have said unto Thee in rashness, taking Thee only for a friend and addressing Thee as O Krishna! O Yadava! O Friend!' in thoughtless familiarity, no understanding Thy greatness;" </br>
+"बुद्धियुक्तो जहातीह उभे सुकृतदुष्कृते | तस्माद्योगाय युज्यस्व योगः कर्मसु कौशलम् ||२-५०||" </br>
+Translate: "2.50 When a man attains to Pure Reason, he renounces in this world the results of good and evil alike. Cling thou to Right Action. Spirituality is the real art of living." </br>
 
 # Prefs
 
