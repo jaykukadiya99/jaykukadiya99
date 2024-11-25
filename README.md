@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बुद्धियुक्तो जहातीह उभे सुकृतदुष्कृते | तस्माद्योगाय युज्यस्व योगः कर्मसु कौशलम् ||२-५०||" </br>
-Translate: "2.50 When a man attains to Pure Reason, he renounces in this world the results of good and evil alike. Cling thou to Right Action. Spirituality is the real art of living." </br>
+"न च मां तानि कर्माणि निबध्नन्ति धनञ्जय | उदासीनवदासीनमसक्तं तेषु कर्मसु ||९-९||" </br>
+Translate: "9.9 But these acts of mine do not bind Me. I remain outside and unattached." </br>
 
 # Prefs
 
