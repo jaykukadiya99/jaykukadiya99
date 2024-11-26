@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यद्यद्विभूतिमत्सत्त्वं श्रीमदूर्जितमेव वा | तत्तदेवावगच्छ त्वं मम तेजोंऽशसम्भवम् ||१०-४१||" </br>
-Translate: "10.41 Whatever is glorious, excellent, beautiful and mighty, be assured that it comes from a fragment of My splendour." </br>
+"अक्षराणामकारोऽस्मि द्वन्द्वः सामासिकस्य च | अहमेवाक्षयः कालो धाताहं विश्वतोमुखः ||१०-३३||" </br>
+Translate: "10.33 Of letters I am A; I am the copulative in compound words; I am Time inexhaustible; and I am the all-pervading Preserver." </br>
 
 # Prefs
 
