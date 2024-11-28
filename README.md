@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ये मे मतमिदं नित्यमनुतिष्ठन्ति मानवाः | श्रद्धावन्तोऽनसूयन्तो मुच्यन्ते तेऽपि कर्मभिः ||३-३१||" </br>
-Translate: "3.31 Those who always act in accordance with My precepts, firm in faith and without cavilling, they too are freed from the bondage of action." </br>
+"आश्चर्यवत्पश्यति कश्चिदेन- माश्चर्यवद्वदति तथैव चान्यः | आश्चर्यवच्चैनमन्यः शृणोति श्रुत्वाप्येनं वेद न चैव कश्चित् ||२-२९||" </br>
+Translate: "2.29 One hears of the Spirit with surprise, another thinks It marvellous, the third listens without comprehending. Thus, though many are told about It, scarcely is there one who knows It." </br>
 
 # Prefs
 
