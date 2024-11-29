@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आश्चर्यवत्पश्यति कश्चिदेन- माश्चर्यवद्वदति तथैव चान्यः | आश्चर्यवच्चैनमन्यः शृणोति श्रुत्वाप्येनं वेद न चैव कश्चित् ||२-२९||" </br>
-Translate: "2.29 One hears of the Spirit with surprise, another thinks It marvellous, the third listens without comprehending. Thus, though many are told about It, scarcely is there one who knows It." </br>
+"समं पश्यन्हि सर्वत्र समवस्थितमीश्वरम् | न हिनस्त्यात्मनात्मानं ततो याति परां गतिम् ||१३-२९||" </br>
+Translate: "13.29 Beholding the Lord in all things equally, his actions do not mar his spiritual life but lead him to the height of Bliss." </br>
 
 # Prefs
 
