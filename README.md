@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"साधिभूताधिदैवं मां साधियज्ञं च ये विदुः | प्रयाणकालेऽपि च मां ते विदुर्युक्तचेतसः ||७-३०||" </br>
-Translate: "7.30 Those who see Me in the life of the world, in the universal sacrifice, and as pure Divinity, keeping their minds steady, they live in Me, even in the crucial hour of death."" </br>
+"वासांसि जीर्णानि यथा विहाय नवानि गृह्णाति नरोऽपराणि | तथा शरीराणि विहाय जीर्णा- न्यन्यानि संयाति नवानि देही ||२-२२||" </br>
+Translate: "2.22 As a man discards his threadbare robes and puts on new, so the Spirit throws off Its worn-out bodies and takes fresh ones." </br>
 
 # Prefs
 
