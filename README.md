@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | परं भूयः प्रवक्ष्यामि ज्ञानानां ज्ञानमुत्तमम् | यज्ज्ञात्वा मुनयः सर्वे परां सिद्धिमितो गताः ||१४-१||" </br>
-Translate: "14.1 "Lord Shri Krishna continued: Now I will reveal unto the Wisdom which is beyond knowledge, by attaining which the sages have reached Perfection." </br>
+"साधिभूताधिदैवं मां साधियज्ञं च ये विदुः | प्रयाणकालेऽपि च मां ते विदुर्युक्तचेतसः ||७-३०||" </br>
+Translate: "7.30 Those who see Me in the life of the world, in the universal sacrifice, and as pure Divinity, keeping their minds steady, they live in Me, even in the crucial hour of death."" </br>
 
 # Prefs
 
