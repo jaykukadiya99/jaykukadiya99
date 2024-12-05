@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शुचौ देशे प्रतिष्ठाप्य स्थिरमासनमात्मनः | नात्युच्छ्रितं नातिनीचं चैलाजिनकुशोत्तरम् ||६-११||" </br>
-Translate: "6.11 Having chosen a holy place, let him sit in a firm posture on a seat, neither too high nor too low, and covered with a grass mat, a deer skin and a cloth." </br>
+"पुण्यो गन्धः पृथिव्यां च तेजश्चास्मि विभावसौ | जीवनं सर्वभूतेषु तपश्चास्मि तपस्विषु ||७-९||" </br>
+Translate: "7.9 I am the Fragrance of earth, the Brilliance of fire. I am the Life Force in all beings, and I am the Austerity of the ascetics." </br>
 
 # Prefs
 
