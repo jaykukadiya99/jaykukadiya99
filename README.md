@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः | मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ||१८-५६||" </br>
-Translate: "18.56 Relying on Me in all his action and doing them for My sake, he attains, by My Grace, Eternal and Unchangeable Life." </br>
+"ॐतत्सदिति निर्देशो ब्रह्मणस्त्रिविधः स्मृतः | ब्राह्मणास्तेन वेदाश्च यज्ञाश्च विहिताः पुरा ||१७-२३||" </br>
+Translate: "17.23 Om Tat Sat' is the triple designation of the Eternal Spirit, by which of old the Vedic Scriptures, the ceremonials and the sacrifices were ordained." </br>
 
 # Prefs
 
