@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इदमद्य मया लब्धमिमं प्राप्स्ये मनोरथम् | इदमस्तीदमपि मे भविष्यति पुनर्धनम् ||१६-१३||" </br>
-Translate: "16.13 This I have gained today; tomorrow I will gratify another desire; this wealth is mine now, the rest shall be mine ere long;" </br>
+"बन्धुरात्मात्मनस्तस्य येनात्मैवात्मना जितः | अनात्मनस्तु शत्रुत्वे वर्तेतात्मैव शत्रुवत् ||६-६||" </br>
+Translate: "6.6 To him who has conquered his lower nature by Its help, the Self is a friend, but to him who has not done so, It is an enemy." </br>
 
 # Prefs
 
