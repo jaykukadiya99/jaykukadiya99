@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स्वधर्ममपि चावेक्ष्य न विकम्पितुमर्हसि | धर्म्याद्धि युद्धाच्छ्रेयोऽन्यत्क्षत्रियस्य न विद्यते ||२-३१||" </br>
-Translate: "2.31 Thou must look at thy duty. Nothing can be more welcome to a soldier than a righteous war. Therefore to waver in this resolve is unworthy, O Arjuna!" </br>
+"एतान्यपि तु कर्माणि सङ्गं त्यक्त्वा फलानि च | कर्तव्यानीति मे पार्थ निश्चितं मतमुत्तमम् ||१८-६||" </br>
+Translate: "18.6 But they should be done with detachment and without thought of recompense. This is my final judgment." </br>
 
 # Prefs
 
