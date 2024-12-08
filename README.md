@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतान्यपि तु कर्माणि सङ्गं त्यक्त्वा फलानि च | कर्तव्यानीति मे पार्थ निश्चितं मतमुत्तमम् ||१८-६||" </br>
-Translate: "18.6 But they should be done with detachment and without thought of recompense. This is my final judgment." </br>
+"तत्त्ववित्तु महाबाहो गुणकर्मविभागयोः | गुणा गुणेषु वर्तन्त इति मत्वा न सज्जते ||३-२८||" </br>
+Translate: "3.28 But he, O Mighty One, who understands correctly the relation of the Qualities to action, is not attached to the act for he perceives that it is merely the action and reaction of the Qualities among themselves." </br>
 
 # Prefs
 
