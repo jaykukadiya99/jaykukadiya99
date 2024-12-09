@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः | सुखेन ब्रह्मसंस्पर्शमत्यन्तं सुखमश्नुते ||६-२८||" </br>
-Translate: "6.28 Thus, free from sin, abiding always in the Eternal, the saint enjoys without effort the Bliss which flows from realisation of the Infinite." </br>
+"निश्चयं शृणु मे तत्र त्यागे भरतसत्तम | त्यागो हि पुरुषव्याघ्र त्रिविधः सम्प्रकीर्तितः ||१८-४||" </br>
+Translate: "18.4 O best of Indians! Listen to my judgment as regards this problem. It has a threefold aspect." </br>
 
 # Prefs
 
