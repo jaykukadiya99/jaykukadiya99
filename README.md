@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न त्वेवाहं जातु नासं न त्वं नेमे जनाधिपाः | न चैव न भविष्यामः सर्वे वयमतः परम् ||२-१२||" </br>
-Translate: "2.12 There was never a time when I was not, nor thou, nor these princes were not; there will never be a time when we shall cease to be." </br>
+"असक्तिरनभिष्वङ्गः पुत्रदारगृहादिषु | नित्यं च समचित्तत्वमिष्टानिष्टोपपत्तिषु ||१३-१०||" </br>
+Translate: "13.10 Indifference, non-attachment to sex, progeny or home, equanimity in good fortune and in bad;" </br>
 
 # Prefs
 
