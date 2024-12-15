@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन | अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ||१-३५||" </br>
-Translate: "1.35 I would not kill them, even for three worlds; why then for this poor earth? It matters not if I myself am killed." </br>
+"एषा ब्राह्मी स्थितिः पार्थ नैनां प्राप्य विमुह्यति | स्थित्वास्यामन्तकालेऽपि ब्रह्मनिर्वाणमृच्छति ||२-७२||" </br>
+Translate: "2.72 O Arjuna! This is the state of the Self, the Supreme Spirit, to which if a man once attain, it shall never be taken from him. Even at the time of leaving the body, he will remain firmly enthroned there, and will become one with the Eternal."" </br>
 
 # Prefs
 
