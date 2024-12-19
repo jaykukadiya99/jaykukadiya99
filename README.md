@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"देवान्भावयतानेन ते देवा भावयन्तु वः | परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ||३-११||" </br>
-Translate: "3.11 Worship the Powers of Nature thereby, and let them nourish you in return; thus supporting each other, you shall attain your highest welfare." </br>
+"इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते | एतैर्विमोहयत्येष ज्ञानमावृत्य देहिनम् ||३-४०||" </br>
+Translate: "3.40 It works through the senses, the mind and the reason; and with their help destroys wisdom and confounds the soul." </br>
 
 # Prefs
 
