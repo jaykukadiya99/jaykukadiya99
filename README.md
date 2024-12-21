@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मजं बुद्धियुक्ता हि फलं त्यक्त्वा मनीषिणः | जन्मबन्धविनिर्मुक्ताः पदं गच्छन्त्यनामयम् ||२-५१||" </br>
-Translate: "2.51 The sages guided by Pure Intellect renounce the fruit of action; and, freed from the chains of rebirth, they reach the highest bliss." </br>
+"एतां विभूतिं योगं च मम यो वेत्ति तत्त्वतः | सोऽविकम्पेन योगेन युज्यते नात्र संशयः ||१०-७||" </br>
+Translate: "10.7 He who rightly understands My manifested glory and My Creative Power, beyond doubt attains perfect peace." </br>
 
 # Prefs
 
