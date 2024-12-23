@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्त्वात्सञ्जायते ज्ञानं रजसो लोभ एव च | प्रमादमोहौ तमसो भवतोऽज्ञानमेव च ||१४-१७||" </br>
-Translate: "14.17 Purity engenders Wisdom, Passion avarice, and Ignorance folly, infatuation and darkness." </br>
+"क्लेशोऽधिकतरस्तेषामव्यक्तासक्तचेतसाम् | अव्यक्ता हि गतिर्दुःखं देहवद्भिरवाप्यते ||१२-५||" </br>
+Translate: "12.5 But they who thus fix their attention on the Absolute and Impersonal encounter greater hardships, for it is difficult for those who possess a body to realise Me as without one." </br>
 
 # Prefs
 
