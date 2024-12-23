@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अधर्मं धर्ममिति या मन्यते तमसावृता | सर्वार्थान्विपरीतांश्च बुद्धिः सा पार्थ तामसी ||१८-३२||" </br>
-Translate: "18.32 And that which, shrouded in Ignorance, thinks wrong right, and sees everything perversely, O Arjuna, that intellect is ruled by Darkness." </br>
+"सत्त्वात्सञ्जायते ज्ञानं रजसो लोभ एव च | प्रमादमोहौ तमसो भवतोऽज्ञानमेव च ||१४-१७||" </br>
+Translate: "14.17 Purity engenders Wisdom, Passion avarice, and Ignorance folly, infatuation and darkness." </br>
 
 # Prefs
 
