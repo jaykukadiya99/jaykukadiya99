@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अग्निर्जोतिरहः शुक्लः षण्मासा उत्तरायणम् | तत्र प्रयाता गच्छन्ति ब्रह्म ब्रह्मविदो जनाः ||८-२४||" </br>
-Translate: "8.24 If knowing the Supreme Spirit the sage goes forth with fire and light, in the daytime, in the fortnight of the waxing moon and in the six months before the Northern summer solstice, he will attain the Supreme." </br>
+"स्वे स्वे कर्मण्यभिरतः संसिद्धिं लभते नरः | स्वकर्मनिरतः सिद्धिं यथा विन्दति तच्छृणु ||१८-४५||" </br>
+Translate: "5.10 He who dedicates his actions to the Spirit, without any personal attachment to them, he is no more tainted by sin than the water lily is wetted by water." </br>
 
 # Prefs
 
