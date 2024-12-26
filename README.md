@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अश्रद्धया हुतं दत्तं तपस्तप्तं कृतं च यत् | असदित्युच्यते पार्थ न च तत्प्रेत्य नो इह ||१७-२८||" </br>
-Translate: "17.28 Whatsoever is done without faith, whether it be sacrifice, austerity or gift or anything else, as called Asat' (meaning Unreal') for it is the negation of Sat,' O Arjuna! Such an act has no significance, here or hereafter."" </br>
+"यदा सत्त्वे प्रवृद्धे तु प्रलयं याति देहभृत् | तदोत्तमविदां लोकानमलान्प्रतिपद्यते ||१४-१४||" </br>
+Translate: "14.14 When Purity prevails, the soul on quitting the body passes on to the pure regions where live those who know the Highest." </br>
 
 # Prefs
 
