@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् | उपैति शान्तरजसं ब्रह्मभूतमकल्मषम् ||६-२७||" </br>
-Translate: "6.27 Supreme Bliss is the lot of the sage, whose mind attains Peace, whose passions subside, who is without sin, and who becomes one with the Absolute." </br>
+"ध्यायतो विषयान्पुंसः सङ्गस्तेषूपजायते | सङ्गात्सञ्जायते कामः कामात्क्रोधोऽभिजायते ||२-६२||" </br>
+Translate: "2.62 When a man dwells on the objects of sense, he creates an attraction for them; attraction develops into desire, and desire breeds anger." </br>
 
 # Prefs
 
