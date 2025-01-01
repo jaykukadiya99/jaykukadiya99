@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनेकवक्त्रनयनमनेकाद्भुतदर्शनम् | अनेकदिव्याभरणं दिव्यानेकोद्यतायुधम् ||११-१०||" </br>
-Translate: "11.10 There were countless eyes and mouths, and mystic forms innumerable, with shining ornaments and flaming celestial weapons." </br>
+"प्रलपन्विसृजन्गृह्णन्नुन्मिषन्निमिषन्नपि | इन्द्रियाणीन्द्रियार्थेषु वर्तन्त इति धारयन् ||५-९||" </br>
+Translate: "5.9 Though he talks, though he gives and receives, though he opens his eyes and shuts them, he still knows that his senses are merely disporting themselves among the objects of perception." </br>
 
 # Prefs
 
