@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वेदाहं समतीतानि वर्तमानानि चार्जुन | भविष्याणि च भूतानि मां तु वेद न कश्चन ||७-२६||" </br>
-Translate: "7.26 I know, O Arjuna, all beings in the past, the present and the future; but they do not know Me." </br>
+"त्वमक्षरं परमं वेदितव्यं त्वमस्य विश्वस्य परं निधानम् | त्वमव्ययः शाश्वतधर्मगोप्ता सनातनस्त्वं पुरुषो मतो मे ||११-१८||" </br>
+Translate: "11.18 Imperishable art Thou, the Sole One worthy to be known, the priceless Treasure-house of the universe, the immortal Guardian of the Life Eternal, the Spirit Everlasting." </br>
 
 # Prefs
 
