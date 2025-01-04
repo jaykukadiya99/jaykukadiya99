@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"त्वमक्षरं परमं वेदितव्यं त्वमस्य विश्वस्य परं निधानम् | त्वमव्ययः शाश्वतधर्मगोप्ता सनातनस्त्वं पुरुषो मतो मे ||११-१८||" </br>
-Translate: "11.18 Imperishable art Thou, the Sole One worthy to be known, the priceless Treasure-house of the universe, the immortal Guardian of the Life Eternal, the Spirit Everlasting." </br>
+"ब्रह्मणो हि प्रतिष्ठाहममृतस्याव्ययस्य च | शाश्वतस्य च धर्मस्य सुखस्यैकान्तिकस्य च ||१४-२७||" </br>
+Translate: "14.27 For I am the Home of the Spirit, the continual Source of immortality, of eternal Righteousness and of infinite Joy."" </br>
 
 # Prefs
 
