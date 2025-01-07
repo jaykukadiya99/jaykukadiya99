@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला | समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ||२-५३||" </br>
-Translate: "2.53 When the intellect, bewildered by the multiplicity of holy scripts, stands unperturbed in blissful contemplation of the Infinite, then hast thou attained Spirituality." </br>
+"तस्मात्त्वमुत्तिष्ठ यशो लभस्व जित्वा शत्रून् भुङ्क्ष्व राज्यं समृद्धम् | मयैवैते निहताः पूर्वमेव निमित्तमात्रं भव सव्यसाचिन् ||११-३३||" </br>
+Translate: "11.33 Then gird up thy loins and conquer. Subdue thy foes and enjoy the kingdom in prosperity. I have already doomed them. Be thou my instrument, Arjuna!" </br>
 
 # Prefs
 
