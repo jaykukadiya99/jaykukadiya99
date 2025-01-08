@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रेयो हि ज्ञानमभ्यासाज्ज्ञानाद्ध्यानं विशिष्यते | ध्यानात्कर्मफलत्यागस्त्यागाच्छान्तिरनन्तरम् ||१२-१२||" </br>
-Translate: "12.12 Knowledge is superior to blind action, meditation to mere knowledge, renunciation of the fruit of action to meditation, and where there is renunciation peace will follow." </br>
+"श्रीभगवानुवाच | इमं विवस्वते योगं प्रोक्तवानहमव्ययम् | विवस्वान्मनवे प्राह मनुरिक्ष्वाकवेऽब्रवीत् ||४-१||" </br>
+Translate: "4.1 "Lord Shri Krishna said: This imperishable philosophy I taught to Viwaswana, the founder of the Sun dynasty, Viwaswana gave it to Manu the lawgiver, and Manu to King Ikshwaku!" </br>
 
 # Prefs
 
