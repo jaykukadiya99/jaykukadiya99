@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बाह्यस्पर्शेष्वसक्तात्मा विन्दत्यात्मनि यत्सुखम् | स ब्रह्मयोगयुक्तात्मा सुखमक्षयमश्नुते ||५-२१||" </br>
-Translate: "5.21 He finds happiness in his own Self, and enjoys eternal bliss, whose heart does not yearn for the contacts of earth and whose Self is one with the Everlasting." </br>
+"सञ्जय उवाच | तं तथा कृपयाविष्टमश्रुपूर्णाकुलेक्षणम् | विषीदन्तमिदं वाक्यमुवाच मधुसूदनः ||२-१||" </br>
+Translate: "2.1 Sanjaya then told how the Lord Shri Krishna, seeing Arjuna overwhelmed with compassion, his eyes dimmed with flowing tears and full of despondency, consoled him:" </br>
 
 # Prefs
 
