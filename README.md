@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | अशोच्यानन्वशोचस्त्वं प्रज्ञावादांश्च भाषसे | गतासूनगतासूंश्च नानुशोचन्ति पण्डिताः ||२-११||" </br>
-Translate: "2.11 Lord Shri Krishna said: Why grieve for those for whom no grief is due, and yet profess wisdom? The wise grieve neither for the dead nor the living." </br>
+"बाह्यस्पर्शेष्वसक्तात्मा विन्दत्यात्मनि यत्सुखम् | स ब्रह्मयोगयुक्तात्मा सुखमक्षयमश्नुते ||५-२१||" </br>
+Translate: "5.21 He finds happiness in his own Self, and enjoys eternal bliss, whose heart does not yearn for the contacts of earth and whose Self is one with the Everlasting." </br>
 
 # Prefs
 
