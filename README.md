@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नभःस्पृशं दीप्तमनेकवर्णं व्यात्ताननं दीप्तविशालनेत्रम् | दृष्ट्वा हि त्वां प्रव्यथितान्तरात्मा धृतिं न विन्दामि शमं च विष्णो ||११-२४||" </br>
-Translate: "11.24 When I see Thee, touching the Heavens, glowing with colour, with open mouth and wide open fiery eyes, I am terrified. O My Lord! My courage and peace of mind desert me." </br>
+"मत्कर्मकृन्मत्परमो मद्भक्तः सङ्गवर्जितः | निर्वैरः सर्वभूतेषु यः स मामेति पाण्डव ||११-५५||" </br>
+Translate: "11.55 He whose every action is done for My sake, to whom I am the final goal, who loves Me only and hates no one - O My dearest son, only he can realize Me!"" </br>
 
 # Prefs
 
