@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तपाम्यहमहं वर्षं निगृह्णाम्युत्सृजामि च | अमृतं चैव मृत्युश्च सदसच्चाहमर्जुन ||९-१९||" </br>
-Translate: "9.19 I am the Heat of the Sun, I release and hold back the Rains. I am Death and Immortality; I am Being and Not-Being." </br>
+"इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः | मनसस्तु परा बुद्धिर्यो बुद्धेः परतस्तु सः ||३-४२||" </br>
+Translate: "3.42 It is said that the senses are powerful. But beyond the senses is the mind, beyond the mind is the intellect, and beyond and greater than intellect is He." </br>
 
 # Prefs
 
