@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्लैब्यं मा स्म गमः पार्थ नैतत्त्वय्युपपद्यते | क्षुद्रं हृदयदौर्बल्यं त्यक्त्वोत्तिष्ठ परन्तप ||२-३||" </br>
-Translate: "2.3 O Arjuna! Why give way to unmanliness? O thou who art the terror of thine enemies! Shake off such shameful effeminacy, make ready to act!" </br>
+"तपाम्यहमहं वर्षं निगृह्णाम्युत्सृजामि च | अमृतं चैव मृत्युश्च सदसच्चाहमर्जुन ||९-१९||" </br>
+Translate: "9.19 I am the Heat of the Sun, I release and hold back the Rains. I am Death and Immortality; I am Being and Not-Being." </br>
 
 # Prefs
 
