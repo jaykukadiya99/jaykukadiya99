@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"असौ मया हतः शत्रुर्हनिष्ये चापरानपि | ईश्वरोऽहमहं भोगी सिद्धोऽहं बलवान्सुखी ||१६-१४||" </br>
-Translate: "16.14 I have slain one enemy, I will slay the others also; I am worthy to enjoy, I am the Almighty, I am perfect, powerful and happy;" </br>
+"शरीरवाङ्मनोभिर्यत्कर्म प्रारभते नरः | न्याय्यं वा विपरीतं वा पञ्चैते तस्य हेतवः ||१८-१५||" </br>
+Translate: "18.15 Whatever action a man performs, whether by muscular effort or by speech or by thought, and whether it be right or wrong, these five are the essential causes." </br>
 
 # Prefs
 
