@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यं संन्यासमिति प्राहुर्योगं तं विद्धि पाण्डव | न ह्यसंन्यस्तसङ्कल्पो योगी भवति कश्चन ||६-२||" </br>
-Translate: "6.2 O Arjuna! Renunciation is in fact what is called Right Action. No one can become spiritual who has not renounced all desire." </br>
+"अव्यक्तं व्यक्तिमापन्नं मन्यन्ते मामबुद्धयः | परं भावमजानन्तो ममाव्ययमनुत्तमम् ||७-२४||" </br>
+Translate: "7.24 The ignorant think of Me, who am the Unmanifested Spirit, as if I were really in human form. They do not understand that My Superior Nature is changeless and most excellent." </br>
 
 # Prefs
 
