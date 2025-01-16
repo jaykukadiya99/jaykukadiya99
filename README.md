@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वस्य चाहं हृदि सन्निविष्टो मत्तः स्मृतिर्ज्ञानमपोहनञ्च | वेदैश्च सर्वैरहमेव वेद्यो वेदान्तकृद्वेदविदेव चाहम् ||१५-१५||" </br>
-Translate: "15.15 I am enthroned in the hearts of all; memory, wisdom and discrimination owe their origins to Me. I am He Who is to be realised in the scriptures; I inspire their wisdom and I know their truth." </br>
+"यत्साङ्ख्यैः प्राप्यते स्थानं तद्योगैरपि गम्यते | एकं साङ्ख्यं च योगं च यः पश्यति स पश्यति ||५-५||" </br>
+Translate: "5.5 The level which is reached by wisdom is attained through right action as well. He who perceives that the two are one, knows the truth." </br>
 
 # Prefs
 
