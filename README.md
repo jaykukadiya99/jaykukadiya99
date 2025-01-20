@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्वौ भूतसर्गौ लोकेऽस्मिन्दैव आसुर एव च | दैवो विस्तरशः प्रोक्त आसुरं पार्थ मे शृणु ||१६-६||" </br>
-Translate: "16.6 All beings are of two classes: Godly and godless. The Godly I have described; I will now describe the other." </br>
+"दैवी सम्पद्विमोक्षाय निबन्धायासुरी मता | मा शुचः सम्पदं दैवीमभिजातोऽसि पाण्डव ||१६-५||" </br>
+Translate: "16.5 Godly qualities lead to liberation; godless to bondage. Do not be anxious, Prince! Thou hast the Godly qualities." </br>
 
 # Prefs
 
