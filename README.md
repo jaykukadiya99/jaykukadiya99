@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् | जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ||३-२६||" </br>
-Translate: "3.26 But a wise man should not perturb the minds of the ignorant, who are attached to action; let him perform his own actions in the right spirit, with concentration on Me, thus inspiring all to do the same." </br>
+"अव्यक्ताद् व्यक्तयः सर्वाः प्रभवन्त्यहरागमे | रात्र्यागमे प्रलीयन्ते तत्रैवाव्यक्तसंज्ञके ||८-१८||" </br>
+Translate: "8.18 At the dawning of that day all objects in manifestation stream forth from the Unmanifest, and when evening falls they are dissolved into It again." </br>
 
 # Prefs
 
