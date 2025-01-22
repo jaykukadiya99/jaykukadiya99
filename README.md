@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इहैकस्थं जगत्कृत्स्नं पश्याद्य सचराचरम् | मम देहे गुडाकेश यच्चान्यद् द्रष्टुमिच्छसि ||११-७||" </br>
-Translate: "11.7 Here in Me living as one, O Arjuna, behold the whole universe, movable and immovable, and anything else that thou wouldst see!" </br>
+"यदा विनियतं चित्तमात्मन्येवावतिष्ठते | निःस्पृहः सर्वकामेभ्यो युक्त इत्युच्यते तदा ||६-१८||" </br>
+Translate: "6.18 When the mind, completely controlled, is centered in the Self, and free from all earthly desires, then is the man truly spiritual." </br>
 
 # Prefs
 
