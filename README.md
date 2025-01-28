@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मां हि पार्थ व्यपाश्रित्य येऽपि स्युः पापयोनयः | स्त्रियो वैश्यास्तथा शूद्रास्तेऽपि यान्ति परां गतिम् ||९-३२||" </br>
-Translate: "9.32 For even the children of sinful parents, and those miscalled the weaker sex, and merchants, and labourers, if only they will make Me their refuge, they shall attain the Highest." </br>
+"यदा भूतपृथग्भावमेकस्थमनुपश्यति | तत एव च विस्तारं ब्रह्म सम्पद्यते तदा ||१३-३१||" </br>
+Translate: "13.31 He who sees the diverse forms of life all rooted in One, and growing forth from Him, he shall indeed find the Absolute." </br>
 
 # Prefs
 
