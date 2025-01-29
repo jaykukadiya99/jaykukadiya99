@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"राजविद्या राजगुह्यं पवित्रमिदमुत्तमम् | प्रत्यक्षावगमं धर्म्यं सुसुखं कर्तुमव्ययम् ||९-२||" </br>
-Translate: "9.2 This is the Premier Science, the Sovereign Secret, the Purest and Best; intuitional, righteous; and to him who practiseth it pleasant beyond measure." </br>
+"सीदन्ति मम गात्राणि मुखं च परिशुष्यति | वेपथुश्च शरीरे मे रोमहर्षश्च जायते ||१-२९||" </br>
+Translate: "1.29 My limbs fail me and my throat is parched, my body trembles and my hair stands on end." </br>
 
 # Prefs
 
