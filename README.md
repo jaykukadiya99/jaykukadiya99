@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"समं सर्वेषु भूतेषु तिष्ठन्तं परमेश्वरम् | विनश्यत्स्वविनश्यन्तं यः पश्यति स पश्यति ||१३-२८||" </br>
-Translate: "13.28 He who can see the Supreme Lord in all beings, the Imperishable amidst the perishable, he it is who really sees." </br>
+"अत्र शूरा महेष्वासा भीमार्जुनसमा युधि | युयुधानो विराटश्च द्रुपदश्च महारथः ||१-४||" </br>
+Translate: "1.4 In it are heroes and great bowmen; the equals in battle of Arjuna and Bheema, Yuyudhana, Virata and Drupada, great soldiers all;" </br>
 
 # Prefs
 
