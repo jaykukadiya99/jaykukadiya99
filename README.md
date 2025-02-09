@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | दृष्ट्वा तु पाण्डवानीकं व्यूढं दुर्योधनस्तदा | आचार्यमुपसंगम्य राजा वचनमब्रवीत् ||१-२||" </br>
-Translate: "1.2 Sanjaya replied: "The Prince Duryodhana, when he saw the army of the Pandavas paraded, approached his preceptor Guru Drona and spoke as follows:" </br>
+"श्रीभगवानुवाच | इमं विवस्वते योगं प्रोक्तवानहमव्ययम् | विवस्वान्मनवे प्राह मनुरिक्ष्वाकवेऽब्रवीत् ||४-१||" </br>
+Translate: "4.1 "Lord Shri Krishna said: This imperishable philosophy I taught to Viwaswana, the founder of the Sun dynasty, Viwaswana gave it to Manu the lawgiver, and Manu to King Ikshwaku!" </br>
 
 # Prefs
 
