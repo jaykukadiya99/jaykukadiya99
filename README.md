@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"युक्ताहारविहारस्य युक्तचेष्टस्य कर्मसु | युक्तस्वप्नावबोधस्य योगो भवति दुःखहा ||६-१७||" </br>
-Translate: "6.17 But for him who regulates his food and recreation, who is balanced in action, in sleep and in waking, it shall dispel all unhappiness." </br>
+"ततः स विस्मयाविष्टो हृष्टरोमा धनञ्जयः | प्रणम्य शिरसा देवं कृताञ्जलिरभाषत ||११-१४||" </br>
+Translate: "11.14 Thereupon Arjuna, dumb with awe, his hair on end, his head bowed, his hands clasped in salutation, addressed the Lord thus:" </br>
 
 # Prefs
 
