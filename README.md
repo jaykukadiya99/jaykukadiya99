@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ततः स विस्मयाविष्टो हृष्टरोमा धनञ्जयः | प्रणम्य शिरसा देवं कृताञ्जलिरभाषत ||११-१४||" </br>
-Translate: "11.14 Thereupon Arjuna, dumb with awe, his hair on end, his head bowed, his hands clasped in salutation, addressed the Lord thus:" </br>
+"तं विद्याद् दुःखसंयोगवियोगं योगसंज्ञितम् | स निश्चयेन योक्तव्यो योगोऽनिर्विण्णचेतसा ||६-२३||" </br>
+Translate: "6.23 This inner severance from the affliction of misery is spirituality. It should be practised with determination and with a heart which refuses to be depressed." </br>
 
 # Prefs
 
