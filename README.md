@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अयनेषु च सर्वेषु यथाभागमवस्थिताः | भीष्ममेवाभिरक्षन्तु भवन्तः सर्व एव हि ||१-११||" </br>
-Translate: "1.11 Therefore in the rank and file, let stand firm in their posts, according to battalions; and all you generals about Bheeshma." </br>
+"एतद्योनीनि भूतानि सर्वाणीत्युपधारय | अहं कृत्स्नस्य जगतः प्रभवः प्रलयस्तथा ||७-६||" </br>
+Translate: "7.6 It is the womb of all being; for I am He by Whom the worlds were created and shall be dissolved." </br>
 
 # Prefs
 
