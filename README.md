@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अजोऽपि सन्नव्ययात्मा भूतानामीश्वरोऽपि सन् | प्रकृतिं स्वामधिष्ठाय सम्भवाम्यात्ममायया ||४-६||" </br>
-Translate: "4.6 have no beginning. Though I am imperishable, as well as Lord of all that exists, yet by My own will and power do I manifest Myself." </br>
+"यस्य सर्वे समारम्भाः कामसङ्कल्पवर्जिताः | ज्ञानाग्निदग्धकर्माणं तमाहुः पण्डितं बुधाः ||४-१९||" </br>
+Translate: "4.19 The wise call him a sage, for whatever he undertakes is free from the motive of desire, and his deeds are purified by the fire of Wisdom." </br>
 
 # Prefs
 
