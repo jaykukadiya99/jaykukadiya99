@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अन्ये त्वेवमजानन्तः श्रुत्वान्येभ्य उपासते | तेऽपि चातितरन्त्येव मृत्युं श्रुतिपरायणाः ||१३-२६||" </br>
-Translate: "13.26 Others again, having no direct knowledge but only hearing from others, nevertheless worship, and they, too, if true to the teachings, cross the sea of death." </br>
+"इति ते ज्ञानमाख्यातं गुह्याद्गुह्यतरं मया | विमृश्यैतदशेषेण यथेच्छसि तथा कुरु ||१८-६३||" </br>
+Translate: "18.63 Thus have I revealed to thee the Truth, the Mystery of mysteries. Having thought it over, thou art free to act as thou wilt." </br>
 
 # Prefs
 
