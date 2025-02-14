@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"असक्तबुद्धिः सर्वत्र जितात्मा विगतस्पृहः | नैष्कर्म्यसिद्धिं परमां संन्यासेनाधिगच्छति ||१८-४९||" </br>
-Translate: "18.49 He whose mind is entirely detached, who has conquered himself, whose desires have vanished, by his renunciation reaches that stage of perfect freedom where action completes itself and leaves no seed." </br>
+"यथा सर्वगतं सौक्ष्म्यादाकाशं नोपलिप्यते | सर्वत्रावस्थितो देहे तथात्मा नोपलिप्यते ||१३-३३||" </br>
+Translate: "13.33 As space, though present everywhere, remains by reason of its subtlety unaffected, so the Self, though present in all forms, retains its purity unalloyed." </br>
 
 # Prefs
 
