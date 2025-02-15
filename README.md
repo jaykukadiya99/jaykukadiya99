@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि | ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि ||२-३३||" </br>
-Translate: "2.33 Refuse to fight in this righteous cause, and thou wilt be a traitor, lost to fame, incurring only sin." </br>
+"देहिनोऽस्मिन्यथा देहे कौमारं यौवनं जरा | तथा देहान्तरप्राप्तिर्धीरस्तत्र न मुह्यति ||२-१३||" </br>
+Translate: "2.13 As the soul experiences in this body infancy, youth and old age, so finally it passes into another. The wise have no delusion about this." </br>
 
 # Prefs
 
