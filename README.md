@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उत्तमः पुरुषस्त्वन्यः परमात्मेत्युधाहृतः | यो लोकत्रयमाविश्य बिभर्त्यव्यय ईश्वरः ||१५-१७||" </br>
-Translate: "15.17 But higher than all am I, the Supreme God, the Absolute Self, the Eternal Lord, Who pervades the worlds and upholds them all." </br>
+"इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते | एतैर्विमोहयत्येष ज्ञानमावृत्य देहिनम् ||३-४०||" </br>
+Translate: "3.40 It works through the senses, the mind and the reason; and with their help destroys wisdom and confounds the soul." </br>
 
 # Prefs
 
