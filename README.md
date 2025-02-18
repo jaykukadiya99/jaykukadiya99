@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बलं बलवतां चाहं कामरागविवर्जितम् | धर्माविरुद्धो भूतेषु कामोऽस्मि भरतर्षभ ||७-११||" </br>
-Translate: "7.11 I am the Strength of the strong, of them who are free from attachment and desire; and, O Arjuna, I am the Desire for righteousness." </br>
+"युक्ताहारविहारस्य युक्तचेष्टस्य कर्मसु | युक्तस्वप्नावबोधस्य योगो भवति दुःखहा ||६-१७||" </br>
+Translate: "6.17 But for him who regulates his food and recreation, who is balanced in action, in sleep and in waking, it shall dispel all unhappiness." </br>
 
 # Prefs
 
