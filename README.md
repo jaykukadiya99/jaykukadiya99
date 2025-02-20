@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बीजं मां सर्वभूतानां विद्धि पार्थ सनातनम् | बुद्धिर्बुद्धिमतामस्मि तेजस्तेजस्विनामहम् ||७-१०||" </br>
-Translate: "7.10 Know, O Arjuna, that I am the eternal Seed of being; I am the Intelligence of the intelligent, the Splendour of the resplendent." </br>
+"यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः | यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ||६-२२||" </br>
+Translate: "6.22 Finding That, he will realise that there is no possession so precious. And when once established here, no calamity can disturb him." </br>
 
 # Prefs
 
