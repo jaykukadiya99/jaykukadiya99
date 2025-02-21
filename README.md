@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रोत्रादीनीन्द्रियाण्यन्ये संयमाग्निषु जुह्वति | शब्दादीन्विषयानन्य इन्द्रियाग्निषु जुह्वति ||४-२६||" </br>
-Translate: "4.26 Some sacrifice their physical senses in the fire of self-control; others offer up their contact with external objects in the sacrificial fire of their senses." </br>
+"अर्जुन उवाच | संन्यासस्य महाबाहो तत्त्वमिच्छामि वेदितुम् | त्यागस्य च हृषीकेश पृथक्केशिनिषूदन ||१८-१||" </br>
+Translate: "18.1 "Arjuna asked: O mighty One! I desire to know how relinquishment is distinguished from renunciation." </br>
 
 # Prefs
 
