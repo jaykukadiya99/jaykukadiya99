@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अन्ये त्वेवमजानन्तः श्रुत्वान्येभ्य उपासते | तेऽपि चातितरन्त्येव मृत्युं श्रुतिपरायणाः ||१३-२६||" </br>
-Translate: "13.26 Others again, having no direct knowledge but only hearing from others, nevertheless worship, and they, too, if true to the teachings, cross the sea of death." </br>
+"एवं ज्ञात्वा कृतं कर्म पूर्वैरपि मुमुक्षुभिः | कुरु कर्मैव तस्मात्त्वं पूर्वैः पूर्वतरं कृतम् ||४-१५||" </br>
+Translate: "4.15 In the light of wisdom, our ancestors, who sought deliverance, performed their acts. Act thou also, as did our fathers of old." </br>
 
 # Prefs
 
