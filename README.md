@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"भोक्तारं यज्ञतपसां सर्वलोकमहेश्वरम् | सुहृदं सर्वभूतानां ज्ञात्वा मां शान्तिमृच्छति ||५-२९||" </br>
-Translate: "5.29 Knowing me as Him who gladly receives all offerings of austerity and sacrifice, as the Might Ruler of all the Worlds and the Friend of all beings, he passes to Eternal Peace."" </br>
+"अविभक्तं च भूतेषु विभक्तमिव च स्थितम् | भूतभर्तृ च तज्ज्ञेयं ग्रसिष्णु प्रभविष्णु च ||१३-१७||" </br>
+Translate: "13.17 In all beings undivided, yet living in division, It is the upholder of all, Creator and Destroyer alike;" </br>
 
 # Prefs
 
