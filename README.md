@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इति क्षेत्रं तथा ज्ञानं ज्ञेयं चोक्तं समासतः | मद्भक्त एतद्विज्ञाय मद्भावायोपपद्यते ||१३-१९||" </br>
-Translate: "13.19 Thus I have told thee in brief what Matter is, and the Self worth realising and what is Wisdom. He who is devoted to Me knows; and assuredly he will enter into Me." </br>
+"सर्वेन्द्रियगुणाभासं सर्वेन्द्रियविवर्जितम् | असक्तं सर्वभृच्चैव निर्गुणं गुणभोक्तृ च ||१३-१५||" </br>
+Translate: "13.15 Beyond the senses, It yet shines through every sense perception. Bound to nothing, It yet sustains everything. Unaffected by the Qualities, It still enjoys them all." </br>
 
 # Prefs
 
