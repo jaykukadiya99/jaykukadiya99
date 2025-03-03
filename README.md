@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नाहं प्रकाशः सर्वस्य योगमायासमावृतः | मूढोऽयं नाभिजानाति लोको मामजमव्ययम् ||७-२५||" </br>
-Translate: "7.25 I am not visible to all, for I am enveloped by the illusion of Phenomenon. This deluded world does not know Me as the Unborn and the Imperishable." </br>
+"योगिनामपि सर्वेषां मद्गतेनान्तरात्मना | श्रद्धावान्भजते यो मां स मे युक्ततमो मतः ||६-४७||" </br>
+Translate: "6.47 I look upon him as the best of mystics who, full of faith, worshippeth Me and abideth in Me."" </br>
 
 # Prefs
 
