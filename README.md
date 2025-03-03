@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आढ्योऽभिजनवानस्मि कोऽन्योऽस्ति सदृशो मया | यक्ष्ये दास्यामि मोदिष्य इत्यज्ञानविमोहिताः ||१६-१५||" </br>
-Translate: "16.15 I am rich, I am well-bred; who is there to compare with me? I will sacrifice, I will give, I will pay - and I will enjoy. Thus blinded by Ignorance," </br>
+"नाहं प्रकाशः सर्वस्य योगमायासमावृतः | मूढोऽयं नाभिजानाति लोको मामजमव्ययम् ||७-२५||" </br>
+Translate: "7.25 I am not visible to all, for I am enveloped by the illusion of Phenomenon. This deluded world does not know Me as the Unborn and the Imperishable." </br>
 
 # Prefs
 
