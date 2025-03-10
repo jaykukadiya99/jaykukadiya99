@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यः शास्त्रविधिमुत्सृज्य वर्तते कामकारतः | न स सिद्धिमवाप्नोति न सुखं न परां गतिम् ||१६-२३||" </br>
-Translate: "16.23 But he who neglects the commands of the scriptures, and follows the promptings of passion, he does not attain perfection, happiness or the final goal." </br>
+"चञ्चलं हि मनः कृष्ण प्रमाथि बलवद् दृढम् | तस्याहं निग्रहं मन्ये वायोरिव सुदुष्करम् ||६-३४||" </br>
+Translate: "6.34 My Lord! Verily, the mind is fickle and turbulent, obstinate and strong, yea extremely difficult as the wind to control." </br>
 
 # Prefs
 
