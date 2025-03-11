@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"चञ्चलं हि मनः कृष्ण प्रमाथि बलवद् दृढम् | तस्याहं निग्रहं मन्ये वायोरिव सुदुष्करम् ||६-३४||" </br>
-Translate: "6.34 My Lord! Verily, the mind is fickle and turbulent, obstinate and strong, yea extremely difficult as the wind to control." </br>
+"विषया विनिवर्तन्ते निराहारस्य देहिनः | रसवर्जं रसोऽप्यस्य परं दृष्ट्वा निवर्तते ||२-५९||" </br>
+Translate: "2.59 The objects of sense turn from him who is abstemious. Even the relish for them is lost in him who has seen the Truth." </br>
 
 # Prefs
 
