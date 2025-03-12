@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"विधिहीनमसृष्टान्नं मन्त्रहीनमदक्षिणम् | श्रद्धाविरहितं यज्ञं तामसं परिचक्षते ||१७-१३||" </br>
-Translate: "17.13 Sacrifice that is contrary to scriptural command, that is unaccompanied by prayers or gifts of food or money, and is without faith - that is the product of Ignorance." </br>
+"अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन | प्रयाणकाले च कथं ज्ञेयोऽसि नियतात्मभिः ||८-२||" </br>
+Translate: "8.2 Who is it who rules the spirit sacrifice in many; and at the time of death how may those who have learned self-control come to the knowledge of Thee?" </br>
 
 # Prefs
 
