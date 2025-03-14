@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एषा तेऽभिहिता साङ्ख्ये बुद्धिर्योगे त्विमां शृणु | बुद्ध्या युक्तो यया पार्थ कर्मबन्धं प्रहास्यसि ||२-३९||" </br>
-Translate: "2.39 I have told thee the philosophy of Knowledge. Now listen and I will explain the philosophy of Action, by means of which, O Arjuna, thou shalt break through the bondage of all action." </br>
+"ज्ञेयं यत्तत्प्रवक्ष्यामि यज्ज्ञात्वामृतमश्नुते | अनादिमत्परं ब्रह्म न सत्तन्नासदुच्यते ||१३-१३||" </br>
+Translate: "13.13 I will speak to thee now of that great Truth which man ought to know, since by its means he will win immortal bliss - that which is without beginning, the Eternal Spirit which dwells in Me, neither with form, nor yet without it." </br>
 
 # Prefs
 
