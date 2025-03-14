@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहिंसा समता तुष्टिस्तपो दानं यशोऽयशः | भवन्ति भावा भूतानां मत्त एव पृथग्विधाः ||१०-५||" </br>
-Translate: "10.5 Harmlessness, equanimity, contentment, austerity, beneficence, fame and failure, all these, the characteristics of beings, spring from Me only." </br>
+"कच्चिदेतच्छ्रुतं पार्थ त्वयैकाग्रेण चेतसा | कच्चिदज्ञानसम्मोहः प्रनष्टस्ते धनञ्जय ||१८-७२||" </br>
+Translate: "18.72 O Arjuna! Hast thou listened attentively to My words? Has thy ignorance and thy delusion gone?" </br>
 
 # Prefs
 
