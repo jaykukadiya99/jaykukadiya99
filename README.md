@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"विषयेन्द्रियसंयोगाद्यत्तदग्रेऽमृतोपमम् | परिणामे विषमिव तत्सुखं राजसं स्मृतम् ||१८-३८||" </br>
-Translate: "18.38 That which as first is like nectar, because the senses revel in their objects, but in the end acts like poison - that pleasure arises from Passion." </br>
+"तत्त्ववित्तु महाबाहो गुणकर्मविभागयोः | गुणा गुणेषु वर्तन्त इति मत्वा न सज्जते ||३-२८||" </br>
+Translate: "3.28 But he, O Mighty One, who understands correctly the relation of the Qualities to action, is not attached to the act for he perceives that it is merely the action and reaction of the Qualities among themselves." </br>
 
 # Prefs
 
