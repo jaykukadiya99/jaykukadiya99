@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रुद्राणां शङ्करश्चास्मि वित्तेशो यक्षरक्षसाम् | वसूनां पावकश्चास्मि मेरुः शिखरिणामहम् ||१०-२३||" </br>
-Translate: "10.23 Among Forces of Vitality I am the life, I am Mammon to the heathen and the godless; I am the Energy in fire, earth, wind, sky, heaven, sun, moon and planets; and among mountains am the Mount Meru." </br>
+"रजो रागात्मकं विद्धि तृष्णासङ्गसमुद्भवम् | तन्निबध्नाति कौन्तेय कर्मसङ्गेन देहिनम् ||१४-७||" </br>
+Translate: "14.7 Passion, engendered by thirst for pleasure and attachment, binds the soul through its fondness for activity." </br>
 
 # Prefs
 
