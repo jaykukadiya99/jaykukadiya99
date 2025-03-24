@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन | प्रयाणकाले च कथं ज्ञेयोऽसि नियतात्मभिः ||८-२||" </br>
-Translate: "8.2 Who is it who rules the spirit sacrifice in many; and at the time of death how may those who have learned self-control come to the knowledge of Thee?" </br>
+"एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन | अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ||१-३५||" </br>
+Translate: "1.35 I would not kill them, even for three worlds; why then for this poor earth? It matters not if I myself am killed." </br>
 
 # Prefs
 
