@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनेकवक्त्रनयनमनेकाद्भुतदर्शनम् | अनेकदिव्याभरणं दिव्यानेकोद्यतायुधम् ||११-१०||" </br>
-Translate: "11.10 There were countless eyes and mouths, and mystic forms innumerable, with shining ornaments and flaming celestial weapons." </br>
+"पवनः पवतामस्मि रामः शस्त्रभृतामहम् | झषाणां मकरश्चास्मि स्रोतसामस्मि जाह्नवी ||१०-३१||" </br>
+Translate: "10.31 I am the Wind among purifiers, the King Rama among warriors; I am the Crocodile among the fishes, and I am the Ganges among rivers." </br>
 
 # Prefs
 
