@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कट्वम्ललवणात्युष्णतीक्ष्णरूक्षविदाहिनः | आहारा राजसस्येष्टा दुःखशोकामयप्रदाः ||१७-९||" </br>
-Translate: "17.9 Those in whom Passion is dominant like foods that are bitter, sour, salty, over-hot, pungent, dry and burning. These produce unhappiness, repentance and disease." </br>
+"कथं न ज्ञेयमस्माभिः पापादस्मान्निवर्तितुम् | कुलक्षयकृतं दोषं प्रपश्यद्भिर्जनार्दन ||१-३९||" </br>
+Translate: "1.39 Should not we, whose eyes are open, who consider it to be wrong to annihilate our house, turn away from so great a crime?" </br>
 
 # Prefs
 
