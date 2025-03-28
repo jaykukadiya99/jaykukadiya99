@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"चिन्तामपरिमेयां च प्रलयान्तामुपाश्रिताः | कामोपभोगपरमा एतावदिति निश्चिताः ||१६-११||" </br>
-Translate: "16.11 Poring anxiously over evil resolutions, which only end in death; seeking only the gratification of desire as the highest goal; seeing nothing beyond;" </br>
+"ज्ञानविज्ञानतृप्तात्मा कूटस्थो विजितेन्द्रियः | युक्त इत्युच्यते योगी समलोष्टाश्मकाञ्चनः ||६-८||" </br>
+Translate: "6.8 He who desires nothing but wisdom and spiritual insight, who has conquered his senses and who looks with the same eye upon a lump of earth, a stone or fine gold, is a real saint." </br>
 
 # Prefs
 
