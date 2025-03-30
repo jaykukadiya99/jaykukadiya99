@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"असंयतात्मना योगो दुष्प्राप इति मे मतिः | वश्यात्मना तु यतता शक्योऽवाप्तुमुपायतः ||६-३६||" </br>
-Translate: "6.36 It is not possible to attain Self-Realisation if a man does not know how to control himself; but for him who, striving by proper means, learns such control, it is possible." </br>
+"त्रिभिर्गुणमयैर्भावैरेभिः सर्वमिदं जगत् | मोहितं नाभिजानाति मामेभ्यः परमव्ययम् ||७-१३||" </br>
+Translate: "7.13 The inhabitants of the world, misled by those natures which the Qualities have engendered, know not that I am higher than them all, and that I do not change." </br>
 
 # Prefs
 
