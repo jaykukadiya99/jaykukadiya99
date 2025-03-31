@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नासतो विद्यते भावो नाभावो विद्यते सतः | उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभिः ||२-१६||" </br>
-Translate: "2.16 That which is not, shall never be; that which is, shall never cease to be. To the wise, these truths are self-evident." </br>
+"अव्यक्तं व्यक्तिमापन्नं मन्यन्ते मामबुद्धयः | परं भावमजानन्तो ममाव्ययमनुत्तमम् ||७-२४||" </br>
+Translate: "7.24 The ignorant think of Me, who am the Unmanifested Spirit, as if I were really in human form. They do not understand that My Superior Nature is changeless and most excellent." </br>
 
 # Prefs
 
