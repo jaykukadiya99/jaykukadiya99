@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अन्ये त्वेवमजानन्तः श्रुत्वान्येभ्य उपासते | तेऽपि चातितरन्त्येव मृत्युं श्रुतिपरायणाः ||१३-२६||" </br>
-Translate: "13.26 Others again, having no direct knowledge but only hearing from others, nevertheless worship, and they, too, if true to the teachings, cross the sea of death." </br>
+"मयि सर्वाणि कर्माणि संन्यस्याध्यात्मचेतसा | निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः ||३-३०||" </br>
+Translate: "3.30 Therefore, surrendering thy actions unto Me, thy thoughts concentrated on the Absolute, free from selfishness and without anticipation of reward, with mind devoid of excitement, begin thou to fight." </br>
 
 # Prefs
 
