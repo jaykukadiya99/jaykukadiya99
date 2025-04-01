@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"समदुःखसुखः स्वस्थः समलोष्टाश्मकाञ्चनः | तुल्यप्रियाप्रियो धीरस्तुल्यनिन्दात्मसंस्तुतिः ||१४-२४||" </br>
-Translate: "14.24 Who accepts pain and pleasure as it comes, is centred in his Self, to whom a piece of clay or stone or gold are the same, who neither likes nor dislikes, who is steadfast, indifferent alike to praise or censure;" </br>
+"अन्ये त्वेवमजानन्तः श्रुत्वान्येभ्य उपासते | तेऽपि चातितरन्त्येव मृत्युं श्रुतिपरायणाः ||१३-२६||" </br>
+Translate: "13.26 Others again, having no direct knowledge but only hearing from others, nevertheless worship, and they, too, if true to the teachings, cross the sea of death." </br>
 
 # Prefs
 
