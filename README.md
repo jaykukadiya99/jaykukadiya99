@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मयि चानन्ययोगेन भक्तिरव्यभिचारिणी | विविक्तदेशसेवित्वमरतिर्जनसंसदि ||१३-११||" </br>
-Translate: "13.11 Unswerving devotion to Me, by concentration on Me and Me alone, a love for solitude, indifference to social life;" </br>
+"काश्यश्च परमेष्वासः शिखण्डी च महारथः | धृष्टद्युम्नो विराटश्च सात्यकिश्चापराजितः ||१-१७||" </br>
+Translate: "1.17 And the Maharaja of Benares, the great archer, Shikhandi, the great soldier, Dhrishtayumna, Virata and Satyaki, the invincible," </br>
 
 # Prefs
 
