@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मयि सर्वाणि कर्माणि संन्यस्याध्यात्मचेतसा | निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः ||३-३०||" </br>
-Translate: "3.30 Therefore, surrendering thy actions unto Me, thy thoughts concentrated on the Absolute, free from selfishness and without anticipation of reward, with mind devoid of excitement, begin thou to fight." </br>
+"तेषामहं समुद्धर्ता मृत्युसंसारसागरात् | भवामि नचिरात्पार्थ मय्यावेशितचेतसाम् ||१२-७||" </br>
+Translate: "12.7 O Arjuna! I rescue them from the ocean of life and death, for their minds are fixed on Me." </br>
 
 # Prefs
 
