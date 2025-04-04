@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"महात्मानस्तु मां पार्थ दैवीं प्रकृतिमाश्रिताः | भजन्त्यनन्यमनसो ज्ञात्वा भूतादिमव्ययम् ||९-१३||" </br>
-Translate: "9.13 But the Great Souls, O Arjuna! Filled with My Divine Spirit, they worship Me, they fix their minds on Me and on Me alone, for they know that I am the imperishable Source of being." </br>
+"पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् | व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ||१-३||" </br>
+Translate: "1.3 Revered Father! Behold this mighty host of the Pandavas, paraded by the son of King Drupada, thy wise disciple." </br>
 
 # Prefs
 
