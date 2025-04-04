@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पूर्वाभ्यासेन तेनैव ह्रियते ह्यवशोऽपि सः | जिज्ञासुरपि योगस्य शब्दब्रह्मातिवर्तते ||६-४४||" </br>
-Translate: "6.44 Unconsciously he will return to the practices of his old life; so that he who tries to realise spiritual consciousness is certainly superior to one who only talks of it." </br>
+"ये मे मतमिदं नित्यमनुतिष्ठन्ति मानवाः | श्रद्धावन्तोऽनसूयन्तो मुच्यन्ते तेऽपि कर्मभिः ||३-३१||" </br>
+Translate: "3.31 Those who always act in accordance with My precepts, firm in faith and without cavilling, they too are freed from the bondage of action." </br>
 
 # Prefs
 
