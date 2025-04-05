@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् | व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ||१-३||" </br>
-Translate: "1.3 Revered Father! Behold this mighty host of the Pandavas, paraded by the son of King Drupada, thy wise disciple." </br>
+"यदादित्यगतं तेजो जगद्भासयतेऽखिलम् | यच्चन्द्रमसि यच्चाग्नौ तत्तेजो विद्धि मामकम् ||१५-१२||" </br>
+Translate: "15.12 Remember that the Light which, proceeding from the sun, illumines the whole world, and the Light which is in the moon, and That which is in the fire also, all are born of Me." </br>
 
 # Prefs
 
