@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदादित्यगतं तेजो जगद्भासयतेऽखिलम् | यच्चन्द्रमसि यच्चाग्नौ तत्तेजो विद्धि मामकम् ||१५-१२||" </br>
-Translate: "15.12 Remember that the Light which, proceeding from the sun, illumines the whole world, and the Light which is in the moon, and That which is in the fire also, all are born of Me." </br>
+"श्रीभगवानुवाच | कुतस्त्वा कश्मलमिदं विषमे समुपस्थितम् | अनार्यजुष्टमस्वर्ग्यमकीर्तिकरमर्जुन ||२-२||" </br>
+Translate: "2.2 "The Lord said: My beloved friend! Why yield, just on the eve of battle, to this weakness which does no credit to those who call themselves Aryans, and only brings them infamy and bars against them the gates of heaven?" </br>
 
 # Prefs
 
