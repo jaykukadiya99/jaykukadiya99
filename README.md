@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मृत्युः सर्वहरश्चाहमुद्भवश्च भविष्यताम् | कीर्तिः श्रीर्वाक्च नारीणां स्मृतिर्मेधा धृतिः क्षमा ||१०-३४||" </br>
-Translate: "10.34 I am all-devouring Death; I am the Origin of all that shall happen; I am Fame, Fortune, Speech, Memory, Intellect, Constancy and Forgiveness." </br>
+"जातस्य हि ध्रुवो मृत्युर्ध्रुवं जन्म मृतस्य च | तस्मादपरिहार्येऽर्थे न त्वं शोचितुमर्हसि ||२-२७||" </br>
+Translate: "2.27 For death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable." </br>
 
 # Prefs
 
