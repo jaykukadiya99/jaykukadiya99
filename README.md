@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्मात्सर्वेषु कालेषु मामनुस्मर युध्य च | मय्यर्पितमनोबुद्धिर्मामेवैष्यस्यसंशयः (orसंशयम्) ||८-७||" </br>
-Translate: "8.7 Therefore meditate always on Me, and fight; if thy mind and thy reason be fixed on Me, to Me shalt thou surely come." </br>
+"किं पुनर्ब्राह्मणाः पुण्या भक्ता राजर्षयस्तथा | अनित्यमसुखं लोकमिमं प्राप्य भजस्व माम् ||९-३३||" </br>
+Translate: "9.33 What need then to mention the holy Ministers of God, the devotees and the saintly rulers? Do thou, therefore, born in this changing and miserable world, do thou too worship Me." </br>
 
 # Prefs
 
