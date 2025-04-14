@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"विस्तरेणात्मनो योगं विभूतिं च जनार्दन | भूयः कथय तृप्तिर्हि शृण्वतो नास्ति मेऽमृतम् ||१०-१८||" </br>
-Translate: "10.18 Tell me again, I pray, about the fullness of Thy power and Thy glory; for I feel that I am never satisfied when I listen to Thy immortal words." </br>
+"यः सर्वत्रानभिस्नेहस्तत्तत्प्राप्य शुभाशुभम् | नाभिनन्दति न द्वेष्टि तस्य प्रज्ञा प्रतिष्ठिता ||२-५७||" </br>
+Translate: "2.57 He who wherever he goes is attached to no person and to no place by ties of flesh; who accepts good and evil alike, neither welcoming the one nor shrinking from the other - take him to be one who is merged in the Infinite." </br>
 
 # Prefs
 
