@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत् | कार्यते ह्यवशः कर्म सर्वः प्रकृतिजैर्गुणैः ||३-५||" </br>
-Translate: "3.5 He cannot even for a moment remain really inactive, for the Qualities of Nature will compel him to act whether he will or no." </br>
+"सिद्धिं प्राप्तो यथा ब्रह्म तथाप्नोति निबोध मे | समासेनैव कौन्तेय निष्ठा ज्ञानस्य या परा ||१८-५०||" </br>
+Translate: "18.50 I will now state briefly how he, who has reached perfection, finds the Eternal Spirit, the state of Supreme Wisdom." </br>
 
 # Prefs
 
