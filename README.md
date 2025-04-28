@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न कर्तृत्वं न कर्माणि लोकस्य सृजति प्रभुः | न कर्मफलसंयोगं स्वभावस्तु प्रवर्तते ||५-१४||" </br>
-Translate: "5.14 The Lord of this universe has not ordained activity, or any incentive thereto, or any relation between an act and its consequences. All this is the work of Nature." </br>
+"अहंकारं बलं दर्पं कामं क्रोधं च संश्रिताः | मामात्मपरदेहेषु प्रद्विषन्तोऽभ्यसूयकाः ||१६-१८||" </br>
+Translate: "16.18 Puffed up by power and inordinate conceit, swayed by lust and wrath, these wicked people hate Me Who am within them, as I am within all." </br>
 
 # Prefs
 
