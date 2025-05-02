@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उत्क्रामन्तं स्थितं वापि भुञ्जानं वा गुणान्वितम् | विमूढा नानुपश्यन्ति पश्यन्ति ज्ञानचक्षुषः ||१५-१०||" </br>
-Translate: "15.10 The ignorant do not see that it is He Who is present in life and Who departs at death or even that it is He Who enjoys pleasure through the Qualities. Only the eye of wisdom sees." </br>
+"रूपं महत्ते बहुवक्त्रनेत्रं महाबाहो बहुबाहूरुपादम् | बहूदरं बहुदंष्ट्राकरालं दृष्ट्वा लोकाः प्रव्यथितास्तथाहम् ||११-२३||" </br>
+Translate: "11.23 Seeing Thy stupendous Form, O Most Mighty, with its myriad faces, its innumerable eyes and limbs and terrible jaws, I myself and all the worlds are overwhelmed with awe." </br>
 
 # Prefs
 
