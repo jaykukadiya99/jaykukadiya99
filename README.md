@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्राप्य पुण्यकृतां लोकानुषित्वा शाश्वतीः समाः | शुचीनां श्रीमतां गेहे योगभ्रष्टोऽभिजायते ||६-४१||" </br>
-Translate: "6.41 Having reached the worlds where the righteous dwell, and having remained there for many years, he who has slipped from the path of spirituality will be born again in the family of the pure, benevolent and prosperous." </br>
+"योगस्थः कुरु कर्माणि सङ्गं त्यक्त्वा धनञ्जय | सिद्ध्यसिद्ध्योः समो भूत्वा समत्वं योग उच्यते ||२-४८||" </br>
+Translate: "2.48 Perform all thy actions with mind concentrated on the Divine, renouncing attachment and looking upon success and failure with an equal eye. Spirituality implies equanimity." </br>
 
 # Prefs
 
