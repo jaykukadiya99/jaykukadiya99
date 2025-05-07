@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा संहरते चायं कूर्मोऽङ्गानीव सर्वशः | इन्द्रियाणीन्द्रियार्थेभ्यस्तस्य प्रज्ञा प्रतिष्ठिता ||२-५८||" </br>
-Translate: "2.58 He who can withdraw his senses from the attraction of their objects, as the tortoise draws his limbs within its shell - take it that such a one has attained Perfection." </br>
+"यज्ञदानतपःकर्म न त्याज्यं कार्यमेव तत् | यज्ञो दानं तपश्चैव पावनानि मनीषिणाम् ||१८-५||" </br>
+Translate: "18.5 Acts of sacrifice, benevolence and austerity should not be given up but should be performed, for they purify the aspiring soul." </br>
 
 # Prefs
 
