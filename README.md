@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"विस्तरेणात्मनो योगं विभूतिं च जनार्दन | भूयः कथय तृप्तिर्हि शृण्वतो नास्ति मेऽमृतम् ||१०-१८||" </br>
-Translate: "10.18 Tell me again, I pray, about the fullness of Thy power and Thy glory; for I feel that I am never satisfied when I listen to Thy immortal words." </br>
+"श्रीभगवानुवाच | प्रकाशं च प्रवृत्तिं च मोहमेव च पाण्डव | न द्वेष्टि सम्प्रवृत्तानि न निवृत्तानि काङ्क्षति ||१४-२२||" </br>
+Translate: "14.22 Lord Shri Krishna replied: O Prince! He who shuns not the Quality which is present, and longs not for that which is absent;" </br>
 
 # Prefs
 
