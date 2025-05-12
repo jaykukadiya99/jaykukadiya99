@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतां विभूतिं योगं च मम यो वेत्ति तत्त्वतः | सोऽविकम्पेन योगेन युज्यते नात्र संशयः ||१०-७||" </br>
-Translate: "10.7 He who rightly understands My manifested glory and My Creative Power, beyond doubt attains perfect peace." </br>
+"द्रव्ययज्ञास्तपोयज्ञा योगयज्ञास्तथापरे | स्वाध्यायज्ञानयज्ञाश्च यतयः संशितव्रताः ||४-२८||" </br>
+Translate: "4.28 And yet others offer as their sacrifice wealth, austerities and meditation. Monks wedded to their vows renounce their scriptural learning and even their spiritual powers." </br>
 
 # Prefs
 
