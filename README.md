@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रकृतेः क्रियमाणानि गुणैः कर्माणि सर्वशः | अहङ्कारविमूढात्मा कर्ताहमिति मन्यते ||३-२७||" </br>
-Translate: "3.27 Action is the product of the Qualities inherent in Nature. It is only the ignorant man who, misled by personal egotism, says: I am the doer.'" </br>
+"वेदाहं समतीतानि वर्तमानानि चार्जुन | भविष्याणि च भूतानि मां तु वेद न कश्चन ||७-२६||" </br>
+Translate: "7.26 I know, O Arjuna, all beings in the past, the present and the future; but they do not know Me." </br>
 
 # Prefs
 
