@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तत्रैवं सति कर्तारमात्मानं केवलं तु यः | पश्यत्यकृतबुद्धित्वान्न स पश्यति दुर्मतिः ||१८-१६||" </br>
-Translate: "18.16 But the fool who supposes, because of his immature judgment, that it is his own Self alone that acts, he perverts the truth and does not see rightly." </br>
+"मच्चित्ता मद्गतप्राणा बोधयन्तः परस्परम् | कथयन्तश्च मां नित्यं तुष्यन्ति च रमन्ति च ||१०-९||" </br>
+Translate: "10.9 With minds concentrated on Me, with lives absorbed in Me, and enlightening each other, they ever feel content and happy." </br>
 
 # Prefs
 
