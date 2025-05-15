@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | ये शास्त्रविधिमुत्सृज्य यजन्ते श्रद्धयान्विताः | तेषां निष्ठा तु का कृष्ण सत्त्वमाहो रजस्तमः ||१७-१||" </br>
-Translate: "17.1 "Arjuna asked: My Lord! Those who do acts of sacrifice, not according to the scriptures but nevertheless with implicit faith, what is their condition? Is it one of Purity, of Passion or of Ignorance?" </br>
+"नैनं छिन्दन्ति शस्त्राणि नैनं दहति पावकः | न चैनं क्लेदयन्त्यापो न शोषयति मारुतः ||२-२३||" </br>
+Translate: "2.23 Weapons cleave It not, fire burns It not, water drenches It not, and wind dries It not." </br>
 
 # Prefs
 
