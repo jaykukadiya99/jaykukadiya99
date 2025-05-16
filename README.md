@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आत्मौपम्येन सर्वत्र समं पश्यति योऽर्जुन | सुखं वा यदि वा दुःखं स योगी परमो मतः ||६-३२||" </br>
-Translate: "6.32 O Arjuna! He is the perfect saint who, taught by the likeness within himself, sees the same Self everywhere, whether the outer form be pleasurable or painful." </br>
+"उत्तमः पुरुषस्त्वन्यः परमात्मेत्युधाहृतः | यो लोकत्रयमाविश्य बिभर्त्यव्यय ईश्वरः ||१५-१७||" </br>
+Translate: "15.17 But higher than all am I, the Supreme God, the Absolute Self, the Eternal Lord, Who pervades the worlds and upholds them all." </br>
 
 # Prefs
 
