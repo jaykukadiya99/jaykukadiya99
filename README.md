@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सक्ताः कर्मण्यविद्वांसो यथा कुर्वन्ति भारत | कुर्याद्विद्वांस्तथासक्तश्चिकीर्षुर्लोकसंग्रहम् ||३-२५||" </br>
-Translate: "3.25 As the ignorant act, because of their fondness for action, so should the wise act without such attachment, fixing their eyes, O Arjuna, only on the welfare of the world." </br>
+"अनन्यचेताः सततं यो मां स्मरति नित्यशः | तस्याहं सुलभः पार्थ नित्ययुक्तस्य योगिनः ||८-१४||" </br>
+Translate: "8.14 To him who thinks constantly of Me, and of nothing else, to such an ever-faithful devotee, O Arjuna, am I ever accessible." </br>
 
 # Prefs
 
