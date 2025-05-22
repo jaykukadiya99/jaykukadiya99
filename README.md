@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | अशोच्यानन्वशोचस्त्वं प्रज्ञावादांश्च भाषसे | गतासूनगतासूंश्च नानुशोचन्ति पण्डिताः ||२-११||" </br>
-Translate: "2.11 Lord Shri Krishna said: Why grieve for those for whom no grief is due, and yet profess wisdom? The wise grieve neither for the dead nor the living." </br>
+"यत्साङ्ख्यैः प्राप्यते स्थानं तद्योगैरपि गम्यते | एकं साङ्ख्यं च योगं च यः पश्यति स पश्यति ||५-५||" </br>
+Translate: "5.5 The level which is reached by wisdom is attained through right action as well. He who perceives that the two are one, knows the truth." </br>
 
 # Prefs
 
