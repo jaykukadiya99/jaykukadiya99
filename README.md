@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अधर्माभिभवात्कृष्ण प्रदुष्यन्ति कुलस्त्रियः | स्त्रीषु दुष्टासु वार्ष्णेय जायते वर्णसङ्करः ||१-४१||" </br>
-Translate: "1.41 When irreligion spreads, the women of the house begin to stray; when they lose their purity, adulteration of the stock follows." </br>
+"सन्तुष्टः सततं योगी यतात्मा दृढनिश्चयः | मय्यर्पितमनोबुद्धिर्यो मद्भक्तः स मे प्रियः ||१२-१४||" </br>
+Translate: "12.14 Always contented, self-centred, self-controlled, resolute, with mind and reason dedicated to Me, such a devotee of Mine is My beloved." </br>
 
 # Prefs
 
