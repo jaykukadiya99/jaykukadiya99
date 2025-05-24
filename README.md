@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"असक्तिरनभिष्वङ्गः पुत्रदारगृहादिषु | नित्यं च समचित्तत्वमिष्टानिष्टोपपत्तिषु ||१३-१०||" </br>
-Translate: "13.10 Indifference, non-attachment to sex, progeny or home, equanimity in good fortune and in bad;" </br>
+"श्रीभगवानुवाच | इमं विवस्वते योगं प्रोक्तवानहमव्ययम् | विवस्वान्मनवे प्राह मनुरिक्ष्वाकवेऽब्रवीत् ||४-१||" </br>
+Translate: "4.1 "Lord Shri Krishna said: This imperishable philosophy I taught to Viwaswana, the founder of the Sun dynasty, Viwaswana gave it to Manu the lawgiver, and Manu to King Ikshwaku!" </br>
 
 # Prefs
 
