@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहो बत महत्पापं कर्तुं व्यवसिता वयम् | यद्राज्यसुखलोभेन हन्तुं स्वजनमुद्यताः ||१-४५||" </br>
-Translate: "1.45 Alas, it is strange that we should be willing to kill our own countrymen and commit a great sin, in order to enjoy the pleasures of a kingdom." </br>
+"बलं बलवतां चाहं कामरागविवर्जितम् | धर्माविरुद्धो भूतेषु कामोऽस्मि भरतर्षभ ||७-११||" </br>
+Translate: "7.11 I am the Strength of the strong, of them who are free from attachment and desire; and, O Arjuna, I am the Desire for righteousness." </br>
 
 # Prefs
 
