@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बलं बलवतां चाहं कामरागविवर्जितम् | धर्माविरुद्धो भूतेषु कामोऽस्मि भरतर्षभ ||७-११||" </br>
-Translate: "7.11 I am the Strength of the strong, of them who are free from attachment and desire; and, O Arjuna, I am the Desire for righteousness." </br>
+"रजो रागात्मकं विद्धि तृष्णासङ्गसमुद्भवम् | तन्निबध्नाति कौन्तेय कर्मसङ्गेन देहिनम् ||१४-७||" </br>
+Translate: "14.7 Passion, engendered by thirst for pleasure and attachment, binds the soul through its fondness for activity." </br>
 
 # Prefs
 
