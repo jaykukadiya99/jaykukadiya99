@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अन्तवत्तु फलं तेषां तद्भवत्यल्पमेधसाम् | देवान्देवयजो यान्ति मद्भक्ता यान्ति मामपि ||७-२३||" </br>
-Translate: "7.23 The fruit that comes to men of limited insight is, after all, finite. They who worship the Lower Powers attain them; but those who worship Me come unto Me alone." </br>
+"भयाद्रणादुपरतं मंस्यन्ते त्वां महारथाः | येषां च त्वं बहुमतो भूत्वा यास्यसि लाघवम् ||२-३५||" </br>
+Translate: "2.35 Great generals will think that thou hast fled from the battlefield through cowardice; though once honoured thou wilt seem despicable." </br>
 
 # Prefs
 
