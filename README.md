@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अभिसन्धाय तु फलं दम्भार्थमपि चैव यत् | इज्यते भरतश्रेष्ठ तं यज्ञं विद्धि राजसम् ||१७-१२||" </br>
-Translate: "17.12 Sacrifice which is performed for the sake of its results, or for self-glorification - that, O best of Aryans, is the product of Passion." </br>
+"श्रद्धावाननसूयश्च शृणुयादपि यो नरः | सोऽपि मुक्तः शुभाँल्लोकान्प्राप्नुयात्पुण्यकर्मणाम् ||१८-७१||" </br>
+Translate: "18.71 Yea, he who listens to it with faith and without doubt, even he, freed from evil, shalt rise to the worlds which the virtuous attain through righteous deeds." </br>
 
 # Prefs
 
