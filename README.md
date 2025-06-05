@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"त्रिभिर्गुणमयैर्भावैरेभिः सर्वमिदं जगत् | मोहितं नाभिजानाति मामेभ्यः परमव्ययम् ||७-१३||" </br>
-Translate: "7.13 The inhabitants of the world, misled by those natures which the Qualities have engendered, know not that I am higher than them all, and that I do not change." </br>
+"स घोषो धार्तराष्ट्राणां हृदयानि व्यदारयत् | नभश्च पृथिवीं चैव तुमुलोऽभ्यनुनादयन् (or लोव्यनु) ||१-१९||" </br>
+Translate: "1.19 The tumult rent the hearts of the sons of Dhritarashtra, and violently shook heaven and earth with its echo." </br>
 
 # Prefs
 
