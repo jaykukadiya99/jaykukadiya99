@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"परित्राणाय साधूनां विनाशाय च दुष्कृताम् | धर्मसंस्थापनार्थाय सम्भवामि युगे युगे ||४-८||" </br>
-Translate: "4.8 To protect the righteous, to destroy the wicked and to establish the kingdom of God, I am reborn from age to age." </br>
+"न त्वेवाहं जातु नासं न त्वं नेमे जनाधिपाः | न चैव न भविष्यामः सर्वे वयमतः परम् ||२-१२||" </br>
+Translate: "2.12 There was never a time when I was not, nor thou, nor these princes were not; there will never be a time when we shall cease to be." </br>
 
 # Prefs
 
