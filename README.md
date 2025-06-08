@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पुरोधसां च मुख्यं मां विद्धि पार्थ बृहस्पतिम् | सेनानीनामहं स्कन्दः सरसामस्मि सागरः ||१०-२४||" </br>
-Translate: "10.24 Among the priests, know, O Arjuna, that I am the Apostle Brihaspati; of generals I am Skanda, the Commander-in-Chief, and of waters I am the Ocean." </br>
+"धृत्या यया धारयते मनःप्राणेन्द्रियक्रियाः | योगेनाव्यभिचारिण्या धृतिः सा पार्थ सात्त्विकी ||१८-३३||" </br>
+Translate: "18.33 The conviction and steady concentration by which the mind, the vitality and the senses are controlled - O Arjuna! They are the product of Purity." </br>
 
 # Prefs
 
