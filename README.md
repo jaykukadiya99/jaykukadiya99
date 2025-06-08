@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यततो ह्यपि कौन्तेय पुरुषस्य विपश्चितः | इन्द्रियाणि प्रमाथीनि हरन्ति प्रसभं मनः ||२-६०||" </br>
-Translate: "2.60 O Arjuna! The mind of him, who is trying to conquer it, is forcibly carried away in spite of his efforts, by his tumultuous senses." </br>
+"पुरोधसां च मुख्यं मां विद्धि पार्थ बृहस्पतिम् | सेनानीनामहं स्कन्दः सरसामस्मि सागरः ||१०-२४||" </br>
+Translate: "10.24 Among the priests, know, O Arjuna, that I am the Apostle Brihaspati; of generals I am Skanda, the Commander-in-Chief, and of waters I am the Ocean." </br>
 
 # Prefs
 
