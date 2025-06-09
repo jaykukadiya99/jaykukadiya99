@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रजसि प्रलयं गत्वा कर्मसङ्गिषु जायते | तथा प्रलीनस्तमसि मूढयोनिषु जायते ||१४-१५||" </br>
-Translate: "14.15 When Passion prevails, the soul is reborn among those who love activity; when Ignorance rules, it enters the wombs of the ignorant." </br>
+"अर्जुन उवाच | पश्यामि देवांस्तव देव देहे सर्वांस्तथा भूतविशेषसङ्घान् | ब्रह्माणमीशं कमलासनस्थ- मृषींश्च सर्वानुरगांश्च दिव्यान् ||११-१५||" </br>
+Translate: "11.15 Arjuna said: O almighty God! I see in Thee the powers of Nature, the various creatures of the world, the Progenitor on his lotus throne, the Sages and the shining angels." </br>
 
 # Prefs
 
