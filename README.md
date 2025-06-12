@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"काङ्क्षन्तः कर्मणां सिद्धिं यजन्त इह देवताः | क्षिप्रं हि मानुषे लोके सिद्धिर्भवति कर्मजा ||४-१२||" </br>
-Translate: "4.12 Those who look for success, worship the Powers; and in this world their actions bear immediate fruit." </br>
+"इष्टान्भोगान्हि वो देवा दास्यन्ते यज्ञभाविताः | तैर्दत्तानप्रदायैभ्यो यो भुङ्क्ते स्तेन एव सः ||३-१२||" </br>
+Translate: "3.12 For, fed, on sacrifice, nature will give you all the enjoyment you can desire. But he who enjoys what she gives without returning is, indeed, a robber.'" </br>
 
 # Prefs
 
