@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दुःखमित्येव यत्कर्म कायक्लेशभयात्त्यजेत् | स कृत्वा राजसं त्यागं नैव त्यागफलं लभेत् ||१८-८||" </br>
-Translate: "18.8 To avoid an action through fear of physical suffering, because it is likely to be painful, is to act from passion, and the benefit of renunciation will not follow." </br>
+"अर्जुन उवाच | अयतिः श्रद्धयोपेतो योगाच्चलितमानसः | अप्राप्य योगसंसिद्धिं कां गतिं कृष्ण गच्छति ||६-३७||" </br>
+Translate: "6.37 Arjuna asked: He who fails to control himself, whose mind falls from spiritual contemplation, who attains not perfection but retains his faith, what of him, my Lord?" </br>
 
 # Prefs
 
