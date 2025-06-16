@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | पश्य मे पार्थ रूपाणि शतशोऽथ सहस्रशः | नानाविधानि दिव्यानि नानावर्णाकृतीनि च ||११-५||" </br>
-Translate: "11.5 Lord Shri Krishna replied: Behold, O Arjuna! My celestial forms, by hundred and thousands, various in kind, in colour and in shape." </br>
+"कर्मणः सुकृतस्याहुः सात्त्विकं निर्मलं फलम् | रजसस्तु फलं दुःखमज्ञानं तमसः फलम् ||१४-१६||" </br>
+Translate: "14.16 They say the fruit of a meritorious action is spotless and full of purity; the outcome of Passion is misery, and of Ignorance darkness." </br>
 
 # Prefs
 
