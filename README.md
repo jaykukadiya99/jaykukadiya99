@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ममैवांशो जीवलोके जीवभूतः सनातनः | मनःषष्ठानीन्द्रियाणि प्रकृतिस्थानि कर्षति ||१५-७||" </br>
-Translate: "15.7 It is only a very small part of My Eternal Self, which is the life of the universe, drawing round itself the six senses, the mind the last, which have their source in Nature." </br>
+"अज्ञश्चाश्रद्दधानश्च संशयात्मा विनश्यति | नायं लोकोऽस्ति न परो न सुखं संशयात्मनः ||४-४०||" </br>
+Translate: "4.40 But the ignorant man, and he who has no faith, and the sceptic are lost. Neither in this world nor elsewhere is there any happiness in store for him who always doubts." </br>
 
 # Prefs
 
