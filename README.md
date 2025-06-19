@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वेदाविनाशिनं नित्यं य एनमजमव्ययम् | कथं स पुरुषः पार्थ कं घातयति हन्ति कम् ||२-२१||" </br>
-Translate: "2.21 He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" </br>
+"श्रीभगवानुवाच | त्रिविधा भवति श्रद्धा देहिनां सा स्वभावजा | सात्त्विकी राजसी चैव तामसी चेति तां शृणु ||१७-२||" </br>
+Translate: "17.2 Lord Shri Krishna replied: Man has an inherent faith in one or another of the Qualities -Purity, Passion and Ignorance. Now listen." </br>
 
 # Prefs
 
