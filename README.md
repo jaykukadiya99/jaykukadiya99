@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सहजं कर्म कौन्तेय सदोषमपि न त्यजेत् | सर्वारम्भा हि दोषेण धूमेनाग्निरिवावृताः ||१८-४८||" </br>
-Translate: "18.48 The duty that of itself falls to one's lot should not be abandoned, though it may have its defects. All acts are marred by defects, as fire is obscured by smoke." </br>
+"वेदाविनाशिनं नित्यं य एनमजमव्ययम् | कथं स पुरुषः पार्थ कं घातयति हन्ति कम् ||२-२१||" </br>
+Translate: "2.21 He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" </br>
 
 # Prefs
 
