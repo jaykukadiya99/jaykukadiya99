@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्तु प्रत्युपकारार्थं फलमुद्दिश्य वा पुनः | दीयते च परिक्लिष्टं तद्दानं राजसं स्मृतम् ||१७-२१||" </br>
-Translate: "17.21 That which is given for the sake of the results it will produce, or with the hope of recompense,or grudgingly - that may truly be said to be the outcome of Passion." </br>
+"मनुष्याणां सहस्रेषु कश्चिद्यतति सिद्धये | यततामपि सिद्धानां कश्चिन्मां वेत्ति तत्त्वतः ||७-३||" </br>
+Translate: "7.3 Among thousands of men scarcely one strives for perfection, and even amongst those who gain occult powers, perchance but one knows me in truth." </br>
 
 # Prefs
 
