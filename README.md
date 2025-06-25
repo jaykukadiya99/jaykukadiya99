@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यज्ञशिष्टामृतभुजो यान्ति ब्रह्म सनातनम् | नायं लोकोऽस्त्ययज्ञस्य कुतोऽन्यः कुरुसत्तम ||४-३१||" </br>
-Translate: "4.31 Tasting the nectar of immortality, as the reward of sacrifice, they reach the Eternal. This world is not for those who refuse to sacrifice; much less the other world." </br>
+"अपर्याप्तं तदस्माकं बलं भीष्माभिरक्षितम् | पर्याप्तं त्विदमेतेषां बलं भीमाभिरक्षितम् ||१-१०||" </br>
+Translate: "1.10 Yet our army seems the weaker, though commanded by Bheeshma; their army seems the stronger, though commanded by Bheema." </br>
 
 # Prefs
 
