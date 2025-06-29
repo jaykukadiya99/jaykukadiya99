@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उद्धरेदात्मनात्मानं नात्मानमवसादयेत् | आत्मैव ह्यात्मनो बन्धुरात्मैव रिपुरात्मनः ||६-५||" </br>
-Translate: "6.5 Let him seek liberation by the help of his Highest Self, and let him never disgrace his own Self. For that Self is his only friend; yet it may also be his enemy." </br>
+"तमुवाच हृषीकेशः प्रहसन्निव भारत | सेनयोरुभयोर्मध्ये विषीदन्तमिदं वचः ||२-१०||" </br>
+Translate: "2.10 Thereupon the Lord, with a gracious smile, addressed him who was so much depressed in the midst of the two armies." </br>
 
 # Prefs
 
