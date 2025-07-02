@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः | प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ||५-२७||" </br>
-Translate: "5.27 Excluding external objects, his gaze fixed between the eyebrows, the inward and outward breathings passing equally through his nostrils;" </br>
+"उत्क्रामन्तं स्थितं वापि भुञ्जानं वा गुणान्वितम् | विमूढा नानुपश्यन्ति पश्यन्ति ज्ञानचक्षुषः ||१५-१०||" </br>
+Translate: "15.10 The ignorant do not see that it is He Who is present in life and Who departs at death or even that it is He Who enjoys pleasure through the Qualities. Only the eye of wisdom sees." </br>
 
 # Prefs
 
