@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च | त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ||१-३३||" </br>
-Translate: "1.33 When those for whose sake I desire these things stand here about to sacrifice their property and their lives:" </br>
+"पुरोधसां च मुख्यं मां विद्धि पार्थ बृहस्पतिम् | सेनानीनामहं स्कन्दः सरसामस्मि सागरः ||१०-२४||" </br>
+Translate: "10.24 Among the priests, know, O Arjuna, that I am the Apostle Brihaspati; of generals I am Skanda, the Commander-in-Chief, and of waters I am the Ocean." </br>
 
 # Prefs
 
