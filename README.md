@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"द्वाविमौ पुरुषौ लोके क्षरश्चाक्षर एव च | क्षरः सर्वाणि भूतानि कूटस्थोऽक्षर उच्यते ||१५-१६||" </br>
-Translate: "15.16 There are two aspects in Nature: the perishable and the imperishable. All life in this world belongs to the former, the unchanging element belongs to the latter." </br>
+"आहुस्त्वामृषयः सर्वे देवर्षिर्नारदस्तथा | असितो देवलो व्यासः स्वयं चैव ब्रवीषि मे ||१०-१३||" </br>
+Translate: "10.13 So have said the seers and the divine sage Narada; as well as Asita, Devala and Vyasa; and Thou Thyself also sayest it." </br>
 
 # Prefs
 
