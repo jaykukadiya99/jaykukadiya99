@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अधर्माभिभवात्कृष्ण प्रदुष्यन्ति कुलस्त्रियः | स्त्रीषु दुष्टासु वार्ष्णेय जायते वर्णसङ्करः ||१-४१||" </br>
-Translate: "1.41 When irreligion spreads, the women of the house begin to stray; when they lose their purity, adulteration of the stock follows." </br>
+"सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ | ततो युद्धाय युज्यस्व नैवं पापमवाप्स्यसि ||२-३८||" </br>
+Translate: "2.38 Look upon pleasure and pain, victory and defeat, with an equal eye. Make ready for the combat, and thou shalt commit no sin." </br>
 
 # Prefs
 
