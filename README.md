@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ततः श्वेतैर्हयैर्युक्ते महति स्यन्दने स्थितौ | माधवः पाण्डवश्चैव दिव्यौ शङ्खौ प्रदध्मतुः ||१-१४||" </br>
-Translate: "1.14 Then seated in their spacious war chariot, yoked with white horses, Lord Shri Krishna and Arjuna sounded their divine shells." </br>
+"अव्यक्तादीनि भूतानि व्यक्तमध्यानि भारत | अव्यक्तनिधनान्येव तत्र का परिदेवना ||२-२८||" </br>
+Translate: "2.28 The end and the beginning of beings are unknown. We see only the intervening formations. Then what cause is there for grief?" </br>
 
 # Prefs
 
