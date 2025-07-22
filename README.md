@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अव्यक्तादीनि भूतानि व्यक्तमध्यानि भारत | अव्यक्तनिधनान्येव तत्र का परिदेवना ||२-२८||" </br>
-Translate: "2.28 The end and the beginning of beings are unknown. We see only the intervening formations. Then what cause is there for grief?" </br>
+"क्षिप्रं भवति धर्मात्मा शश्वच्छान्तिं निगच्छति | कौन्तेय प्रतिजानीहि न मे भक्तः प्रणश्यति ||९-३१||" </br>
+Translate: "9.31 He shall attain spirituality ere long, and Eternal Peace shall be his. O Arjuna! Believe me, My devotee is never lost." </br>
 
 # Prefs
 
