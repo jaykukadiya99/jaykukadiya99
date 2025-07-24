@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"किं कर्म किमकर्मेति कवयोऽप्यत्र मोहिताः | तत्ते कर्म प्रवक्ष्यामि यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ||४-१६||" </br>
-Translate: "4.16 What is action and what is inaction? It is a question which has bewildered the wise. But I will declare unto thee the philosophy of action, and knowing it, thou shalt be free from evil." </br>
+"ब्रह्मभूतः प्रसन्नात्मा न शोचति न काङ्क्षति | समः सर्वेषु भूतेषु मद्भक्तिं लभते पराम् ||१८-५४||" </br>
+Translate: "18.54 And when he becomes one with the Eternal, and his soul knows the bliss that belongs to the Self, he feels no desire and no regret, he regards all beings equally and enjoys the blessing of supreme devotion to Me." </br>
 
 # Prefs
 
