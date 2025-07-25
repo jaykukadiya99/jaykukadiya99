@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला | समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ||२-५३||" </br>
-Translate: "2.53 When the intellect, bewildered by the multiplicity of holy scripts, stands unperturbed in blissful contemplation of the Infinite, then hast thou attained Spirituality." </br>
+"यज्ञे तपसि दाने च स्थितिः सदिति चोच्यते | कर्म चैव तदर्थीयं सदित्येवाभिधीयते ||१७-२७||" </br>
+Translate: "17.27 Conviction in sacrifice, in austerity and in giving is also called Sat.' So too an action done only for the Lord's sake." </br>
 
 # Prefs
 
