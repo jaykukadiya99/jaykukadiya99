@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्गाणामादिरन्तश्च मध्यं चैवाहमर्जुन | अध्यात्मविद्या विद्यानां वादः प्रवदतामहम् ||१०-३२||" </br>
-Translate: "10.32 I am the Beginning, the Middle and the End in creation; among sciences, I am the science of Spirituality; I am the Discussion among disputants." </br>
+"पृथक्त्वेन तु यज्ज्ञानं नानाभावान्पृथग्विधान् | वेत्ति सर्वेषु भूतेषु तज्ज्ञानं विद्धि राजसम् ||१८-२१||" </br>
+Translate: "18.21 The knowledge which thinks of the manifold existence in all beings as separate - that comes from Passion." </br>
 
 # Prefs
 
