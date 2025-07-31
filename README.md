@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मा ते व्यथा मा च विमूढभावो दृष्ट्वा रूपं घोरमीदृङ्ममेदम् | व्यपेतभीः प्रीतमनाः पुनस्त्वं तदेव मे रूपमिदं प्रपश्य ||११-४९||" </br>
-Translate: "11.49 Be not afraid or bewildered by the terrible vision. Put away thy fear and, with joyful mind, see Me once again in My usual Form."" </br>
+"यत्तु प्रत्युपकारार्थं फलमुद्दिश्य वा पुनः | दीयते च परिक्लिष्टं तद्दानं राजसं स्मृतम् ||१७-२१||" </br>
+Translate: "17.21 That which is given for the sake of the results it will produce, or with the hope of recompense,or grudgingly - that may truly be said to be the outcome of Passion." </br>
 
 # Prefs
 
