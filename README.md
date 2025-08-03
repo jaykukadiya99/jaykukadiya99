@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"समं कायशिरोग्रीवं धारयन्नचलं स्थिरः | सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ||६-१३||" </br>
-Translate: "6.13 Let him hold body, head and neck erect, motionless and steady; let him look fixedly at the tip of his nose, turning neither to the right nor to the left." </br>
+"अहं वैश्वानरो भूत्वा प्राणिनां देहमाश्रितः | प्राणापानसमायुक्तः पचाम्यन्नं चतुर्विधम् ||१५-१४||" </br>
+Translate: "15.14 Becoming the fire of life, I pass into their bodies and, uniting with the vital streams of Prana and Apana, I digest the various kinds of food." </br>
 
 # Prefs
 
