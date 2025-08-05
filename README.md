@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अमी च त्वां धृतराष्ट्रस्य पुत्राः सर्वे सहैवावनिपालसङ्घैः | भीष्मो द्रोणः सूतपुत्रस्तथासौ सहास्मदीयैरपि योधमुख्यैः ||११-२६||" </br>
-Translate: "11.26 All these sons of Dhritarashtra, with the hosts of princes, Bheeshma, Drona and Karna, as well as the other warrior chiefs belonging to our side;" </br>
+"अर्जुन उवाच | ये शास्त्रविधिमुत्सृज्य यजन्ते श्रद्धयान्विताः | तेषां निष्ठा तु का कृष्ण सत्त्वमाहो रजस्तमः ||१७-१||" </br>
+Translate: "17.1 "Arjuna asked: My Lord! Those who do acts of sacrifice, not according to the scriptures but nevertheless with implicit faith, what is their condition? Is it one of Purity, of Passion or of Ignorance?" </br>
 
 # Prefs
 
