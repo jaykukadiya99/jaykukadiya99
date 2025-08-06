@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अद्वेष्टा सर्वभूतानां मैत्रः करुण एव च | निर्ममो निरहङ्कारः समदुःखसुखः क्षमी ||१२-१३||" </br>
-Translate: "12.13 He who is incapable of hatred towards any being, who is kind and compassionate, free from selfishness, without pride, equable in pleasure and in pain, and forgiving," </br>
+"न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् | जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ||३-२६||" </br>
+Translate: "3.26 But a wise man should not perturb the minds of the ignorant, who are attached to action; let him perform his own actions in the right spirit, with concentration on Me, thus inspiring all to do the same." </br>
 
 # Prefs
 
