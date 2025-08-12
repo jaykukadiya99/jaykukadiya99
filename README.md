@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बाह्यस्पर्शेष्वसक्तात्मा विन्दत्यात्मनि यत्सुखम् | स ब्रह्मयोगयुक्तात्मा सुखमक्षयमश्नुते ||५-२१||" </br>
-Translate: "5.21 He finds happiness in his own Self, and enjoys eternal bliss, whose heart does not yearn for the contacts of earth and whose Self is one with the Everlasting." </br>
+"श्रीभगवानुवाच | अक्षरं ब्रह्म परमं स्वभावोऽध्यात्ममुच्यते | भूतभावोद्भवकरो विसर्गः कर्मसंज्ञितः ||८-३||" </br>
+Translate: "8.3 The Lord Shri Krishna replied: The Supreme Spirit is the Highest Imperishable Self, and Its Nature is spiritual consciousness. The worlds have been created and are supported by an emanation from the Spirit which is called the Law." </br>
 
 # Prefs
 
