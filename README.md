@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अयनेषु च सर्वेषु यथाभागमवस्थिताः | भीष्ममेवाभिरक्षन्तु भवन्तः सर्व एव हि ||१-११||" </br>
-Translate: "1.11 Therefore in the rank and file, let stand firm in their posts, according to battalions; and all you generals about Bheeshma." </br>
+"अर्जुन उवाच | ये शास्त्रविधिमुत्सृज्य यजन्ते श्रद्धयान्विताः | तेषां निष्ठा तु का कृष्ण सत्त्वमाहो रजस्तमः ||१७-१||" </br>
+Translate: "17.1 "Arjuna asked: My Lord! Those who do acts of sacrifice, not according to the scriptures but nevertheless with implicit faith, what is their condition? Is it one of Purity, of Passion or of Ignorance?" </br>
 
 # Prefs
 
