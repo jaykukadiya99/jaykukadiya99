@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नभःस्पृशं दीप्तमनेकवर्णं व्यात्ताननं दीप्तविशालनेत्रम् | दृष्ट्वा हि त्वां प्रव्यथितान्तरात्मा धृतिं न विन्दामि शमं च विष्णो ||११-२४||" </br>
-Translate: "11.24 When I see Thee, touching the Heavens, glowing with colour, with open mouth and wide open fiery eyes, I am terrified. O My Lord! My courage and peace of mind desert me." </br>
+"सञ्जय उवाच | एवमुक्त्वार्जुनः सङ्ख्ये रथोपस्थ उपाविशत् | विसृज्य सशरं चापं शोकसंविग्नमानसः ||१-४७||" </br>
+Translate: "1.47 Sanjaya said: "Having spoken thus, in the midst of the armies, Arjuna sank on the seat of the chariot, casting away his bow and arrow; heartbroken with grief."" </br>
 
 # Prefs
 
