@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | एवमुक्त्वार्जुनः सङ्ख्ये रथोपस्थ उपाविशत् | विसृज्य सशरं चापं शोकसंविग्नमानसः ||१-४७||" </br>
-Translate: "1.47 Sanjaya said: "Having spoken thus, in the midst of the armies, Arjuna sank on the seat of the chariot, casting away his bow and arrow; heartbroken with grief."" </br>
+"यत्तु कृत्स्नवदेकस्मिन्कार्ये सक्तमहैतुकम् | अतत्त्वार्थवदल्पं च तत्तामसमुदाहृतम् ||१८-२२||" </br>
+Translate: "18.22 But that which clings blindly to one idea as if it were all, without logic, truth or insight, that has its origin in Darkness." </br>
 
 # Prefs
 
