@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ईश्वरः सर्वभूतानां हृद्देशेऽर्जुन तिष्ठति | भ्रामयन्सर्वभूतानि यन्त्रारूढानि मायया ||१८-६१||" </br>
-Translate: "18.61 God dwells in the hearts of all beings, O Arjuna! He causes them to revolve as it were on a wheel by His mystic power." </br>
+"तत्त्ववित्तु महाबाहो गुणकर्मविभागयोः | गुणा गुणेषु वर्तन्त इति मत्वा न सज्जते ||३-२८||" </br>
+Translate: "3.28 But he, O Mighty One, who understands correctly the relation of the Qualities to action, is not attached to the act for he perceives that it is merely the action and reaction of the Qualities among themselves." </br>
 
 # Prefs
 
