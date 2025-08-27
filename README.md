@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा ते मोहकलिलं बुद्धिर्व्यतितरिष्यति | तदा गन्तासि निर्वेदं श्रोतव्यस्य श्रुतस्य च ||२-५२||" </br>
-Translate: "2.52 When thy reason has crossed the entanglements of illusion, then shalt thou become indifferent both to the philosophies thou hast heard and to those thou mayest yet hear." </br>
+"नमः पुरस्तादथ पृष्ठतस्ते नमोऽस्तु ते सर्वत एव सर्व | अनन्तवीर्यामितविक्रमस्त्वं सर्वं समाप्नोषि ततोऽसि सर्वः ||११-४०||" </br>
+Translate: "11.40 Salutations to Thee in front and on every side, Thou who encompasseth me round about. Thy power is infinite; Thy majesty immeasurable; thou upholdest all things; yea,Thou Thyself art All." </br>
 
 # Prefs
 
