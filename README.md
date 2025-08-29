@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्तु कामेप्सुना कर्म साहंकारेण वा पुनः | क्रियते बहुलायासं तद्राजसमुदाहृतम् ||१८-२४||" </br>
-Translate: "18.24 But even though an action involve the most strenuous endeavour, yet if the doer is seeking to gratify his desires, and is filled with personal vanity, it may be assumed to originate in Passion." </br>
+"इच्छा द्वेषः सुखं दुःखं संघातश्चेतना धृतिः | एतत्क्षेत्रं समासेन सविकारमुदाहृतम् ||१३-७||" </br>
+Translate: "13.7 Desire, aversion, pleasure, pain, sympathy, vitality and the persistent clinging to life, these are in brief the constituents of changing Matter." </br>
 
 # Prefs
 
