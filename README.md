@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बुद्धिर्ज्ञानमसम्मोहः क्षमा सत्यं दमः शमः | सुखं दुःखं भवोऽभावो भयं चाभयमेव च ||१०-४||" </br>
-Translate: "10.4 Intelligence, wisdom, non-illusion, forgiveness, truth, self-control, calmness, pleasure, pain, birth, death, fear and fearlessness;" </br>
+"अहिंसा सत्यमक्रोधस्त्यागः शान्तिरपैशुनम् | दया भूतेष्वलोलुप्त्वं मार्दवं ह्रीरचापलम् ||१६-२||" </br>
+Translate: "16.2 harmlessness, truth, absence of wrath, renunciation, contentment, straightforwardness, compassion towards all, uncovetousness, courtesy, modesty, constancy," </br>
 
 # Prefs
 
