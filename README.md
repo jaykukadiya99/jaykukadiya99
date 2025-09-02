@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एवं बुद्धेः परं बुद्ध्वा संस्तभ्यात्मानमात्मना | जहि शत्रुं महाबाहो कामरूपं दुरासदम् ||३-४३||" </br>
-Translate: "3.43 Thus, O Mighty-in-Arms, knowing Him to be beyond the intellect and, by His help, subduing thy personal egotism, kill thine enemy, Desire, extremely difficult though it be."" </br>
+"यद्यद्विभूतिमत्सत्त्वं श्रीमदूर्जितमेव वा | तत्तदेवावगच्छ त्वं मम तेजोंऽशसम्भवम् ||१०-४१||" </br>
+Translate: "10.41 Whatever is glorious, excellent, beautiful and mighty, be assured that it comes from a fragment of My splendour." </br>
 
 # Prefs
 
