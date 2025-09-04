@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | इदं शरीरं कौन्तेय क्षेत्रमित्यभिधीयते | एतद्यो वेत्ति तं प्राहुः क्षेत्रज्ञ इति तद्विदः ||१३-२||" </br>
-Translate: "13.2 Lord Shri Krishna replied: O Arjuna! The body of man is the playground of the Self; and That which knows the activities of Matter, sages call the Self." </br>
+"मच्चित्ता मद्गतप्राणा बोधयन्तः परस्परम् | कथयन्तश्च मां नित्यं तुष्यन्ति च रमन्ति च ||१०-९||" </br>
+Translate: "10.9 With minds concentrated on Me, with lives absorbed in Me, and enlightening each other, they ever feel content and happy." </br>
 
 # Prefs
 
