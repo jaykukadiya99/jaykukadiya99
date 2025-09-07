@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | अथ केन प्रयुक्तोऽयं पापं चरति पूरुषः | अनिच्छन्नपि वार्ष्णेय बलादिव नियोजितः ||३-३६||" </br>
-Translate: "3.36 Arjuna asked: My Lord! Tell me, what is it that drives a man to sin, even against his will and as if by compulsion?" </br>
+"अर्जुन उवाच | प्रकृतिं पुरुषं चैव क्षेत्रं क्षेत्रज्ञमेव च | एतद्वेदितुमिच्छामि ज्ञानं ज्ञेयं च केशव ||१३-१||" </br>
+Translate: "13.1 "Arjuna asked: My Lord! Who is God and what is Nature; what is Matter and what is the Self; what is that they call Wisdom, and what is it that is worth knowing? I wish to have this explained." </br>
 
 # Prefs
 
