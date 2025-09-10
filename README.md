@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् | जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ||३-२६||" </br>
-Translate: "3.26 But a wise man should not perturb the minds of the ignorant, who are attached to action; let him perform his own actions in the right spirit, with concentration on Me, thus inspiring all to do the same." </br>
+"यस्य सर्वे समारम्भाः कामसङ्कल्पवर्जिताः | ज्ञानाग्निदग्धकर्माणं तमाहुः पण्डितं बुधाः ||४-१९||" </br>
+Translate: "4.19 The wise call him a sage, for whatever he undertakes is free from the motive of desire, and his deeds are purified by the fire of Wisdom." </br>
 
 # Prefs
 
