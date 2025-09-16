@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यततो ह्यपि कौन्तेय पुरुषस्य विपश्चितः | इन्द्रियाणि प्रमाथीनि हरन्ति प्रसभं मनः ||२-६०||" </br>
-Translate: "2.60 O Arjuna! The mind of him, who is trying to conquer it, is forcibly carried away in spite of his efforts, by his tumultuous senses." </br>
+"यदा सत्त्वे प्रवृद्धे तु प्रलयं याति देहभृत् | तदोत्तमविदां लोकानमलान्प्रतिपद्यते ||१४-१४||" </br>
+Translate: "14.14 When Purity prevails, the soul on quitting the body passes on to the pure regions where live those who know the Highest." </br>
 
 # Prefs
 
