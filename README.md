@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यद्यप्येते न पश्यन्ति लोभोपहतचेतसः | कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ||१-३८||" </br>
-Translate: "1.38 Although these men, blinded by greed, see no guilt in destroying their kin, or fighting against their friends," </br>
+"मम योनिर्महद् ब्रह्म तस्मिन्गर्भं दधाम्यहम् | सम्भवः सर्वभूतानां ततो भवति भारत ||१४-३||" </br>
+Translate: "14.3 The eternal Cosmos is My womb, in which I plant the seed, from which all beings are born, O Prince!" </br>
 
 # Prefs
 
