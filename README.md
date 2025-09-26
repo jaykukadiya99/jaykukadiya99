@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | संन्यासं कर्मणां कृष्ण पुनर्योगं च शंससि | यच्छ्रेय एतयोरेकं तन्मे ब्रूहि सुनिश्चितम् ||५-१||" </br>
-Translate: "5.1 "Arjuna said: My Lord! At one moment Thou praisest renunciation of action; at another, right action. Tell me truly, I pray, which of these is the more conducive to my highest welfare?" </br>
+"विस्तरेणात्मनो योगं विभूतिं च जनार्दन | भूयः कथय तृप्तिर्हि शृण्वतो नास्ति मेऽमृतम् ||१०-१८||" </br>
+Translate: "10.18 Tell me again, I pray, about the fullness of Thy power and Thy glory; for I feel that I am never satisfied when I listen to Thy immortal words." </br>
 
 # Prefs
 
