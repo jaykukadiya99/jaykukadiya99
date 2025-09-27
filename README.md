@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनन्याश्चिन्तयन्तो मां ये जनाः पर्युपासते | तेषां नित्याभियुक्तानां योगक्षेमं वहाम्यहम् ||९-२२||" </br>
-Translate: "9.22 But if a man will meditate on Me and Me alone, and will worship Me always and everywhere, I will take upon Myself the fulfillment of his aspiration, and I will safeguard whatsoever he shall attain." </br>
+"श्रीभगवानुवाच | ऊर्ध्वमूलमधःशाखमश्वत्थं प्राहुरव्ययम् | छन्दांसि यस्य पर्णानि यस्तं वेद स वेदवित् ||१५-१||" </br>
+Translate: "15.1 "Lord Shri Krishna continued: This phenomenal creation, which is both ephemeral and eternal, is like a tree, but having its seed above in the Highest and its ramifications on this earth below. The scriptures are its leaves, and he who understands this, knows." </br>
 
 # Prefs
 
