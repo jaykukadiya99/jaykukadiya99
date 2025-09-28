@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्मणैव हि संसिद्धिमास्थिता जनकादयः | लोकसंग्रहमेवापि सम्पश्यन्कर्तुमर्हसि ||३-२०||" </br>
-Translate: "3.20 King Janaka and others attained perfection through action alone. Even for the sake of enlightening the world, it is thy duty to act;" </br>
+"ऋषिभिर्बहुधा गीतं छन्दोभिर्विविधैः पृथक् | ब्रह्मसूत्रपदैश्चैव हेतुमद्भिर्विनिश्चितैः ||१३-५||" </br>
+Translate: "13.5 Seers have sung of It in various ways, in many hymns and sacred Vedic songs, weighty in thought and convincing in argument." </br>
 
 # Prefs
 
