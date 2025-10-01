@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अविनाशि तु तद्विद्धि येन सर्वमिदं ततम् | विनाशमव्ययस्यास्य न कश्चित्कर्तुमर्हति ||२-१७||" </br>
-Translate: "2.17 The Spirit, which pervades all that we see, is imperishable. Nothing can destroy the Spirit." </br>
+"यदि मामप्रतीकारमशस्त्रं शस्त्रपाणयः | धार्तराष्ट्रा रणे हन्युस्तन्मे क्षेमतरं भवेत् ||१-४६||" </br>
+Translate: "1.46 If, on the contrary, the sons of Dhritarashtra, with weapons in their hand, should slay me, unarmed and unresisting, surely that would be better for my welfare!"" </br>
 
 # Prefs
 
