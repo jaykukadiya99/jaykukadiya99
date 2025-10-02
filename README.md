@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यदि मामप्रतीकारमशस्त्रं शस्त्रपाणयः | धार्तराष्ट्रा रणे हन्युस्तन्मे क्षेमतरं भवेत् ||१-४६||" </br>
-Translate: "1.46 If, on the contrary, the sons of Dhritarashtra, with weapons in their hand, should slay me, unarmed and unresisting, surely that would be better for my welfare!"" </br>
+"युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः | सुखेन ब्रह्मसंस्पर्शमत्यन्तं सुखमश्नुते ||६-२८||" </br>
+Translate: "6.28 Thus, free from sin, abiding always in the Eternal, the saint enjoys without effort the Bliss which flows from realisation of the Infinite." </br>
 
 # Prefs
 
