@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतन्मे संशयं कृष्ण छेत्तुमर्हस्यशेषतः | त्वदन्यः संशयस्यास्य छेत्ता न ह्युपपद्यते ||६-३९||" </br>
-Translate: "6.39 My Lord! Thou art worthy to solve this doubt once and for all; save Thyself there is no one competent to do so." </br>
+"यज्ञदानतपःकर्म न त्याज्यं कार्यमेव तत् | यज्ञो दानं तपश्चैव पावनानि मनीषिणाम् ||१८-५||" </br>
+Translate: "18.5 Acts of sacrifice, benevolence and austerity should not be given up but should be performed, for they purify the aspiring soul." </br>
 
 # Prefs
 
