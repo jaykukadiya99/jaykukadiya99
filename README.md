@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि | ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि ||२-३३||" </br>
-Translate: "2.33 Refuse to fight in this righteous cause, and thou wilt be a traitor, lost to fame, incurring only sin." </br>
+"स तया श्रद्धया युक्तस्तस्याराधनमीहते | लभते च ततः कामान्मयैव विहितान्हि तान् ||७-२२||" </br>
+Translate: "7.22 If he worships one form alone with real faith, then shall his desires be fulfilled through that only; for thus have I ordained." </br>
 
 # Prefs
 
