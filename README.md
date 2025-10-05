@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स तया श्रद्धया युक्तस्तस्याराधनमीहते | लभते च ततः कामान्मयैव विहितान्हि तान् ||७-२२||" </br>
-Translate: "7.22 If he worships one form alone with real faith, then shall his desires be fulfilled through that only; for thus have I ordained." </br>
+"सर्वमेतदृतं मन्ये यन्मां वदसि केशव | न हि ते भगवन्व्यक्तिं विदुर्देवा न दानवाः ||१०-१४||" </br>
+Translate: "10.14 I believe in what Thou hast said, my Lord! For neither the godly not the godless comprehend Thy manifestation." </br>
 
 # Prefs
 
