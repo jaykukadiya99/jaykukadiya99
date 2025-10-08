@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बुद्धियुक्तो जहातीह उभे सुकृतदुष्कृते | तस्माद्योगाय युज्यस्व योगः कर्मसु कौशलम् ||२-५०||" </br>
-Translate: "2.50 When a man attains to Pure Reason, he renounces in this world the results of good and evil alike. Cling thou to Right Action. Spirituality is the real art of living." </br>
+"तत्रापश्यत्स्थितान्पार्थः पितॄनथ पितामहान् | आचार्यान्मातुलान्भ्रातॄन्पुत्रान्पौत्रान्सखींस्तथा ||१-२६||" </br>
+Translate: "1.26 There Arjuna noticed fathers, grandfathers, uncles, cousins, sons, grandsons, teachers, friends;" </br>
 
 # Prefs
 
