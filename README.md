@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"य एवं वेत्ति पुरुषं प्रकृतिं च गुणैः सह | सर्वथा वर्तमानोऽपि न स भूयोऽभिजायते ||१३-२४||" </br>
-Translate: "13.24 He who understands God and Nature along with her qualities, whatever be his condition in life, he comes not again to earth." </br>
+"श्रीभगवानुवाच | मय्यावेश्य मनो ये मां नित्ययुक्ता उपासते | श्रद्धया परयोपेताः ते मे युक्ततमा मताः ||१२-२||" </br>
+Translate: "12.2 Lord Shri Krishna replied: Those who keep their minds fixed on Me, who worship Me always with unwavering faith and concentration; these are the very best." </br>
 
 # Prefs
 
