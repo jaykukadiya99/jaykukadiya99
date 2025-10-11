@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | मय्यावेश्य मनो ये मां नित्ययुक्ता उपासते | श्रद्धया परयोपेताः ते मे युक्ततमा मताः ||१२-२||" </br>
-Translate: "12.2 Lord Shri Krishna replied: Those who keep their minds fixed on Me, who worship Me always with unwavering faith and concentration; these are the very best." </br>
+"यद्यप्येते न पश्यन्ति लोभोपहतचेतसः | कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ||१-३८||" </br>
+Translate: "1.38 Although these men, blinded by greed, see no guilt in destroying their kin, or fighting against their friends," </br>
 
 # Prefs
 
