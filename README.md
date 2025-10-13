@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मन्यसे यदि तच्छक्यं मया द्रष्टुमिति प्रभो | योगेश्वर ततो मे त्वं दर्शयात्मानमव्ययम् ||११-४||" </br>
-Translate: "11.4 If Thou thinkest that it can be made possible for me to see it, show me, O Lord of Lords, Thine own Eternal Self." </br>
+"सङ्करो नरकायैव कुलघ्नानां कुलस्य च | पतन्ति पितरो ह्येषां लुप्तपिण्डोदकक्रियाः ||१-४२||" </br>
+Translate: "1.42 Promiscuity ruins both the family and those who defile it; while the souls of our ancestors droop, through lack of the funeral cakes and ablutions." </br>
 
 # Prefs
 
