@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अभ्यासयोगयुक्तेन चेतसा नान्यगामिना | परमं पुरुषं दिव्यं याति पार्थानुचिन्तयन् ||८-८||" </br>
-Translate: "8.8 He whose mind does not wander, and who is engaged in constant meditation, attains the Supreme Spirit." </br>
+"दिव्यमाल्याम्बरधरं दिव्यगन्धानुलेपनम् | सर्वाश्चर्यमयं देवमनन्तं विश्वतोमुखम् ||११-११||" </br>
+Translate: "11.11 Crowned with heavenly garlands, clothed in shining garments, anointed with divine unctions, He showed Himself as the Resplendent One, Marvellous, Boundless, Omnipresent." </br>
 
 # Prefs
 
