@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अकीर्तिं चापि भूतानि कथयिष्यन्ति तेऽव्ययाम् | सम्भावितस्य चाकीर्तिर्मरणादतिरिच्यते ||२-३४||" </br>
-Translate: "2.34 Men will talk forever of thy disgrace; and to the noble, dishonour is worse than death." </br>
+"तस्मादोमित्युदाहृत्य यज्ञदानतपःक्रियाः | प्रवर्तन्ते विधानोक्ताः सततं ब्रह्मवादिनाम् ||१७-२४||" </br>
+Translate: "17.24 Therefore all acts of sacrifice, gifts and austerities, prescribed by the scriptures, are always begun by those who understand the Spirit with the word Om." </br>
 
 # Prefs
 
