@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यत्साङ्ख्यैः प्राप्यते स्थानं तद्योगैरपि गम्यते | एकं साङ्ख्यं च योगं च यः पश्यति स पश्यति ||५-५||" </br>
-Translate: "5.5 The level which is reached by wisdom is attained through right action as well. He who perceives that the two are one, knows the truth." </br>
+"आहारस्त्वपि सर्वस्य त्रिविधो भवति प्रियः | यज्ञस्तपस्तथा दानं तेषां भेदमिमं शृणु ||१७-७||" </br>
+Translate: "17.7 The food which men enjoy is also threefold, like the ways of sacrifice, austerity and almsgiving. Listen to the distinction." </br>
 
 # Prefs
 
