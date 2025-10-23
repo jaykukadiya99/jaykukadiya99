@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न च मत्स्थानि भूतानि पश्य मे योगमैश्वरम् | भूतभृन्न च भूतस्थो ममात्मा भूतभावनः ||९-५||" </br>
-Translate: "9.5 Nevertheless, they do not consciously abide in Me. Such is My Divine Sovereignty that though I, the Supreme Self, am the cause and upholder of all, yet I remain outside." </br>
+"न रूपमस्येह तथोपलभ्यते नान्तो न चादिर्न च सम्प्रतिष्ठा | अश्वत्थमेनं सुविरूढमूलं असङ्गशस्त्रेण दृढेन छित्त्वा ||१५-३||" </br>
+Translate: "15.3 In this world its true form is not known, neither its origin nor its end, and its strength is not understood., until the tree with its roots striking deep into the earth is hewn down by the sharp axe of non-attachment." </br>
 
 # Prefs
 
