@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न रूपमस्येह तथोपलभ्यते नान्तो न चादिर्न च सम्प्रतिष्ठा | अश्वत्थमेनं सुविरूढमूलं असङ्गशस्त्रेण दृढेन छित्त्वा ||१५-३||" </br>
-Translate: "15.3 In this world its true form is not known, neither its origin nor its end, and its strength is not understood., until the tree with its roots striking deep into the earth is hewn down by the sharp axe of non-attachment." </br>
+"प्रवृत्तिं च निवृत्तिं च जना न विदुरासुराः | न शौचं नापि चाचारो न सत्यं तेषु विद्यते ||१६-७||" </br>
+Translate: "16.7 The godless do not know how to act or how to renounce. They have neither purity nor truth. They do not understand the right principles of conduct." </br>
 
 # Prefs
 
