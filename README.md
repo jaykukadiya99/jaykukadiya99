@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ततः श्वेतैर्हयैर्युक्ते महति स्यन्दने स्थितौ | माधवः पाण्डवश्चैव दिव्यौ शङ्खौ प्रदध्मतुः ||१-१४||" </br>
-Translate: "1.14 Then seated in their spacious war chariot, yoked with white horses, Lord Shri Krishna and Arjuna sounded their divine shells." </br>
+"एवं बहुविधा यज्ञा वितता ब्रह्मणो मुखे | कर्मजान्विद्धि तान्सर्वानेवं ज्ञात्वा विमोक्ष्यसे ||४-३२||" </br>
+Translate: "4.32 In this way other sacrifices too may be undergone for the Spirit's sake. Know thou that they all depend on action. Knowing this, thou shalt be free." </br>
 
 # Prefs
 
