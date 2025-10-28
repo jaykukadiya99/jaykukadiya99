@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सञ्जय उवाच | इत्यहं वासुदेवस्य पार्थस्य च महात्मनः | संवादमिममश्रौषमद्भुतं रोमहर्षणम् ||१८-७४||" </br>
-Translate: "18.74 Sanjaya told: "Thus have I heard this rare, wonderful and soul-stirring discourse of the Lord Shri Krishna and the great-souled Arjuna." </br>
+"प्रवृत्तिं च निवृत्तिं च कार्याकार्ये भयाभये | बन्धं मोक्षं च या वेत्ति बुद्धिः सा पार्थ सात्त्विकी ||१८-३०||" </br>
+Translate: "18.30 That intellect which understands the creation and dissolution of life, what actions should be done and what not, which discriminates between fear and fearlessness, bondage and deliverance, that is Pure." </br>
 
 # Prefs
 
