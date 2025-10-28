@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रवृत्तिं च निवृत्तिं च कार्याकार्ये भयाभये | बन्धं मोक्षं च या वेत्ति बुद्धिः सा पार्थ सात्त्विकी ||१८-३०||" </br>
-Translate: "18.30 That intellect which understands the creation and dissolution of life, what actions should be done and what not, which discriminates between fear and fearlessness, bondage and deliverance, that is Pure." </br>
+"त्रैगुण्यविषया वेदा निस्त्रैगुण्यो भवार्जुन | निर्द्वन्द्वो नित्यसत्त्वस्थो निर्योगक्षेम आत्मवान् ||२-४५||" </br>
+Translate: "2.45 The Vedic Scriptures tell of the three constituents of life - the Qualities. Rise above all of them, O Arjuna, above all the pairs of opposing sensations; be steady in truth, free from worldly anxieties and centered in the Self." </br>
 
 # Prefs
 
