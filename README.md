@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"नमः पुरस्तादथ पृष्ठतस्ते नमोऽस्तु ते सर्वत एव सर्व | अनन्तवीर्यामितविक्रमस्त्वं सर्वं समाप्नोषि ततोऽसि सर्वः ||११-४०||" </br>
-Translate: "11.40 Salutations to Thee in front and on every side, Thou who encompasseth me round about. Thy power is infinite; Thy majesty immeasurable; thou upholdest all things; yea,Thou Thyself art All." </br>
+"अन्नाद्भवन्ति भूतानि पर्जन्यादन्नसम्भवः | यज्ञाद्भवति पर्जन्यो यज्ञः कर्मसमुद्भवः ||३-१४||" </br>
+Translate: "3.14 All creatures are the product of food, food is the product of rain, rain comes by sacrifice, and sacrifice is the noblest form of action." </br>
 
 # Prefs
 
