@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रुद्रादित्या वसवो ये च साध्या विश्वेऽश्विनौ मरुतश्चोष्मपाश्च | गन्धर्वयक्षासुरसिद्धसङ्घा वीक्षन्ते त्वां विस्मिताश्चैव सर्वे ||११-२२||" </br>
-Translate: "11.22 The Vital Forces, the Major stars, Fire, Earth, Air, Sky, Sun, Heaven, Moon and Planets; the Angels, the Guardians of the Universe, the divine Healers, the Winds, the Fathers, the Heavenly Singers; and hosts of Mammon-worshippers, demons as well as saints, are amazed." </br>
+"कायेन मनसा बुद्ध्या केवलैरिन्द्रियैरपि | योगिनः कर्म कुर्वन्ति सङ्गं त्यक्त्वात्मशुद्धये ||५-११||" </br>
+Translate: "5.11 The sage performs his action dispassionately, using his body, mind and intellect, and even his senses, always as a means of purification." </br>
 
 # Prefs
 
