@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अन्नाद्भवन्ति भूतानि पर्जन्यादन्नसम्भवः | यज्ञाद्भवति पर्जन्यो यज्ञः कर्मसमुद्भवः ||३-१४||" </br>
-Translate: "3.14 All creatures are the product of food, food is the product of rain, rain comes by sacrifice, and sacrifice is the noblest form of action." </br>
+"श्रीभगवानुवाच | संन्यासः कर्मयोगश्च निःश्रेयसकरावुभौ | तयोस्तु कर्मसंन्यासात्कर्मयोगो विशिष्यते ||५-२||" </br>
+Translate: "5.2 Lord Shri Krishna replied: Renunciation of action and the path of right action both lead to the highest; of the two, right action is the better." </br>
 
 # Prefs
 
