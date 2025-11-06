@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ते तं भुक्त्वा स्वर्गलोकं विशालं क्षीणे पुण्ये मर्त्यलोकं विशन्ति | एवं त्रयीधर्ममनुप्रपन्ना गतागतं कामकामा लभन्ते ||९-२१||" </br>
-Translate: "9.21 Yet although they enjoy the spacious glories of Paradise, nevertheless, when their merit is exhausted, they are born again into this world of mortals. They have followed the letter of the scriptures, yet because they have sought but to fulfill their own desires, they must depart and return again and again." </br>
+"मत्तः परतरं नान्यत्किञ्चिदस्ति धनञ्जय | मयि सर्वमिदं प्रोतं सूत्रे मणिगणा इव ||७-७||" </br>
+Translate: "7.7 O Arjuna! There is nothing higher than Me; all is strung upon Me as rows of pearls upon a thread." </br>
 
 # Prefs
 
