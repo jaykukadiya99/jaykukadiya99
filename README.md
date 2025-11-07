@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वगुह्यतमं भूयः शृणु मे परमं वचः | इष्टोऽसि मे दृढमिति ततो वक्ष्यामि ते हितम् ||१८-६४||" </br>
-Translate: "18.64 Only listen once more to My last word, the deepest secret of all; thou art My beloved, thou are My friend, and I speak for thy welfare." </br>
+"व्यवसायात्मिका बुद्धिरेकेह कुरुनन्दन | बहुशाखा ह्यनन्ताश्च बुद्धयोऽव्यवसायिनाम् ||२-४१||" </br>
+Translate: "2.41 By its means, the straying intellect becomes steadied in the contemplation of one object only; whereas the minds of the irresolute stray into bypaths innumerable." </br>
 
 # Prefs
 
