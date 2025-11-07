@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"व्यवसायात्मिका बुद्धिरेकेह कुरुनन्दन | बहुशाखा ह्यनन्ताश्च बुद्धयोऽव्यवसायिनाम् ||२-४१||" </br>
-Translate: "2.41 By its means, the straying intellect becomes steadied in the contemplation of one object only; whereas the minds of the irresolute stray into bypaths innumerable." </br>
+"सत्त्वात्सञ्जायते ज्ञानं रजसो लोभ एव च | प्रमादमोहौ तमसो भवतोऽज्ञानमेव च ||१४-१७||" </br>
+Translate: "14.17 Purity engenders Wisdom, Passion avarice, and Ignorance folly, infatuation and darkness." </br>
 
 # Prefs
 
