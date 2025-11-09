@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अधिभूतं क्षरो भावः पुरुषश्चाधिदैवतम् | अधियज्ञोऽहमेवात्र देहे देहभृतां वर ||८-४||" </br>
-Translate: "8.4 Matter consists of the forms that perish; Divinity is the Supreme Self; and He who inspires the spirit of sacrifice in man, O noblest of thy race, is I Myself, Who now stand in human form before thee." </br>
+"यतः प्रवृत्तिर्भूतानां येन सर्वमिदं ततम् | स्वकर्मणा तमभ्यर्च्य सिद्धिं विन्दति मानवः ||१८-४६||" </br>
+Translate: "18.46 Man reaches perfection by dedicating his actions to God, Who is the source of all being, and fills everything." </br>
 
 # Prefs
 
