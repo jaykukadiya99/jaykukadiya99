@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन | ज्ञानाग्निः सर्वकर्माणि भस्मसात्कुरुते तथा ||४-३७||" </br>
-Translate: "4.37 As the kindled fire consumes the fuel, so, O Arjuna, in the flame of wisdom the embers of action are burnt to ashes." </br>
+"अनादित्वान्निर्गुणत्वात्परमात्मायमव्ययः | शरीरस्थोऽपि कौन्तेय न करोति न लिप्यते ||१३-३२||" </br>
+Translate: "13.32 The Supreme Spirit, O Prince, is without beginning, without Qualities and Imperishable, and though it be within the body, yet It does not act, nor is It affected by action." </br>
 
 # Prefs
 
