@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"शनैः शनैरुपरमेद् बुद्ध्या धृतिगृहीतया | आत्मसंस्थं मनः कृत्वा न किञ्चिदपि चिन्तयेत् ||६-२५||" </br>
-Translate: "6.25 Little by little, by the help of his reason controlled by fortitude, let him attain peace; and, fixing his mind on the Self, let him not think of any other thing." </br>
+"इच्छाद्वेषसमुत्थेन द्वन्द्वमोहेन भारत | सर्वभूतानि सम्मोहं सर्गे यान्ति परन्तप ||७-२७||" </br>
+Translate: "7.27 O brave Arjuna! Man lives in a fairy world, deceived by the glamour of opposite sensations, infatuated by desire and aversion." </br>
 
 # Prefs
 
