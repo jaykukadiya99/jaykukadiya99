@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"त्यक्त्वा कर्मफलासङ्गं नित्यतृप्तो निराश्रयः | कर्मण्यभिप्रवृत्तोऽपि नैव किञ्चित्करोति सः ||४-२०||" </br>
-Translate: "4.20 Having surrendered all claim to the results of his actions, always contented and independent, in reality he does nothing, even though he is apparently acting." </br>
+"बलं बलवतां चाहं कामरागविवर्जितम् | धर्माविरुद्धो भूतेषु कामोऽस्मि भरतर्षभ ||७-११||" </br>
+Translate: "7.11 I am the Strength of the strong, of them who are free from attachment and desire; and, O Arjuna, I am the Desire for righteousness." </br>
 
 # Prefs
 
