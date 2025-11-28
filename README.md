@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पृथक्त्वेन तु यज्ज्ञानं नानाभावान्पृथग्विधान् | वेत्ति सर्वेषु भूतेषु तज्ज्ञानं विद्धि राजसम् ||१८-२१||" </br>
-Translate: "18.21 The knowledge which thinks of the manifold existence in all beings as separate - that comes from Passion." </br>
+"ज्ञेयं यत्तत्प्रवक्ष्यामि यज्ज्ञात्वामृतमश्नुते | अनादिमत्परं ब्रह्म न सत्तन्नासदुच्यते ||१३-१३||" </br>
+Translate: "13.13 I will speak to thee now of that great Truth which man ought to know, since by its means he will win immortal bliss - that which is without beginning, the Eternal Spirit which dwells in Me, neither with form, nor yet without it." </br>
 
 # Prefs
 
