@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"असक्तबुद्धिः सर्वत्र जितात्मा विगतस्पृहः | नैष्कर्म्यसिद्धिं परमां संन्यासेनाधिगच्छति ||१८-४९||" </br>
-Translate: "18.49 He whose mind is entirely detached, who has conquered himself, whose desires have vanished, by his renunciation reaches that stage of perfect freedom where action completes itself and leaves no seed." </br>
+"किं कर्म किमकर्मेति कवयोऽप्यत्र मोहिताः | तत्ते कर्म प्रवक्ष्यामि यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ||४-१६||" </br>
+Translate: "4.16 What is action and what is inaction? It is a question which has bewildered the wise. But I will declare unto thee the philosophy of action, and knowing it, thou shalt be free from evil." </br>
 
 # Prefs
 
