@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"किं कर्म किमकर्मेति कवयोऽप्यत्र मोहिताः | तत्ते कर्म प्रवक्ष्यामि यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ||४-१६||" </br>
-Translate: "4.16 What is action and what is inaction? It is a question which has bewildered the wise. But I will declare unto thee the philosophy of action, and knowing it, thou shalt be free from evil." </br>
+"या निशा सर्वभूतानां तस्यां जागर्ति संयमी | यस्यां जाग्रति भूतानि सा निशा पश्यतो मुनेः ||२-६९||" </br>
+Translate: "2.69 The saint is awake when the world sleeps, and he ignores that for which the world lives." </br>
 
 # Prefs
 
