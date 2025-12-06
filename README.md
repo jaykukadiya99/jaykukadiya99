@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अभ्यासेऽप्यसमर्थोऽसि मत्कर्मपरमो भव | मदर्थमपि कर्माणि कुर्वन्सिद्धिमवाप्स्यसि ||१२-१०||" </br>
-Translate: "12.10 And if thou are not strong enough to practise concentration, then devote thyself to My service, do all thine acts for My sake, and thou shalt still attain the goal." </br>
+"अन्ये च बहवः शूरा मदर्थे त्यक्तजीविताः | नानाशस्त्रप्रहरणाः सर्वे युद्धविशारदाः ||१-९||" </br>
+Translate: "1.9 And many others, all ready to die for my sake; all armed, all skilled in war." </br>
 
 # Prefs
 
