@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यया धर्ममधर्मं च कार्यं चाकार्यमेव च | अयथावत्प्रजानाति बुद्धिः सा पार्थ राजसी ||१८-३१||" </br>
-Translate: "18.31 The intellect which does not understand what is right and what is wrong, and what should be done and what not, is under the sway of Passion." </br>
+"यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः | यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ||६-२२||" </br>
+Translate: "6.22 Finding That, he will realise that there is no possession so precious. And when once established here, no calamity can disturb him." </br>
 
 # Prefs
 
