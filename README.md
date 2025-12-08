@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः | यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ||६-२२||" </br>
-Translate: "6.22 Finding That, he will realise that there is no possession so precious. And when once established here, no calamity can disturb him." </br>
+"यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन | ज्ञानाग्निः सर्वकर्माणि भस्मसात्कुरुते तथा ||४-३७||" </br>
+Translate: "4.37 As the kindled fire consumes the fuel, so, O Arjuna, in the flame of wisdom the embers of action are burnt to ashes." </br>
 
 # Prefs
 
