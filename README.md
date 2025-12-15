@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्वशुरान्सुहृदश्चैव सेनयोरुभयोरपि | तान्समीक्ष्य स कौन्तेयः सर्वान्बन्धूनवस्थितान् ||१-२७||" </br>
-Translate: "1.27 Fathers-in-law and benefactors, arrayed on both sides. Arjuna then gazed at all those kinsmen before him." </br>
+"न मां दुष्कृतिनो मूढाः प्रपद्यन्ते नराधमाः | माययापहृतज्ञाना आसुरं भावमाश्रिताः ||७-१५||" </br>
+Translate: "7.15 The sinner, the ignorant, the vile, deprived of spiritual perception by the glamour of Illusion, and he who pursues a godless life - none of them shall find Me." </br>
 
 # Prefs
 
