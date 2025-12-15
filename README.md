@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"य इदं परमं गुह्यं मद्भक्तेष्वभिधास्यति | भक्तिं मयि परां कृत्वा मामेवैष्यत्यसंशयः ||१८-६८||" </br>
-Translate: "18.68 But he who teaches this great secret to My devotees, his is the highest devotion, and verily he shall come unto Me." </br>
+"युञ्जन्नेवं सदात्मानं योगी नियतमानसः | शान्तिं निर्वाणपरमां मत्संस्थामधिगच्छति ||६-१५||" </br>
+Translate: "6.15 Thus keeping his mind always in communion with Me, and with his thoughts subdued, he shall attain that Peace which is mine and which will lead him to liberation at last." </br>
 
 # Prefs
 
