@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"चेतसा सर्वकर्माणि मयि संन्यस्य मत्परः | बुद्धियोगमुपाश्रित्य मच्चित्तः सततं भव ||१८-५७||" </br>
-Translate: "18.57 Surrender then thy actions unto Me, live in Me, concentrate thine intellect on Me, and think always of Me." </br>
+"प्रयाणकाले मनसाऽचलेन भक्त्या युक्तो योगबलेन चैव | भ्रुवोर्मध्ये प्राणमावेश्य सम्यक् स तं परं पुरुषमुपैति दिव्यम् ||८-१०||" </br>
+Translate: "8.10 He who leaves the body with mind unmoved and filled with devotion, by the power of his meditation gathering between his eyebrows his whole vital energy, attains the Supreme." </br>
 
 # Prefs
 
