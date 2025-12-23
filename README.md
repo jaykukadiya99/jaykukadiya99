@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः | मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ||१८-५६||" </br>
-Translate: "18.56 Relying on Me in all his action and doing them for My sake, he attains, by My Grace, Eternal and Unchangeable Life." </br>
+"देवान्भावयतानेन ते देवा भावयन्तु वः | परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ||३-११||" </br>
+Translate: "3.11 Worship the Powers of Nature thereby, and let them nourish you in return; thus supporting each other, you shall attain your highest welfare." </br>
 
 # Prefs
 
