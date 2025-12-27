@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यो यो यां यां तनुं भक्तः श्रद्धयार्चितुमिच्छति | तस्य तस्याचलां श्रद्धां तामेव विदधाम्यहम् ||७-२१||" </br>
-Translate: "7.21 But whatever the form of worship, if the devotee have faith, then upon his faith in that worship do I set My own seal." </br>
+"समं पश्यन्हि सर्वत्र समवस्थितमीश्वरम् | न हिनस्त्यात्मनात्मानं ततो याति परां गतिम् ||१३-२९||" </br>
+Translate: "13.29 Beholding the Lord in all things equally, his actions do not mar his spiritual life but lead him to the height of Bliss." </br>
 
 # Prefs
 
