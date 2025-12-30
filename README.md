@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एवमेतद्यथात्थ त्वमात्मानं परमेश्वर | द्रष्टुमिच्छामि ते रूपमैश्वरं पुरुषोत्तम ||११-३||" </br>
-Translate: "11.3 I believe all as Thou hast declared it. I long now to have a vision of thy Divine Form, O Thou Most High!" </br>
+"ज्ञानविज्ञानतृप्तात्मा कूटस्थो विजितेन्द्रियः | युक्त इत्युच्यते योगी समलोष्टाश्मकाञ्चनः ||६-८||" </br>
+Translate: "6.8 He who desires nothing but wisdom and spiritual insight, who has conquered his senses and who looks with the same eye upon a lump of earth, a stone or fine gold, is a real saint." </br>
 
 # Prefs
 
