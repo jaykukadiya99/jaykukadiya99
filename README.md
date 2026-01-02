@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"वीतरागभयक्रोधा मन्मया मामुपाश्रिताः | बहवो ज्ञानतपसा पूता मद्भावमागताः ||४-१०||" </br>
-Translate: "4.10 Many have merged their existences in Mine, being freed from desire, fear and anger, filled always with Me and purified by the illuminating flame of self-abnegation." </br>
+"मनः प्रसादः सौम्यत्वं मौनमात्मविनिग्रहः | भावसंशुद्धिरित्येतत्तपो मानसमुच्यते ||१७-१६||" </br>
+Translate: "17.16 Serenity, kindness, silence, self-control and purity - this is austerity of mind." </br>
 
 # Prefs
 
