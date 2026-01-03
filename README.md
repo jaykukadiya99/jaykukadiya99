@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अधश्चोर्ध्वं प्रसृतास्तस्य शाखा गुणप्रवृद्धा विषयप्रवालाः | अधश्च मूलान्यनुसन्ततानि कर्मानुबन्धीनि मनुष्यलोके ||१५-२||" </br>
-Translate: "15.2 Its branches shoot upwards and downwards, deriving their nourishment from the Qualities; its buds are the objects of sense; and its roots, which follow the Law causing man's regeneration and degeneration, pierce downwards into the soil." </br>
+"सर्वभूतस्थमात्मानं सर्वभूतानि चात्मनि | ईक्षते योगयुक्तात्मा सर्वत्र समदर्शनः ||६-२९||" </br>
+Translate: "6.29 He who experiences the unity of life sees his own Self in all beings, and all beings in his own Self, and looks on everything with an impartial eye;" </br>
 
 # Prefs
 
