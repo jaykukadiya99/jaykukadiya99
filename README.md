@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सर्गाणामादिरन्तश्च मध्यं चैवाहमर्जुन | अध्यात्मविद्या विद्यानां वादः प्रवदतामहम् ||१०-३२||" </br>
-Translate: "10.32 I am the Beginning, the Middle and the End in creation; among sciences, I am the science of Spirituality; I am the Discussion among disputants." </br>
+"सत्त्वं रजस्तम इति गुणाः प्रकृतिसम्भवाः | निबध्नन्ति महाबाहो देहे देहिनमव्ययम् ||१४-५||" </br>
+Translate: "14.5 Purity, Passion and Ignorance are the Qualities which the Law of nature bringeth forth. They fetter the free Spirit in all beings." </br>
 
 # Prefs
 
