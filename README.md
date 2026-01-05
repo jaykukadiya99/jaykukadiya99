@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहं सर्वस्य प्रभवो मत्तः सर्वं प्रवर्तते | इति मत्वा भजन्ते मां बुधा भावसमन्विताः ||१०-८||" </br>
-Translate: "10.8 I am the source of all; from Me everything flows. Therefore the wise worship Me with unchanging devotion." </br>
+"राजविद्या राजगुह्यं पवित्रमिदमुत्तमम् | प्रत्यक्षावगमं धर्म्यं सुसुखं कर्तुमव्ययम् ||९-२||" </br>
+Translate: "9.2 This is the Premier Science, the Sovereign Secret, the Purest and Best; intuitional, righteous; and to him who practiseth it pleasant beyond measure." </br>
 
 # Prefs
 
