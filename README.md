@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"राजविद्या राजगुह्यं पवित्रमिदमुत्तमम् | प्रत्यक्षावगमं धर्म्यं सुसुखं कर्तुमव्ययम् ||९-२||" </br>
-Translate: "9.2 This is the Premier Science, the Sovereign Secret, the Purest and Best; intuitional, righteous; and to him who practiseth it pleasant beyond measure." </br>
+"सुहृन्मित्रार्युदासीनमध्यस्थद्वेष्यबन्धुषु | साधुष्वपि च पापेषु समबुद्धिर्विशिष्यते ||६-९||" </br>
+Translate: "6.9 He looks impartially on all - lover, friend or foe; indifferent or hostile; alien or relative; virtuous or sinful." </br>
 
 # Prefs
 
