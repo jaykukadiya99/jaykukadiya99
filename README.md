@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"समं पश्यन्हि सर्वत्र समवस्थितमीश्वरम् | न हिनस्त्यात्मनात्मानं ततो याति परां गतिम् ||१३-२९||" </br>
-Translate: "13.29 Beholding the Lord in all things equally, his actions do not mar his spiritual life but lead him to the height of Bliss." </br>
+"आयुःसत्त्वबलारोग्यसुखप्रीतिविवर्धनाः | रस्याः स्निग्धाः स्थिरा हृद्या आहाराः सात्त्विकप्रियाः ||१७-८||" </br>
+Translate: "17.8 The foods that prolong life and increase purity, vigour, health, cheerfulness and happiness are those that are delicious, soothing, substantial and agreeable. These are loved by the Pure." </br>
 
 # Prefs
 
