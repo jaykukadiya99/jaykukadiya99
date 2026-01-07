@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"आयुःसत्त्वबलारोग्यसुखप्रीतिविवर्धनाः | रस्याः स्निग्धाः स्थिरा हृद्या आहाराः सात्त्विकप्रियाः ||१७-८||" </br>
-Translate: "17.8 The foods that prolong life and increase purity, vigour, health, cheerfulness and happiness are those that are delicious, soothing, substantial and agreeable. These are loved by the Pure." </br>
+"अध्यात्मज्ञाननित्यत्वं तत्त्वज्ञानार्थदर्शनम् | एतज्ज्ञानमिति प्रोक्तमज्ञानं यदतोऽन्यथा ||१३-१२||" </br>
+Translate: "13.12 Constant yearning for the knowledge of Self, and pondering over the lessons of the great Truth - this is Wisdom, all else ignorance." </br>
 
 # Prefs
 
