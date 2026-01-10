@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पत्रं पुष्पं फलं तोयं यो मे भक्त्या प्रयच्छति | तदहं भक्त्युपहृतमश्नामि प्रयतात्मनः ||९-२६||" </br>
-Translate: "9.26 Whatever a man offers to Me, whether it be a leaf, or a flower, or fruit, or water, I accept it, for it is offered with devotion and purity of mind." </br>
+"पाञ्चजन्यं हृषीकेशो देवदत्तं धनञ्जयः | पौण्ड्रं दध्मौ महाशङ्खं भीमकर्मा वृकोदरः ||१-१५||" </br>
+Translate: "1.15 Lord Shri Krishna blew his Panchajanya and Arjuna his Devadatta, brave Bheema his renowned shell, Poundra." </br>
 
 # Prefs
 
