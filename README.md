@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्त्वानुरूपा सर्वस्य श्रद्धा भवति भारत | श्रद्धामयोऽयं पुरुषो यो यच्छ्रद्धः स एव सः ||१७-३||" </br>
-Translate: "17.3 The faith of every man conforms to his nature. By nature he is full of faith. He is in fact what his faith makes him." </br>
+"सत्कारमानपूजार्थं तपो दम्भेन चैव यत् | क्रियते तदिह प्रोक्तं राजसं चलमध्रुवम् ||१७-१८||" </br>
+Translate: "17.18 Austerity coupled with hypocrisy or performed for the sake of self-glorification, popularity or vanity, comes from Passion, and its result is always doubtful and temporary." </br>
 
 # Prefs
 
