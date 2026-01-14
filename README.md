@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्कारमानपूजार्थं तपो दम्भेन चैव यत् | क्रियते तदिह प्रोक्तं राजसं चलमध्रुवम् ||१७-१८||" </br>
-Translate: "17.18 Austerity coupled with hypocrisy or performed for the sake of self-glorification, popularity or vanity, comes from Passion, and its result is always doubtful and temporary." </br>
+"यत्र योगेश्वरः कृष्णो यत्र पार्थो धनुर्धरः | तत्र श्रीर्विजयो भूतिर्ध्रुवा नीतिर्मतिर्मम ||१८-७८||" </br>
+Translate: "18.78 Wherever is the Lord Shri Krishna, the Prince of Wisdom, and wherever is Arjuna, the Great Archer, I am more than convinced that good fortune, victory, happiness and righteousness will follow"" </br>
 
 # Prefs
 
