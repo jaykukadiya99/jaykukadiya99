@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सीदन्ति मम गात्राणि मुखं च परिशुष्यति | वेपथुश्च शरीरे मे रोमहर्षश्च जायते ||१-२९||" </br>
-Translate: "1.29 My limbs fail me and my throat is parched, my body trembles and my hair stands on end." </br>
+"अयुक्तः प्राकृतः स्तब्धः शठो नैष्कृतिकोऽलसः | विषादी दीर्घसूत्री च कर्ता तामस उच्यते ||१८-२८||" </br>
+Translate: "18.28 While he whose purpose is infirm, who is low-minded, stubborn, dishonest, malicious, indolent, despondent, procrastinating - he may be assumed to be in Darkness." </br>
 
 # Prefs
 
