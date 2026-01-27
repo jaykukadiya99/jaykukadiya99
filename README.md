@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"रुद्रादित्या वसवो ये च साध्या विश्वेऽश्विनौ मरुतश्चोष्मपाश्च | गन्धर्वयक्षासुरसिद्धसङ्घा वीक्षन्ते त्वां विस्मिताश्चैव सर्वे ||११-२२||" </br>
-Translate: "11.22 The Vital Forces, the Major stars, Fire, Earth, Air, Sky, Sun, Heaven, Moon and Planets; the Angels, the Guardians of the Universe, the divine Healers, the Winds, the Fathers, the Heavenly Singers; and hosts of Mammon-worshippers, demons as well as saints, are amazed." </br>
+"चतुर्विधा भजन्ते मां जनाः सुकृतिनोऽर्जुन | आर्तो जिज्ञासुरर्थार्थी ज्ञानी च भरतर्षभ ||७-१६||" </br>
+Translate: "7.16 O Arjuna! The righteous who worship Me are grouped by stages: first, they who suffer, next they who desire knowledge, then they who thirst after truth, and lastly they who attain wisdom." </br>
 
 # Prefs
 
