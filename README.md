@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बुद्धेर्भेदं धृतेश्चैव गुणतस्त्रिविधं शृणु | प्रोच्यमानमशेषेण पृथक्त्वेन धनञ्जय ||१८-२९||" </br>
-Translate: "18.29 Reason and conviction are threefold, according to the Quality which is dominant. I will explain them fully and severally, O Arjuna!" </br>
+"ध्यानेनात्मनि पश्यन्ति केचिदात्मानमात्मना | अन्ये साङ्ख्येन योगेन कर्मयोगेन चापरे ||१३-२५||" </br>
+Translate: "13.25 Some realise the Supreme by meditating, by its aid, on the Self within, others by pure reason, others by right action." </br>
 
 # Prefs
 
