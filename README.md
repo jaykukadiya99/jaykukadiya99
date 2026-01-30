@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दातव्यमिति यद्दानं दीयतेऽनुपकारिणे | देशे काले च पात्रे च तद्दानं सात्त्विकं स्मृतम् ||१७-२०||" </br>
-Translate: "17.20 The gift which is given without thought of recompense, in the belief that it ought to be made, in a fit place, at an opportune time and to a deserving person - such a gift is Pure." </br>
+"श्रीभगवानुवाच | संन्यासः कर्मयोगश्च निःश्रेयसकरावुभौ | तयोस्तु कर्मसंन्यासात्कर्मयोगो विशिष्यते ||५-२||" </br>
+Translate: "5.2 Lord Shri Krishna replied: Renunciation of action and the path of right action both lead to the highest; of the two, right action is the better." </br>
 
 # Prefs
 
