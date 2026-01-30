@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहिंसा समता तुष्टिस्तपो दानं यशोऽयशः | भवन्ति भावा भूतानां मत्त एव पृथग्विधाः ||१०-५||" </br>
-Translate: "10.5 Harmlessness, equanimity, contentment, austerity, beneficence, fame and failure, all these, the characteristics of beings, spring from Me only." </br>
+"दातव्यमिति यद्दानं दीयतेऽनुपकारिणे | देशे काले च पात्रे च तद्दानं सात्त्विकं स्मृतम् ||१७-२०||" </br>
+Translate: "17.20 The gift which is given without thought of recompense, in the belief that it ought to be made, in a fit place, at an opportune time and to a deserving person - such a gift is Pure." </br>
 
 # Prefs
 
