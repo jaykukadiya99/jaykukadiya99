@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कामात्मानः स्वर्गपरा जन्मकर्मफलप्रदाम् | क्रियाविशेषबहुलां भोगैश्वर्यगतिं प्रति ||२-४३||" </br>
-Translate: "2.43 Consulting only their own desires, they construct their own heaven, devising arduous and complex rites to secure their own pleasure and their own power; and the only result is rebirth." </br>
+"निराशीर्यतचित्तात्मा त्यक्तसर्वपरिग्रहः | शारीरं केवलं कर्म कुर्वन्नाप्नोति किल्बिषम् ||४-२१||" </br>
+Translate: "4.21 Expecting nothing, his mind and personality controlled, without greed, doing bodily actions only; though he acts, yet he remains untainted." </br>
 
 # Prefs
 
