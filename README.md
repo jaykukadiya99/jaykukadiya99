@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"निराशीर्यतचित्तात्मा त्यक्तसर्वपरिग्रहः | शारीरं केवलं कर्म कुर्वन्नाप्नोति किल्बिषम् ||४-२१||" </br>
-Translate: "4.21 Expecting nothing, his mind and personality controlled, without greed, doing bodily actions only; though he acts, yet he remains untainted." </br>
+"मामुपेत्य पुनर्जन्म दुःखालयमशाश्वतम् | नाप्नुवन्ति महात्मानः संसिद्धिं परमां गताः ||८-१५||" </br>
+Translate: "8.15 Coming thus unto Me, these great souls go no more to the misery and death of earthly life, for they have gained perfection." </br>
 
 # Prefs
 
