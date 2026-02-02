@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दैवी ह्येषा गुणमयी मम माया दुरत्यया | मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते ||७-१४||" </br>
-Translate: "7.14 Verily, this Divine Illusion of Phenomenon manifesting itself in the Qualities is difficult to surmount. Only they who devote themselves to Me and to Me alone can accomplish it." </br>
+"य इदं परमं गुह्यं मद्भक्तेष्वभिधास्यति | भक्तिं मयि परां कृत्वा मामेवैष्यत्यसंशयः ||१८-६८||" </br>
+Translate: "18.68 But he who teaches this great secret to My devotees, his is the highest devotion, and verily he shall come unto Me." </br>
 
 # Prefs
 
