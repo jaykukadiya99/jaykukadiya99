@@ -11,12 +11,18 @@
 👨‍💻 I am passionate about Web Dev and Mobile Dev(Using Flutter) & I enjoy learning new things. </br>
 
 ## Activity Graph
-[![Ashutosh's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=jaykukadiya99&bg_color=293036&color=ffffff&line=9ecbff&point=f97583&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+
+<p align="center">
+<a href="https://github.com/jaykukadiya99/">
+ <img src="https://activity-graph.herokuapp.com/graph?username=jaykukadiya99&theme=react-dark&area=true&hide_border=true" width="100%">
+</a>
+</p>
+</br>
 
 ## Shlok of the day 🌞
 
-"अधर्माभिभवात्कृष्ण प्रदुष्यन्ति कुलस्त्रियः | स्त्रीषु दुष्टासु वार्ष्णेय जायते वर्णसङ्करः ||१-४१||" </br>
-Translate: "1.41 When irreligion spreads, the women of the house begin to stray; when they lose their purity, adulteration of the stock follows." </br>
+"न च मां तानि कर्माणि निबध्नन्ति धनञ्जय | उदासीनवदासीनमसक्तं तेषु कर्मसु ||९-९||" </br>
+Translate: "9.9 But these acts of mine do not bind Me. I remain outside and unattached." </br>
 
 # Prefs
 
