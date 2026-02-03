@@ -11,13 +11,7 @@
 👨‍💻 I am passionate about Web Dev and Mobile Dev(Using Flutter) & I enjoy learning new things. </br>
 
 ## Activity Graph
-
-<p align="center">
-<a href="https://github.com/jaykukadiya99/">
- <img src="https://activity-graph.herokuapp.com/graph?username=jaykukadiya99&theme=react-dark&area=true&hide_border=true" width="100%">
-</a>
-</p>
-</br>
+[![Ashutosh's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=jaykukadiya99&bg_color=293036&color=ffffff&line=9ecbff&point=f97583&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
 
 ## Shlok of the day 🌞
 
