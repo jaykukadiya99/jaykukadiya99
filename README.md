@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न च मां तानि कर्माणि निबध्नन्ति धनञ्जय | उदासीनवदासीनमसक्तं तेषु कर्मसु ||९-९||" </br>
-Translate: "9.9 But these acts of mine do not bind Me. I remain outside and unattached." </br>
+"दुःखमित्येव यत्कर्म कायक्लेशभयात्त्यजेत् | स कृत्वा राजसं त्यागं नैव त्यागफलं लभेत् ||१८-८||" </br>
+Translate: "18.8 To avoid an action through fear of physical suffering, because it is likely to be painful, is to act from passion, and the benefit of renunciation will not follow." </br>
 
 # Prefs
 
