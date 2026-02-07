@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अच्छेद्योऽयमदाह्योऽयमक्लेद्योऽशोष्य एव च | नित्यः सर्वगतः स्थाणुरचलोऽयं सनातनः ||२-२४||" </br>
-Translate: "2.24 It is impenetrable; It can be neither drowned nor scorched nor dried. It is Eternal, All-pervading, Unchanging, Immovable and Most Ancient." </br>
+"यज्ञार्थात्कर्मणोऽन्यत्र लोकोऽयं कर्मबन्धनः | तदर्थं कर्म कौन्तेय मुक्तसङ्गः समाचर ||३-९||" </br>
+Translate: "3.9 In this world people are fettered by action, unless it is performed as a sacrifice. Therefore, O Arjuna, let thy acts be done without attachment, as sacrifice only." </br>
 
 # Prefs
 
