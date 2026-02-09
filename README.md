@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"किरीटिनं गदिनं चक्रहस्तं इच्छामि त्वां द्रष्टुमहं तथैव | तेनैव रूपेण चतुर्भुजेन सहस्रबाहो भव विश्वमूर्ते ||११-४६||" </br>
-Translate: "11.46 I long to see Thee as thou wert before, with the crown, the sceptre and the discus in Thy hands; in Thy other Form, with Thy four hands, O Thou Whose arms are countless and Whose forms are infinite." </br>
+"अहंकारं बलं दर्पं कामं क्रोधं च संश्रिताः | मामात्मपरदेहेषु प्रद्विषन्तोऽभ्यसूयकाः ||१६-१८||" </br>
+Translate: "16.18 Puffed up by power and inordinate conceit, swayed by lust and wrath, these wicked people hate Me Who am within them, as I am within all." </br>
 
 # Prefs
 
