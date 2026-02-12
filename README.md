@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | पार्थ नैवेह नामुत्र विनाशस्तस्य विद्यते | न हि कल्याणकृत्कश्चिद् दुर्गतिं तात गच्छति ||६-४०||" </br>
-Translate: "6.40 Lord Shri Krishna replied: My beloved child! There is no destruction for him, either in this world or in the next. No evil fate awaits him who treads the path of righteousness." </br>
+"श्रीभगवानुवाच | मय्यासक्तमनाः पार्थ योगं युञ्जन्मदाश्रयः | असंशयं समग्रं मां यथा ज्ञास्यसि तच्छृणु ||७-१||" </br>
+Translate: "7.1 "Lord Shri Krishna said: Listen, O Arjuna! And I will tell thee how thou shalt know Me in my Full perfection, practising meditation with thy mind devoted to Me, and having Me for thy refuge." </br>
 
 # Prefs
 
