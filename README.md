@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनिष्टमिष्टं मिश्रं च त्रिविधं कर्मणः फलम् | भवत्यत्यागिनां प्रेत्य न तु संन्यासिनां क्वचित् ||१८-१२||" </br>
-Translate: "18.12 For those who cannot renounce all desire, the fruit of action hereafter is threefold - good, evil, and partly good and partly evil. But for him who has renounced, there is none." </br>
+"प्रयाणकाले मनसाऽचलेन भक्त्या युक्तो योगबलेन चैव | भ्रुवोर्मध्ये प्राणमावेश्य सम्यक् स तं परं पुरुषमुपैति दिव्यम् ||८-१०||" </br>
+Translate: "8.10 He who leaves the body with mind unmoved and filled with devotion, by the power of his meditation gathering between his eyebrows his whole vital energy, attains the Supreme." </br>
 
 # Prefs
 
