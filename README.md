@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अध्येष्यते च य इमं धर्म्यं संवादमावयोः | ज्ञानयज्ञेन तेनाहमिष्टः स्यामिति मे मतिः ||१८-७०||" </br>
-Translate: "18.70 He who will study this spiritual discourse of ours, I assure thee, he shall thereby worship Me at the altar of Wisdom." </br>
+"प्रकृतेः क्रियमाणानि गुणैः कर्माणि सर्वशः | अहङ्कारविमूढात्मा कर्ताहमिति मन्यते ||३-२७||" </br>
+Translate: "3.27 Action is the product of the Qualities inherent in Nature. It is only the ignorant man who, misled by personal egotism, says: I am the doer.'" </br>
 
 # Prefs
 
