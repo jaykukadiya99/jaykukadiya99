@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सदृशं चेष्टते स्वस्याः प्रकृतेर्ज्ञानवानपि | प्रकृतिं यान्ति भूतानि निग्रहः किं करिष्यति ||३-३३||" </br>
-Translate: "3.33 Even the wise man acts in character with his nature; indeed, all creatures act according to their natures. What is the use of compulsion then?" </br>
+"अहं क्रतुरहं यज्ञः स्वधाहमहमौषधम् | मन्त्रोऽहमहमेवाज्यमहमग्निरहं हुतम् ||९-१६||" </br>
+Translate: "9.16 I am the Oblation, the Sacrifice and the Worship; I am the Fuel and the Chant, I am the Butter offered to the fire, I am the Fire itself, and I am the Act of offering." </br>
 
 # Prefs
 
