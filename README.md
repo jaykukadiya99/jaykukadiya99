@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"न द्वेष्ट्यकुशलं कर्म कुशले नानुषज्जते | त्यागी सत्त्वसमाविष्टो मेधावी छिन्नसंशयः ||१८-१०||" </br>
-Translate: "18.10 The wise man who has attained purity, whose doubts are solved, who is filled with the spirit of self-abnegation, does not shrink from action because it brings pain, nor does he desire it because it brings pleasure." </br>
+"स्वे स्वे कर्मण्यभिरतः संसिद्धिं लभते नरः | स्वकर्मनिरतः सिद्धिं यथा विन्दति तच्छृणु ||१८-४५||" </br>
+Translate: "5.10 He who dedicates his actions to the Spirit, without any personal attachment to them, he is no more tainted by sin than the water lily is wetted by water." </br>
 
 # Prefs
 
