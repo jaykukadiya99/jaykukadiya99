@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"धूमेनाव्रियते वह्निर्यथादर्शो मलेन च | यथोल्बेनावृतो गर्भस्तथा तेनेदमावृतम् ||३-३८||" </br>
-Translate: "3.38 As fire is shrouded in smoke, a mirror by dust and a child by the womb, so is the universe enveloped in desire." </br>
+"यदा सत्त्वे प्रवृद्धे तु प्रलयं याति देहभृत् | तदोत्तमविदां लोकानमलान्प्रतिपद्यते ||१४-१४||" </br>
+Translate: "14.14 When Purity prevails, the soul on quitting the body passes on to the pure regions where live those who know the Highest." </br>
 
 # Prefs
 
