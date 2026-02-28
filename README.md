@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"य इदं परमं गुह्यं मद्भक्तेष्वभिधास्यति | भक्तिं मयि परां कृत्वा मामेवैष्यत्यसंशयः ||१८-६८||" </br>
-Translate: "18.68 But he who teaches this great secret to My devotees, his is the highest devotion, and verily he shall come unto Me." </br>
+"पुण्यो गन्धः पृथिव्यां च तेजश्चास्मि विभावसौ | जीवनं सर्वभूतेषु तपश्चास्मि तपस्विषु ||७-९||" </br>
+Translate: "7.9 I am the Fragrance of earth, the Brilliance of fire. I am the Life Force in all beings, and I am the Austerity of the ascetics." </br>
 
 # Prefs
 
