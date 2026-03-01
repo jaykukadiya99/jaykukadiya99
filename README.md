@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पुण्यो गन्धः पृथिव्यां च तेजश्चास्मि विभावसौ | जीवनं सर्वभूतेषु तपश्चास्मि तपस्विषु ||७-९||" </br>
-Translate: "7.9 I am the Fragrance of earth, the Brilliance of fire. I am the Life Force in all beings, and I am the Austerity of the ascetics." </br>
+"तत्त्ववित्तु महाबाहो गुणकर्मविभागयोः | गुणा गुणेषु वर्तन्त इति मत्वा न सज्जते ||३-२८||" </br>
+Translate: "3.28 But he, O Mighty One, who understands correctly the relation of the Qualities to action, is not attached to the act for he perceives that it is merely the action and reaction of the Qualities among themselves." </br>
 
 # Prefs
 
