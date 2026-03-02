@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् | व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ||१-३||" </br>
-Translate: "1.3 Revered Father! Behold this mighty host of the Pandavas, paraded by the son of King Drupada, thy wise disciple." </br>
+"विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः | निर्ममो निरहङ्कारः स शान्तिमधिगच्छति ||२-७१||" </br>
+Translate: "2.71 He attains Peace who, giving up desire, moves through the world without aspiration, possessing nothing which he can call his own, and free from pride." </br>
 
 # Prefs
 
