@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"इदमद्य मया लब्धमिमं प्राप्स्ये मनोरथम् | इदमस्तीदमपि मे भविष्यति पुनर्धनम् ||१६-१३||" </br>
-Translate: "16.13 This I have gained today; tomorrow I will gratify another desire; this wealth is mine now, the rest shall be mine ere long;" </br>
+"मां च योऽव्यभिचारेण भक्तियोगेन सेवते | स गुणान्समतीत्यैतान्ब्रह्मभूयाय कल्पते ||१४-२६||" </br>
+Translate: "14.26 And he who serves Me and only Me, with unfaltering devotion, shall overcome the Qualities, and become One with the Eternal." </br>
 
 # Prefs
 
