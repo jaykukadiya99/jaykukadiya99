@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रयाणकाले मनसाऽचलेन भक्त्या युक्तो योगबलेन चैव | भ्रुवोर्मध्ये प्राणमावेश्य सम्यक् स तं परं पुरुषमुपैति दिव्यम् ||८-१०||" </br>
-Translate: "8.10 He who leaves the body with mind unmoved and filled with devotion, by the power of his meditation gathering between his eyebrows his whole vital energy, attains the Supreme." </br>
+"योत्स्यमानानवेक्षेऽहं य एतेऽत्र समागताः | धार्तराष्ट्रस्य दुर्बुद्धेर्युद्धे प्रियचिकीर्षवः ||१-२३||" </br>
+Translate: "1.23 And gaze over this array of soldiers, eager to please the sinful sons of Dhritarashtra."" </br>
 
 # Prefs
 
