@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ये यथा मां प्रपद्यन्ते तांस्तथैव भजाम्यहम् | मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ||४-११||" </br>
-Translate: "4.11 Howsoever men try to worship Me, so do I welcome them. By whatever path they travel, it leads to Me at last." </br>
+"अन्तवत्तु फलं तेषां तद्भवत्यल्पमेधसाम् | देवान्देवयजो यान्ति मद्भक्ता यान्ति मामपि ||७-२३||" </br>
+Translate: "7.23 The fruit that comes to men of limited insight is, after all, finite. They who worship the Lower Powers attain them; but those who worship Me come unto Me alone." </br>
 
 # Prefs
 
