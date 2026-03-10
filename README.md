@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"ध्यायतो विषयान्पुंसः सङ्गस्तेषूपजायते | सङ्गात्सञ्जायते कामः कामात्क्रोधोऽभिजायते ||२-६२||" </br>
-Translate: "2.62 When a man dwells on the objects of sense, he creates an attraction for them; attraction develops into desire, and desire breeds anger." </br>
+"आत्मसम्भाविताः स्तब्धा धनमानमदान्विताः | यजन्ते नामयज्ञैस्ते दम्भेनाविधिपूर्वकम् ||१६-१७||" </br>
+Translate: "16.17 Self-conceited, stubborn, rich, proud and insolent, they make a display of their patronage, disregarding the rules of decency." </br>
 
 # Prefs
 
