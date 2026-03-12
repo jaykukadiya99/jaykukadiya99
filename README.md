@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"दिव्यमाल्याम्बरधरं दिव्यगन्धानुलेपनम् | सर्वाश्चर्यमयं देवमनन्तं विश्वतोमुखम् ||११-११||" </br>
-Translate: "11.11 Crowned with heavenly garlands, clothed in shining garments, anointed with divine unctions, He showed Himself as the Resplendent One, Marvellous, Boundless, Omnipresent." </br>
+"स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः | प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ||५-२७||" </br>
+Translate: "5.27 Excluding external objects, his gaze fixed between the eyebrows, the inward and outward breathings passing equally through his nostrils;" </br>
 
 # Prefs
 
