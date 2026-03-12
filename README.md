@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"बृहत्साम तथा साम्नां गायत्री छन्दसामहम् | मासानां मार्गशीर्षोऽहमृतूनां कुसुमाकरः ||१०-३५||" </br>
-Translate: "10.35 Of hymns I am Brihatsama, of metres I am Garatri, among the months I am Margasheersha (December), and I am the Spring among seasons." </br>
+"दिव्यमाल्याम्बरधरं दिव्यगन्धानुलेपनम् | सर्वाश्चर्यमयं देवमनन्तं विश्वतोमुखम् ||११-११||" </br>
+Translate: "11.11 Crowned with heavenly garlands, clothed in shining garments, anointed with divine unctions, He showed Himself as the Resplendent One, Marvellous, Boundless, Omnipresent." </br>
 
 # Prefs
 
