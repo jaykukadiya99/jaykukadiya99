@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अहमात्मा गुडाकेश सर्वभूताशयस्थितः | अहमादिश्च मध्यं च भूतानामन्त एव च ||१०-२०||" </br>
-Translate: "10.20 O Arjuna! I am the Self, seated in the hearts of all beings; I am the beginning and the life, and I am the end of them all." </br>
+"किरीटिनं गदिनं चक्रिणं च तेजोराशिं सर्वतो दीप्तिमन्तम् | पश्यामि त्वां दुर्निरीक्ष्यं समन्ताद् दीप्तानलार्कद्युतिमप्रमेयम् ||११-१७||" </br>
+Translate: "11.17 I see thee with the crown, the sceptre and the discus; a blaze of splendour. Scarce can I gaze on thee, so radiant thou art, glowing like the blazing fire, brilliant as the sun, immeasurable." </br>
 
 # Prefs
 
