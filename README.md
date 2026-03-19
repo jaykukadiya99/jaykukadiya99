@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"य एनं वेत्ति हन्तारं यश्चैनं मन्यते हतम् | उभौ तौ न विजानीतो नायं हन्ति न हन्यते ||२-१९||" </br>
-Translate: "2.19 He who thinks that the Spirit kills, and he who thinks of It as killed, are both ignorant. The Spirit kills not, nor is It killed." </br>
+"येऽप्यन्यदेवता भक्ता यजन्ते श्रद्धयान्विताः | तेऽपि मामेव कौन्तेय यजन्त्यविधिपूर्वकम् ||९-२३||" </br>
+Translate: "9.23 Even those who worship the lesser Powers, if they do so with faith, they thereby worship Me, though not in the right way." </br>
 
 # Prefs
 
