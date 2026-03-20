@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रकृत्यैव च कर्माणि क्रियमाणानि सर्वशः | यः पश्यति तथात्मानमकर्तारं स पश्यति ||१३-३०||" </br>
-Translate: "13.30 He who understands that it is only the Law of Nature that brings action to fruition, and that the Self never acts, alone knows the Truth." </br>
+"मम योनिर्महद् ब्रह्म तस्मिन्गर्भं दधाम्यहम् | सम्भवः सर्वभूतानां ततो भवति भारत ||१४-३||" </br>
+Translate: "14.3 The eternal Cosmos is My womb, in which I plant the seed, from which all beings are born, O Prince!" </br>
 
 # Prefs
 
