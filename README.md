@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"मम योनिर्महद् ब्रह्म तस्मिन्गर्भं दधाम्यहम् | सम्भवः सर्वभूतानां ततो भवति भारत ||१४-३||" </br>
-Translate: "14.3 The eternal Cosmos is My womb, in which I plant the seed, from which all beings are born, O Prince!" </br>
+"उच्चैःश्रवसमश्वानां विद्धि माममृतोद्भवम् | ऐरावतं गजेन्द्राणां नराणां च नराधिपम् ||१०-२७||" </br>
+Translate: "10.27 Know that among horses I am Pegasus, the heaven-born; among the lordly elephants I am the White one, and I am the Ruler among men." </br>
 
 # Prefs
 
