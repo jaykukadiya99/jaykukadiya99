@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"उच्चैःश्रवसमश्वानां विद्धि माममृतोद्भवम् | ऐरावतं गजेन्द्राणां नराणां च नराधिपम् ||१०-२७||" </br>
-Translate: "10.27 Know that among horses I am Pegasus, the heaven-born; among the lordly elephants I am the White one, and I am the Ruler among men." </br>
+"राजन्संस्मृत्य संस्मृत्य संवादमिममद्भुतम् | केशवार्जुनयोः पुण्यं हृष्यामि च मुहुर्मुहुः ||१८-७६||" </br>
+Translate: "18.76 O King! The more I think of that marvellous and holy discourse, the more I lose myself in joy." </br>
 
 # Prefs
 
