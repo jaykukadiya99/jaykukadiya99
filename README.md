@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"एतद्योनीनि भूतानि सर्वाणीत्युपधारय | अहं कृत्स्नस्य जगतः प्रभवः प्रलयस्तथा ||७-६||" </br>
-Translate: "7.6 It is the womb of all being; for I am He by Whom the worlds were created and shall be dissolved." </br>
+"द्रव्ययज्ञास्तपोयज्ञा योगयज्ञास्तथापरे | स्वाध्यायज्ञानयज्ञाश्च यतयः संशितव्रताः ||४-२८||" </br>
+Translate: "4.28 And yet others offer as their sacrifice wealth, austerities and meditation. Monks wedded to their vows renounce their scriptural learning and even their spiritual powers." </br>
 
 # Prefs
 
