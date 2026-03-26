@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"तेजः क्षमा धृतिः शौचमद्रोहो नातिमानिता | भवन्ति सम्पदं दैवीमभिजातस्य भारत ||१६-३||" </br>
-Translate: "16.3 Valour, forgiveness, fortitude, purity, freedom from hate and vanity; these are his who possesses the Godly Qualities, O Arjuna!" </br>
+"सर्वभूतस्थितं यो मां भजत्येकत्वमास्थितः | सर्वथा वर्तमानोऽपि स योगी मयि वर्तते ||६-३१||" </br>
+Translate: "6.31 The sage who realises the unity of life and who worships Me in all beings, lives in Me, whatever may be his lot." </br>
 
 # Prefs
 
