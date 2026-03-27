@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"अनन्तश्चास्मि नागानां वरुणो यादसामहम् | पितॄणामर्यमा चास्मि यमः संयमतामहम् ||१०-२९||" </br>
-Translate: "10.29 I am the King-python among snakes, I am the Aqueous Principle among those that live in water, I am the Father of fathers, and among rulers I am Death." </br>
+"नैनं छिन्दन्ति शस्त्राणि नैनं दहति पावकः | न चैनं क्लेदयन्त्यापो न शोषयति मारुतः ||२-२३||" </br>
+Translate: "2.23 Weapons cleave It not, fire burns It not, water drenches It not, and wind dries It not." </br>
 
 # Prefs
 
