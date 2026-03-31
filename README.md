@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यद्यप्येते न पश्यन्ति लोभोपहतचेतसः | कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ||१-३८||" </br>
-Translate: "1.38 Although these men, blinded by greed, see no guilt in destroying their kin, or fighting against their friends," </br>
+"शरीरवाङ्मनोभिर्यत्कर्म प्रारभते नरः | न्याय्यं वा विपरीतं वा पञ्चैते तस्य हेतवः ||१८-१५||" </br>
+Translate: "18.15 Whatever action a man performs, whether by muscular effort or by speech or by thought, and whether it be right or wrong, these five are the essential causes." </br>
 
 # Prefs
 
