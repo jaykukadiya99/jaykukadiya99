@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"क्लेशोऽधिकतरस्तेषामव्यक्तासक्तचेतसाम् | अव्यक्ता हि गतिर्दुःखं देहवद्भिरवाप्यते ||१२-५||" </br>
-Translate: "12.5 But they who thus fix their attention on the Absolute and Impersonal encounter greater hardships, for it is difficult for those who possess a body to realise Me as without one." </br>
+"दुःखमित्येव यत्कर्म कायक्लेशभयात्त्यजेत् | स कृत्वा राजसं त्यागं नैव त्यागफलं लभेत् ||१८-८||" </br>
+Translate: "18.8 To avoid an action through fear of physical suffering, because it is likely to be painful, is to act from passion, and the benefit of renunciation will not follow." </br>
 
 # Prefs
 
