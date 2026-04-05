@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रकृत्यैव च कर्माणि क्रियमाणानि सर्वशः | यः पश्यति तथात्मानमकर्तारं स पश्यति ||१३-३०||" </br>
-Translate: "13.30 He who understands that it is only the Law of Nature that brings action to fruition, and that the Self never acts, alone knows the Truth." </br>
+"यथा प्रदीप्तं ज्वलनं पतङ्गा विशन्ति नाशाय समृद्धवेगाः | तथैव नाशाय विशन्ति लोकास्- तवापि वक्त्राणि समृद्धवेगाः ||११-२९||" </br>
+Translate: "11.29 As moths fly impetuously to the flame only to be killed, so these men rush into Thy mouths to court their own destruction." </br>
 
 # Prefs
 
