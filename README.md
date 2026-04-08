@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"यतन्तो योगिनश्चैनं पश्यन्त्यात्मन्यवस्थितम् | यतन्तोऽप्यकृतात्मानो नैनं पश्यन्त्यचेतसः ||१५-११||" </br>
-Translate: "15.11 The saints with great effort find Him within themselves; but not the unintelligent, who in spite of every effort cannot control their minds." </br>
+"धूमेनाव्रियते वह्निर्यथादर्शो मलेन च | यथोल्बेनावृतो गर्भस्तथा तेनेदमावृतम् ||३-३८||" </br>
+Translate: "3.38 As fire is shrouded in smoke, a mirror by dust and a child by the womb, so is the universe enveloped in desire." </br>
 
 # Prefs
 
