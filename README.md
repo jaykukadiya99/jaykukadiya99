@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"कुलक्षये प्रणश्यन्ति कुलधर्माः सनातनाः | धर्मे नष्टे कुलं कृत्स्नमधर्मोऽभिभवत्युत ||१-४०||" </br>
-Translate: "1.40 The destruction of our kindred means the destruction of the traditions of our ancient lineage, and when these are lost, irreligion will overrun our homes." </br>
+"यावत्सञ्जायते किञ्चित्सत्त्वं स्थावरजङ्गमम् | क्षेत्रक्षेत्रज्ञसंयोगात्तद्विद्धि भरतर्षभ ||१३-२७||" </br>
+Translate: "13.27 Wherever life is seen in things movable or immovable, it is the joint product of Matter and Spirit." </br>
 
 # Prefs
 
