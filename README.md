@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"राजन्संस्मृत्य संस्मृत्य संवादमिममद्भुतम् | केशवार्जुनयोः पुण्यं हृष्यामि च मुहुर्मुहुः ||१८-७६||" </br>
-Translate: "18.76 O King! The more I think of that marvellous and holy discourse, the more I lose myself in joy." </br>
+"सहजं कर्म कौन्तेय सदोषमपि न त्यजेत् | सर्वारम्भा हि दोषेण धूमेनाग्निरिवावृताः ||१८-४८||" </br>
+Translate: "18.48 The duty that of itself falls to one's lot should not be abandoned, though it may have its defects. All acts are marred by defects, as fire is obscured by smoke." </br>
 
 # Prefs
 
