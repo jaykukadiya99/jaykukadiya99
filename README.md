@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"सुखमात्यन्तिकं यत्तद् बुद्धिग्राह्यमतीन्द्रियम् | वेत्ति यत्र न चैवायं स्थितश्चलति तत्त्वतः ||६-२१||" </br>
-Translate: "6.21 When he enjoys the Bliss which passes sense, and which only the Pure Intellect can grasp, when he comes to rest within his own highest Self, never again will he stray from reality." </br>
+"स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः | प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ||५-२७||" </br>
+Translate: "5.27 Excluding external objects, his gaze fixed between the eyebrows, the inward and outward breathings passing equally through his nostrils;" </br>
 
 # Prefs
 
