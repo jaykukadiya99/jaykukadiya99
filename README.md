@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः | प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ||५-२७||" </br>
-Translate: "5.27 Excluding external objects, his gaze fixed between the eyebrows, the inward and outward breathings passing equally through his nostrils;" </br>
+"न मे विदुः सुरगणाः प्रभवं न महर्षयः | अहमादिर्हि देवानां महर्षीणां च सर्वशः ||१०-२||" </br>
+Translate: "10.2 Neither the professors of divinity nor the great ascetics know My origin, for I am the source of them all." </br>
 
 # Prefs
 
