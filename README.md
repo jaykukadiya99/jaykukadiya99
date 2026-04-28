@@ -21,8 +21,8 @@
 
 ## Shlok of the day 🌞
 
-"पुरुषः स परः पार्थ भक्त्या लभ्यस्त्वनन्यया | यस्यान्तःस्थानि भूतानि येन सर्वमिदं ततम् ||८-२२||" </br>
-Translate: "8.22 O Arjuna! That Highest God, in Whom all beings abide, and Who pervades the entire universe, is reached only by wholehearted devotion. [The following material (between the asterisks) is an example of what may be a "doctored' inclusion. It does not jibe with the rest of the material because it is not presented as metaphor and clearly implies that worldly phenomena are spiritually determining. Maybe it was added by an individual or individuals who were less cognizant than the originating author. Or maybe was 'craftily' inserted to function as a sort of litmus test - those who get"taken in' by it may be recognized as not having "spiritual discernment'.]" </br>
+"अदृष्टपूर्वं हृषितोऽस्मि दृष्ट्वा भयेन च प्रव्यथितं मनो मे | तदेव मे दर्शय देव रूपं प्रसीद देवेश जगन्निवास ||११-४५||" </br>
+Translate: "11.45 I rejoice that I have seen what never man saw before; yet, O Lord! I am overwhelmed with fear. Please take again the Form I know. Be merciful, O Lord! thou Who are the Home of the whole universe." </br>
 
 # Prefs
 
