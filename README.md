@@ -10,14 +10,6 @@
 🌱 I’m a Full stack developer with a masters degree in Information Technology.
 👨‍💻 I am passionate about Web Dev and Mobile Dev(Using Flutter) & I enjoy learning new things. </br>
 
-## Activity Graph
-
-<p align="center">
-<a href="https://github.com/jaykukadiya99/">
- <img src="https://activity-graph.herokuapp.com/graph?username=jaykukadiya99&theme=react-dark&area=true&hide_border=true" width="100%">
-</a>
-</p>
-</br>
 
 ## Shlok of the day 🌞
 
@@ -57,12 +49,3 @@ Translate: "1.32 Ah my Lord! I crave not for victory, nor for the kingdom, nor f
 <br/>
 
 ![Profile Visitors](https://visitor-badge.laobi.icu/badge?page_id=jaykukadiya99)
-
-<br/><br/>
-
-### Conenct with Me
-
-<p align="left">
-<a href="www.linkedin.com/in/jaykukadiya" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="jay-kukadiya" height="30" width="40" /></a>
-<a href="https://stackoverflow.com/users/10273524/jay-kukadiya" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/stack-overflow.svg" alt="jay-kukadiya" height="30" width="40" /></a>
-</p>
