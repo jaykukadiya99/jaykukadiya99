@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"मां च योऽव्यभिचारेण भक्तियोगेन सेवते | स गुणान्समतीत्यैतान्ब्रह्मभूयाय कल्पते ||१४-२६||" </br>
-Translate: "14.26 And he who serves Me and only Me, with unfaltering devotion, shall overcome the Qualities, and become One with the Eternal." </br>
+"सीदन्ति मम गात्राणि मुखं च परिशुष्यति | वेपथुश्च शरीरे मे रोमहर्षश्च जायते ||१-२९||" </br>
+Translate: "1.29 My limbs fail me and my throat is parched, my body trembles and my hair stands on end." </br>
 
 # Prefs
 
