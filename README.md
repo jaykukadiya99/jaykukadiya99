@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यदादित्यगतं तेजो जगद्भासयतेऽखिलम् | यच्चन्द्रमसि यच्चाग्नौ तत्तेजो विद्धि मामकम् ||१५-१२||" </br>
-Translate: "15.12 Remember that the Light which, proceeding from the sun, illumines the whole world, and the Light which is in the moon, and That which is in the fire also, all are born of Me." </br>
+"बन्धुरात्मात्मनस्तस्य येनात्मैवात्मना जितः | अनात्मनस्तु शत्रुत्वे वर्तेतात्मैव शत्रुवत् ||६-६||" </br>
+Translate: "6.6 To him who has conquered his lower nature by Its help, the Self is a friend, but to him who has not done so, It is an enemy." </br>
 
 # Prefs
 
