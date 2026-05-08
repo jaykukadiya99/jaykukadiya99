@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अग्निर्जोतिरहः शुक्लः षण्मासा उत्तरायणम् | तत्र प्रयाता गच्छन्ति ब्रह्म ब्रह्मविदो जनाः ||८-२४||" </br>
-Translate: "8.24 If knowing the Supreme Spirit the sage goes forth with fire and light, in the daytime, in the fortnight of the waxing moon and in the six months before the Northern summer solstice, he will attain the Supreme." </br>
+"धूमेनाव्रियते वह्निर्यथादर्शो मलेन च | यथोल्बेनावृतो गर्भस्तथा तेनेदमावृतम् ||३-३८||" </br>
+Translate: "3.38 As fire is shrouded in smoke, a mirror by dust and a child by the womb, so is the universe enveloped in desire." </br>
 
 # Prefs
 
