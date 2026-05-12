@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यदा सत्त्वे प्रवृद्धे तु प्रलयं याति देहभृत् | तदोत्तमविदां लोकानमलान्प्रतिपद्यते ||१४-१४||" </br>
-Translate: "14.14 When Purity prevails, the soul on quitting the body passes on to the pure regions where live those who know the Highest." </br>
+"ज्ञानं कर्म च कर्ताच त्रिधैव गुणभेदतः | प्रोच्यते गुणसङ्ख्याने यथावच्छृणु तान्यपि ||१८-१९||" </br>
+Translate: "18.19 The knowledge, the act and the doer differ according to the Qualities. Listen to this too:" </br>
 
 # Prefs
 
