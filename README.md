@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"ममैवांशो जीवलोके जीवभूतः सनातनः | मनःषष्ठानीन्द्रियाणि प्रकृतिस्थानि कर्षति ||१५-७||" </br>
-Translate: "15.7 It is only a very small part of My Eternal Self, which is the life of the universe, drawing round itself the six senses, the mind the last, which have their source in Nature." </br>
+"शमो दमस्तपः शौचं क्षान्तिरार्जवमेव च | ज्ञानं विज्ञानमास्तिक्यं ब्रह्मकर्म स्वभावजम् ||१८-४२||" </br>
+Translate: "18.42 Serenity, self-restraint, austerity, purity, forgiveness, as well as uprightness, knowledge, wisdom and faith in God - these constitute the duty of a spiritual Teacher." </br>
 
 # Prefs
 
