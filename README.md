@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अपि चेत्सुदुराचारो भजते मामनन्यभाक् | साधुरेव स मन्तव्यः सम्यग्व्यवसितो हि सः ||९-३०||" </br>
-Translate: "9.30 Even the most sinful, if he worship Me with his whole heart, shalt be considered righteous, for he is treading the right path." </br>
+"श्रोत्रादीनीन्द्रियाण्यन्ये संयमाग्निषु जुह्वति | शब्दादीन्विषयानन्य इन्द्रियाग्निषु जुह्वति ||४-२६||" </br>
+Translate: "4.26 Some sacrifice their physical senses in the fire of self-control; others offer up their contact with external objects in the sacrificial fire of their senses." </br>
 
 # Prefs
 
