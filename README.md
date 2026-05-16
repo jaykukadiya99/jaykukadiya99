@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रोत्रादीनीन्द्रियाण्यन्ये संयमाग्निषु जुह्वति | शब्दादीन्विषयानन्य इन्द्रियाग्निषु जुह्वति ||४-२६||" </br>
-Translate: "4.26 Some sacrifice their physical senses in the fire of self-control; others offer up their contact with external objects in the sacrificial fire of their senses." </br>
+"यत्तु प्रत्युपकारार्थं फलमुद्दिश्य वा पुनः | दीयते च परिक्लिष्टं तद्दानं राजसं स्मृतम् ||१७-२१||" </br>
+Translate: "17.21 That which is given for the sake of the results it will produce, or with the hope of recompense,or grudgingly - that may truly be said to be the outcome of Passion." </br>
 
 # Prefs
 
