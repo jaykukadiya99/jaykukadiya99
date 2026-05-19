@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यतो यतो निश्चरति मनश्चञ्चलमस्थिरम् | ततस्ततो नियम्यैतदात्मन्येव वशं नयेत् ||६-२६||" </br>
-Translate: "6.26 When the volatile and wavering mind would wander, let him restrain it and bring it again to its allegiance to the Self." </br>
+"विस्तरेणात्मनो योगं विभूतिं च जनार्दन | भूयः कथय तृप्तिर्हि शृण्वतो नास्ति मेऽमृतम् ||१०-१८||" </br>
+Translate: "10.18 Tell me again, I pray, about the fullness of Thy power and Thy glory; for I feel that I am never satisfied when I listen to Thy immortal words." </br>
 
 # Prefs
 
