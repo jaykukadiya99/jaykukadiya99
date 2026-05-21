@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"त्यक्त्वा कर्मफलासङ्गं नित्यतृप्तो निराश्रयः | कर्मण्यभिप्रवृत्तोऽपि नैव किञ्चित्करोति सः ||४-२०||" </br>
-Translate: "4.20 Having surrendered all claim to the results of his actions, always contented and independent, in reality he does nothing, even though he is apparently acting." </br>
+"अथ व्यवस्थितान्दृष्ट्वा धार्तराष्ट्रान् कपिध्वजः | प्रवृत्ते शस्त्रसम्पाते धनुरुद्यम्य पाण्डवः | हृषीकेशं तदा वाक्यमिदमाह महीपते ||१-२०||" </br>
+Translate: "1.20 Then beholding the sons of Dhritarashtra, drawn up on the battle- field, ready to fight, Arjuna, whose flag bore the Hanuman," </br>
 
 # Prefs
 
