@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु | मामेवैष्यसि सत्यं ते प्रतिजाने प्रियोऽसि मे ||१८-६५||" </br>
-Translate: "18.65 Dedicate thyself to Me, worship Me, sacrifice all for Me, prostrate thyself before Me, and to Me thou shalt surely come. Truly do I pledge thee; thou art My own beloved." </br>
+"श्रीभगवानुवाच | संन्यासः कर्मयोगश्च निःश्रेयसकरावुभौ | तयोस्तु कर्मसंन्यासात्कर्मयोगो विशिष्यते ||५-२||" </br>
+Translate: "5.2 Lord Shri Krishna replied: Renunciation of action and the path of right action both lead to the highest; of the two, right action is the better." </br>
 
 # Prefs
 
