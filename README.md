@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | संन्यासः कर्मयोगश्च निःश्रेयसकरावुभौ | तयोस्तु कर्मसंन्यासात्कर्मयोगो विशिष्यते ||५-२||" </br>
-Translate: "5.2 Lord Shri Krishna replied: Renunciation of action and the path of right action both lead to the highest; of the two, right action is the better." </br>
+"श्रीभगवानुवाच | पश्य मे पार्थ रूपाणि शतशोऽथ सहस्रशः | नानाविधानि दिव्यानि नानावर्णाकृतीनि च ||११-५||" </br>
+Translate: "11.5 Lord Shri Krishna replied: Behold, O Arjuna! My celestial forms, by hundred and thousands, various in kind, in colour and in shape." </br>
 
 # Prefs
 
