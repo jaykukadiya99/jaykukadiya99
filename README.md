@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"य एवं वेत्ति पुरुषं प्रकृतिं च गुणैः सह | सर्वथा वर्तमानोऽपि न स भूयोऽभिजायते ||१३-२४||" </br>
-Translate: "13.24 He who understands God and Nature along with her qualities, whatever be his condition in life, he comes not again to earth." </br>
+"तस्य सञ्जनयन्हर्षं कुरुवृद्धः पितामहः | सिंहनादं विनद्योच्चैः शङ्खं दध्मौ प्रतापवान् ||१-१२||" </br>
+Translate: "1.12 Then to enliven his spirits, the brave Grandfather Bheeshma, eldest of the Kuru-clan, blew his conch, till it sounded like a lion's roar." </br>
 
 # Prefs
 
