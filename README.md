@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रकृतिं पुरुषं चैव विद्ध्यनादी उभावपि | विकारांश्च गुणांश्चैव विद्धि प्रकृतिसम्भवान् ||१३-२०||" </br>
-Translate: "13.20 Know thou further that Nature and God have no beginning; and that differences of character and quality have their origin in Nature only." </br>
+"कथं न ज्ञेयमस्माभिः पापादस्मान्निवर्तितुम् | कुलक्षयकृतं दोषं प्रपश्यद्भिर्जनार्दन ||१-३९||" </br>
+Translate: "1.39 Should not we, whose eyes are open, who consider it to be wrong to annihilate our house, turn away from so great a crime?" </br>
 
 # Prefs
 
