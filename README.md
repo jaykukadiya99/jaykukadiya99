@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"तस्मात्त्वमिन्द्रियाण्यादौ नियम्य भरतर्षभ | पाप्मानं प्रजहि ह्येनं ज्ञानविज्ञाननाशनम् ||३-४१||" </br>
-Translate: "3.41 Therefore, O Arjuna, first control thy senses and then slay desire, for it is full of sin, and is the destroyer of knowledge and of wisdom." </br>
+"एवं ज्ञात्वा कृतं कर्म पूर्वैरपि मुमुक्षुभिः | कुरु कर्मैव तस्मात्त्वं पूर्वैः पूर्वतरं कृतम् ||४-१५||" </br>
+Translate: "4.15 In the light of wisdom, our ancestors, who sought deliverance, performed their acts. Act thou also, as did our fathers of old." </br>
 
 # Prefs
 
