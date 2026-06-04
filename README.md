@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | एवं सततयुक्ता ये भक्तास्त्वां पर्युपासते | ये चाप्यक्षरमव्यक्तं तेषां के योगवित्तमाः ||१२-१||" </br>
-Translate: "12.1 "Arjuna asked: My Lord! Which are the better devotees who worship Thee, those who try to know Thee as a Personal God, or those who worship Thee as Impersonal and Indestructible?" </br>
+"सर्वभूतस्थितं यो मां भजत्येकत्वमास्थितः | सर्वथा वर्तमानोऽपि स योगी मयि वर्तते ||६-३१||" </br>
+Translate: "6.31 The sage who realises the unity of life and who worships Me in all beings, lives in Me, whatever may be his lot." </br>
 
 # Prefs
 
