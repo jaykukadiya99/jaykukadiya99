@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यः सर्वत्रानभिस्नेहस्तत्तत्प्राप्य शुभाशुभम् | नाभिनन्दति न द्वेष्टि तस्य प्रज्ञा प्रतिष्ठिता ||२-५७||" </br>
-Translate: "2.57 He who wherever he goes is attached to no person and to no place by ties of flesh; who accepts good and evil alike, neither welcoming the one nor shrinking from the other - take him to be one who is merged in the Infinite." </br>
+"राजविद्या राजगुह्यं पवित्रमिदमुत्तमम् | प्रत्यक्षावगमं धर्म्यं सुसुखं कर्तुमव्ययम् ||९-२||" </br>
+Translate: "9.2 This is the Premier Science, the Sovereign Secret, the Purest and Best; intuitional, righteous; and to him who practiseth it pleasant beyond measure." </br>
 
 # Prefs
 
