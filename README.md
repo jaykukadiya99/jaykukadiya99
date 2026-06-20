@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"ततः पदं तत्परिमार्गितव्यं यस्मिन्गता न निवर्तन्ति भूयः | तमेव चाद्यं पुरुषं प्रपद्ये | यतः प्रवृत्तिः प्रसृता पुराणी ||१५-४||" </br>
-Translate: "15.4 Beyond lies the Path, from which, when found, there is no return. This is the Primal God from whence this ancient creation has sprung." </br>
+"सत्कारमानपूजार्थं तपो दम्भेन चैव यत् | क्रियते तदिह प्रोक्तं राजसं चलमध्रुवम् ||१७-१८||" </br>
+Translate: "17.18 Austerity coupled with hypocrisy or performed for the sake of self-glorification, popularity or vanity, comes from Passion, and its result is always doubtful and temporary." </br>
 
 # Prefs
 
