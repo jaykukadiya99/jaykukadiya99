@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"कार्पण्यदोषोपहतस्वभावः पृच्छामि त्वां धर्मसम्मूढचेताः | यच्छ्रेयः स्यान्निश्चितं ब्रूहि तन्मे शिष्यस्तेऽहं शाधि मां त्वां प्रपन्नम् ||२-७||" </br>
-Translate: "2.7 My heart is oppressed with pity; and my mind confused as to what my duty is. Therefore, my Lord, tell me what is best for my spiritual welfare, for I am Thy disciple. Please direct me, I pray." </br>
+"मात्रास्पर्शास्तु कौन्तेय शीतोष्णसुखदुःखदाः | आगमापायिनोऽनित्यास्तांस्तितिक्षस्व भारत ||२-१४||" </br>
+Translate: "2.14 Those external relations which bring cold and heat, pain and happiness, they come and go; they are not permanent. Endure them bravely, O Prince!" </br>
 
 # Prefs
 
