@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अर्जुन उवाच | स्थितप्रज्ञस्य का भाषा समाधिस्थस्य केशव | स्थितधीः किं प्रभाषेत किमासीत व्रजेत किम् ||२-५४||" </br>
-Translate: "2.54 Arjuna asked: My Lord! How can we recognise the saint who has attained Pure Intellect, who has reached this state of Bliss, and whose mind is steady? how does he talk, how does he live, and how does he act?" </br>
+"अनिष्टमिष्टं मिश्रं च त्रिविधं कर्मणः फलम् | भवत्यत्यागिनां प्रेत्य न तु संन्यासिनां क्वचित् ||१८-१२||" </br>
+Translate: "18.12 For those who cannot renounce all desire, the fruit of action hereafter is threefold - good, evil, and partly good and partly evil. But for him who has renounced, there is none." </br>
 
 # Prefs
 
