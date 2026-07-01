@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यद्यप्येते न पश्यन्ति लोभोपहतचेतसः | कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ||१-३८||" </br>
-Translate: "1.38 Although these men, blinded by greed, see no guilt in destroying their kin, or fighting against their friends," </br>
+"एतैर्विमुक्तः कौन्तेय तमोद्वारैस्त्रिभिर्नरः | आचरत्यात्मनः श्रेयस्ततो याति परां गतिम् ||१६-२२||" </br>
+Translate: "16.22 These are the gates which lead to darkness; if a man avoid them he will ensure his own welfare, and in the end will attain his liberation." </br>
 
 # Prefs
 
