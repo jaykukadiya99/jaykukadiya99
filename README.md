@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"एतैर्विमुक्तः कौन्तेय तमोद्वारैस्त्रिभिर्नरः | आचरत्यात्मनः श्रेयस्ततो याति परां गतिम् ||१६-२२||" </br>
-Translate: "16.22 These are the gates which lead to darkness; if a man avoid them he will ensure his own welfare, and in the end will attain his liberation." </br>
+"श्रीभगवानुवाच | पार्थ नैवेह नामुत्र विनाशस्तस्य विद्यते | न हि कल्याणकृत्कश्चिद् दुर्गतिं तात गच्छति ||६-४०||" </br>
+Translate: "6.40 Lord Shri Krishna replied: My beloved child! There is no destruction for him, either in this world or in the next. No evil fate awaits him who treads the path of righteousness." </br>
 
 # Prefs
 
