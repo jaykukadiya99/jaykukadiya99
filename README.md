@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"क्रोधाद्भवति सम्मोहः सम्मोहात्स्मृतिविभ्रमः | स्मृतिभ्रंशाद् बुद्धिनाशो बुद्धिनाशात्प्रणश्यति ||२-६३||" </br>
-Translate: "2.63 Anger induces delusion; delusion, loss of memory; through loss of memory, reason is shattered; and loss of reason leads to destruction." </br>
+"विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः | निर्ममो निरहङ्कारः स शान्तिमधिगच्छति ||२-७१||" </br>
+Translate: "2.71 He attains Peace who, giving up desire, moves through the world without aspiration, possessing nothing which he can call his own, and free from pride." </br>
 
 # Prefs
 
