@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"सत्त्वं सुखे सञ्जयति रजः कर्मणि भारत | ज्ञानमावृत्य तु तमः प्रमादे सञ्जयत्युत ||१४-९||" </br>
-Translate: "14.9 Purity brings happiness, Passion commotion, and Ignorance, which obscures wisdom, leads to a life of failure." </br>
+"अज्ञश्चाश्रद्दधानश्च संशयात्मा विनश्यति | नायं लोकोऽस्ति न परो न सुखं संशयात्मनः ||४-४०||" </br>
+Translate: "4.40 But the ignorant man, and he who has no faith, and the sceptic are lost. Neither in this world nor elsewhere is there any happiness in store for him who always doubts." </br>
 
 # Prefs
 
