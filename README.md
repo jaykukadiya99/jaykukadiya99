@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"युधामन्युश्च विक्रान्त उत्तमौजाश्च वीर्यवान् | सौभद्रो द्रौपदेयाश्च सर्व एव महारथाः ||१-६||" </br>
-Translate: "1.6 Yudhamanyu, Uttamouja, Soubhadra and the sons of Droupadi, famous men." </br>
+"नान्तोऽस्ति मम दिव्यानां विभूतीनां परन्तप | एष तूद्देशतः प्रोक्तो विभूतेर्विस्तरो मया ||१०-४०||" </br>
+Translate: "10.40 O Arjuna! The aspects of My divine life are endless. I have mentioned but a few by way of illustration." </br>
 
 # Prefs
 
