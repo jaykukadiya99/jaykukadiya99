@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अथ चैनं नित्यजातं नित्यं वा मन्यसे मृतम् | तथापि त्वं महाबाहो नैवं शोचितुमर्हसि ||२-२६||" </br>
-Translate: "2.26 Even if thou thinkest of It as constantly being born, constantly dying, even then, O Mighty Man, thou still hast no cause to grieve." </br>
+"योऽन्तःसुखोऽन्तरारामस्तथान्तर्ज्योतिरेव यः | स योगी ब्रह्मनिर्वाणं ब्रह्मभूतोऽधिगच्छति ||५-२४||" </br>
+Translate: "5.24 He who is happy within his Self and has found Its peace, and in whom the inner light shines, that sage attains Eternal Bliss and becomes the Spirit Itself." </br>
 
 # Prefs
 
