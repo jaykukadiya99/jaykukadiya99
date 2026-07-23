@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"मत्तः परतरं नान्यत्किञ्चिदस्ति धनञ्जय | मयि सर्वमिदं प्रोतं सूत्रे मणिगणा इव ||७-७||" </br>
-Translate: "7.7 O Arjuna! There is nothing higher than Me; all is strung upon Me as rows of pearls upon a thread." </br>
+"प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः | मनः संयम्य मच्चित्तो युक्त आसीत मत्परः ||६-१४||" </br>
+Translate: "6.14 With peace in his heart and nor fear, observing the vow of celibacy, with mind controlled and fixed on Me, let the student lose himself in contemplation of Me." </br>
 
 # Prefs
 
