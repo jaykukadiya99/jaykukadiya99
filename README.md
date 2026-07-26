@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यस्मान्नोद्विजते लोको लोकान्नोद्विजते च यः | हर्षामर्षभयोद्वेगैर्मुक्तो यः स च मे प्रियः ||१२-१५||" </br>
-Translate: "12.15 He who does not harm the world, and whom the world cannot harm, who is not carried away by any impulse of joy, anger or fear, such a one is My beloved." </br>
+"न चैतद्विद्मः कतरन्नो गरीयो यद्वा जयेम यदि वा नो जयेयुः | यानेव हत्वा न जिजीविषामस्- तेऽवस्थिताः प्रमुखे धार्तराष्ट्राः ||२-६||" </br>
+Translate: "2.6 Nor can I say whether it were better that they conquer me or for me to conquer them, since would no longer care to live if I killed these sons of Dhritarashtra, now preparing for fight." </br>
 
 # Prefs
 
