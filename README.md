@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"आवृतं ज्ञानमेतेन ज्ञानिनो नित्यवैरिणा | कामरूपेण कौन्तेय दुष्पूरेणानलेन च ||३-३९||" </br>
-Translate: "3.39 It is the wise man's constant enemy; it tarnishes the face of wisdom. It is as insatiable as a flame of fire." </br>
+"ज्ञानयज्ञेन चाप्यन्ये यजन्तो मामुपासते | एकत्वेन पृथक्त्वेन बहुधा विश्वतोमुखम् ||९-१५||" </br>
+Translate: "9.15 Others worship Me with full consciousness as the One, the Manifold, the Omnipresent, the Universal." </br>
 
 # Prefs
 
