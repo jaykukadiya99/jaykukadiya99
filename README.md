@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः | एकमप्यास्थितः सम्यगुभयोर्विन्दते फलम् ||५-४||" </br>
-Translate: "5.4 Only the unenlightened speak of wisdom and right action as separate, not the wise. If any man knows one, he enjoys the fruit of both." </br>
+"यथा सर्वगतं सौक्ष्म्यादाकाशं नोपलिप्यते | सर्वत्रावस्थितो देहे तथात्मा नोपलिप्यते ||१३-३३||" </br>
+Translate: "13.33 As space, though present everywhere, remains by reason of its subtlety unaffected, so the Self, though present in all forms, retains its purity unalloyed." </br>
 
 # Prefs
 
