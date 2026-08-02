@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"स्वयमेवात्मनात्मानं वेत्थ त्वं पुरुषोत्तम | भूतभावन भूतेश देवदेव जगत्पते ||१०-१५||" </br>
-Translate: "-" </br>
+"त्यक्त्वा कर्मफलासङ्गं नित्यतृप्तो निराश्रयः | कर्मण्यभिप्रवृत्तोऽपि नैव किञ्चित्करोति सः ||४-२०||" </br>
+Translate: "4.20 Having surrendered all claim to the results of his actions, always contented and independent, in reality he does nothing, even though he is apparently acting." </br>
 
 # Prefs
 
