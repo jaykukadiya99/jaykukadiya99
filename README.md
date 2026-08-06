@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"त्रिविधं नरकस्येदं द्वारं नाशनमात्मनः | कामः क्रोधस्तथा लोभस्तस्मादेतत्त्रयं त्यजेत् ||१६-२१||" </br>
-Translate: "16.21 The gates of hell are three: lust, wrath and avarice. They destroy the Self. Avoid them." </br>
+"योगी युञ्जीत सततमात्मानं रहसि स्थितः | एकाकी यतचित्तात्मा निराशीरपरिग्रहः ||६-१०||" </br>
+Translate: "6.10 Let the student of spirituality try unceasingly to concentrate his mind; Let him live in seclusion, absolutely alone, with mind and personality controlled, free from desire and without possessions." </br>
 
 # Prefs
 
