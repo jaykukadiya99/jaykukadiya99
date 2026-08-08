@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"एषा ब्राह्मी स्थितिः पार्थ नैनां प्राप्य विमुह्यति | स्थित्वास्यामन्तकालेऽपि ब्रह्मनिर्वाणमृच्छति ||२-७२||" </br>
-Translate: "2.72 O Arjuna! This is the state of the Self, the Supreme Spirit, to which if a man once attain, it shall never be taken from him. Even at the time of leaving the body, he will remain firmly enthroned there, and will become one with the Eternal."" </br>
+"वीतरागभयक्रोधा मन्मया मामुपाश्रिताः | बहवो ज्ञानतपसा पूता मद्भावमागताः ||४-१०||" </br>
+Translate: "4.10 Many have merged their existences in Mine, being freed from desire, fear and anger, filled always with Me and purified by the illuminating flame of self-abnegation." </br>
 
 # Prefs
 
