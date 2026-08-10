@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | प्रकाशं च प्रवृत्तिं च मोहमेव च पाण्डव | न द्वेष्टि सम्प्रवृत्तानि न निवृत्तानि काङ्क्षति ||१४-२२||" </br>
-Translate: "14.22 Lord Shri Krishna replied: O Prince! He who shuns not the Quality which is present, and longs not for that which is absent;" </br>
+"रागी कर्मफलप्रेप्सुर्लुब्धो हिंसात्मकोऽशुचिः | हर्षशोकान्वितः कर्ता राजसः परिकीर्तितः ||१८-२७||" </br>
+Translate: "18.27 In him who is impulsive, greedy, looking for reward, violent, impure, torn between joy and sorrow,it may be assumed that in him Passion is predominant." </br>
 
 # Prefs
 
