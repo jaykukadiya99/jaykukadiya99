@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"देवद्विजगुरुप्राज्ञपूजनं शौचमार्जवम् | ब्रह्मचर्यमहिंसा च शारीरं तप उच्यते ||१७-१४||" </br>
-Translate: "17.14 Worship of God and the Master; respect for the preacher and the philosopher; purity, rectitude, continence and harmlessness - all this is physical austerity." </br>
+"न च तस्मान्मनुष्येषु कश्चिन्मे प्रियकृत्तमः | भविता न च मे तस्मादन्यः प्रियतरो भुवि ||१८-६९||" </br>
+Translate: "18.69 Nor is there among men any who can perform a service dearer to Me than this, or any man on earth more beloved by Me than he." </br>
 
 # Prefs
 
