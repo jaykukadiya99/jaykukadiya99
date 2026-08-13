@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"इति गुह्यतमं शास्त्रमिदमुक्तं मयानघ | एतद्बुद्ध्वा बुद्धिमान्स्यात्कृतकृत्यश्च भारत ||१५-२०||" </br>
-Translate: "15.20 Thus, O Sinless One, I have revealed to thee this most mystic knowledge. He who understands gains wisdom and attains the consummation of life."" </br>
+"यतेन्द्रियमनोबुद्धिर्मुनिर्मोक्षपरायणः | विगतेच्छाभयक्रोधो यः सदा मुक्त एव सः ||५-२८||" </br>
+Translate: "5.28 Governing sense, mind and intellect, intent on liberation, free from desire, fear and anger, the sage is forever free." </br>
 
 # Prefs
 
