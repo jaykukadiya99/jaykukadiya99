@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"इन्द्रियस्येन्द्रियस्यार्थे रागद्वेषौ व्यवस्थितौ | तयोर्न वशमागच्छेत्तौ ह्यस्य परिपन्थिनौ ||३-३४||" </br>
-Translate: "3.34 The love and hate which are aroused by the objects of sense arise from Nature; do not yield to them. They only obstruct the path." </br>
+"यदृच्छालाभसन्तुष्टो द्वन्द्वातीतो विमत्सरः | समः सिद्धावसिद्धौ च कृत्वापि न निबध्यते ||४-२२||" </br>
+Translate: "4.22 Content with what comes to him without effort of his own, mounting above the pairs of opposites, free from envy, his mind balanced both in success and failure; though he acts, yet the consequences do not bind him." </br>
 
 # Prefs
 
