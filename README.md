@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | अशोच्यानन्वशोचस्त्वं प्रज्ञावादांश्च भाषसे | गतासूनगतासूंश्च नानुशोचन्ति पण्डिताः ||२-११||" </br>
-Translate: "2.11 Lord Shri Krishna said: Why grieve for those for whom no grief is due, and yet profess wisdom? The wise grieve neither for the dead nor the living." </br>
+"इहैव तैर्जितः सर्गो येषां साम्ये स्थितं मनः | निर्दोषं हि समं ब्रह्म तस्माद् ब्रह्मणि ते स्थिताः ||५-१९||" </br>
+Translate: "5.19 Even in this world they conquer their earth-life whose minds, fixed on the Supreme, remain always balanced; for the Supreme has neither blemish nor bias." </br>
 
 # Prefs
 
