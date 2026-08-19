@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यतन्तो योगिनश्चैनं पश्यन्त्यात्मन्यवस्थितम् | यतन्तोऽप्यकृतात्मानो नैनं पश्यन्त्यचेतसः ||१५-११||" </br>
-Translate: "15.11 The saints with great effort find Him within themselves; but not the unintelligent, who in spite of every effort cannot control their minds." </br>
+"नात्यश्नतस्तु योगोऽस्ति न चैकान्तमनश्नतः | न चातिस्वप्नशीलस्य जाग्रतो नैव चार्जुन ||६-१६||" </br>
+Translate: "6.16 Meditation is not for him who eats too much, not for him who eats not at all; not for him who is overmuch addicted to sleep, not for him who is always awake." </br>
 
 # Prefs
 
