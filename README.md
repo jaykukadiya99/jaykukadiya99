@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रीभगवानुवाच | इदं तु ते गुह्यतमं प्रवक्ष्याम्यनसूयवे | ज्ञानं विज्ञानसहितं यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ||९-१||" </br>
-Translate: "9.1 "Lord Shri Krishna said: I will now reveal to thee, since thou doubtest not, that profound mysticism, which when followed by experience, shall liberate thee from sin." </br>
+"कायेन मनसा बुद्ध्या केवलैरिन्द्रियैरपि | योगिनः कर्म कुर्वन्ति सङ्गं त्यक्त्वात्मशुद्धये ||५-११||" </br>
+Translate: "5.11 The sage performs his action dispassionately, using his body, mind and intellect, and even his senses, always as a means of purification." </br>
 
 # Prefs
 
