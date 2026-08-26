@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अशास्त्रविहितं घोरं तप्यन्ते ये तपो जनाः | दम्भाहंकारसंयुक्ताः कामरागबलान्विताः ||१७-५||" </br>
-Translate: "17.5 Those who practise austerities not commanded by scripture, who are slaves to hypocrisy and egotism, who are carried away by the fury of desire and passion," </br>
+"यत्करोषि यदश्नासि यज्जुहोषि ददासि यत् | यत्तपस्यसि कौन्तेय तत्कुरुष्व मदर्पणम् ||९-२७||" </br>
+Translate: "9.27 Whatever thou doest, whatever thou dost eat, whatever thou dost sacrifice and give, whatever austerities thou practisest, do all as an offering to Me." </br>
 
 # Prefs
 
