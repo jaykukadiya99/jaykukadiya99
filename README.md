@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"पश्यादित्यान्वसून्रुद्रानश्विनौ मरुतस्तथा | बहून्यदृष्टपूर्वाणि पश्याश्चर्याणि भारत ||११-६||" </br>
-Translate: "11.6 Behold thou the Powers of Nature: fire, earth, wind and sky; the sun, the heavens, the moon, the stars; all forces of vitality and of healing; and the roving winds. See the myriad wonders revealed to none but thee." </br>
+"त्याज्यं दोषवदित्येके कर्म प्राहुर्मनीषिणः | यज्ञदानतपःकर्म न त्याज्यमिति चापरे ||१८-३||" </br>
+Translate: "18.3 Some philosophers say that all action is evil and should be abandoned. Others that acts of sacrifice, benevolence and austerity should not be given up." </br>
 
 # Prefs
 
