@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"वेदाहं समतीतानि वर्तमानानि चार्जुन | भविष्याणि च भूतानि मां तु वेद न कश्चन ||७-२६||" </br>
-Translate: "7.26 I know, O Arjuna, all beings in the past, the present and the future; but they do not know Me." </br>
+"लोभः प्रवृत्तिरारम्भः कर्मणामशमः स्पृहा | रजस्येतानि जायन्ते विवृद्धे भरतर्षभ ||१४-१२||" </br>
+Translate: "14.12 O best of Indians! Avarice, the impulse to act and the beginning of action itself are all due to the dominance of Passion." </br>
 
 # Prefs
 
