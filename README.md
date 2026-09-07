@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अहमात्मा गुडाकेश सर्वभूताशयस्थितः | अहमादिश्च मध्यं च भूतानामन्त एव च ||१०-२०||" </br>
-Translate: "10.20 O Arjuna! I am the Self, seated in the hearts of all beings; I am the beginning and the life, and I am the end of them all." </br>
+"जितात्मनः प्रशान्तस्य परमात्मा समाहितः | शीतोष्णसुखदुःखेषु तथा मानापमानयोः ||६-७||" </br>
+Translate: "6.7 The Self of him who is self-controlled, and has attained peace is equally unmoved by heat or cold, pleasure or pain, honour or dishonour." </br>
 
 # Prefs
 
