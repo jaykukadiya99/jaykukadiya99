@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् | उपैति शान्तरजसं ब्रह्मभूतमकल्मषम् ||६-२७||" </br>
-Translate: "6.27 Supreme Bliss is the lot of the sage, whose mind attains Peace, whose passions subside, who is without sin, and who becomes one with the Absolute." </br>
+"आत्मसम्भाविताः स्तब्धा धनमानमदान्विताः | यजन्ते नामयज्ञैस्ते दम्भेनाविधिपूर्वकम् ||१६-१७||" </br>
+Translate: "16.17 Self-conceited, stubborn, rich, proud and insolent, they make a display of their patronage, disregarding the rules of decency." </br>
 
 # Prefs
 
