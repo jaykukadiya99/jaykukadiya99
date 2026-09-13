@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यदहंकारमाश्रित्य न योत्स्य इति मन्यसे | मिथ्यैष व्यवसायस्ते प्रकृतिस्त्वां नियोक्ष्यति ||१८-५९||" </br>
-Translate: "18.59 If thou in thy vanity thinkest of avoiding this fight, thy will shall not be fulfilled, for Nature herself will compel thee." </br>
+"श्रोत्रं चक्षुः स्पर्शनं च रसनं घ्राणमेव च | अधिष्ठाय मनश्चायं विषयानुपसेवते ||१५-९||" </br>
+Translate: "15.9 He is the perception of the ear, the eye, the touch, the taste and the smell, yea and of the mind also; and the enjoyment the things which they perceive is also His." </br>
 
 # Prefs
 
