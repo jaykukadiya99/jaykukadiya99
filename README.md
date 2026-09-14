@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"श्रोत्रं चक्षुः स्पर्शनं च रसनं घ्राणमेव च | अधिष्ठाय मनश्चायं विषयानुपसेवते ||१५-९||" </br>
-Translate: "15.9 He is the perception of the ear, the eye, the touch, the taste and the smell, yea and of the mind also; and the enjoyment the things which they perceive is also His." </br>
+"चातुर्वर्ण्यं मया सृष्टं गुणकर्मविभागशः | तस्य कर्तारमपि मां विद्ध्यकर्तारमव्ययम् ||४-१३||" </br>
+Translate: "4.13 The four divisions of society (the wise, the soldier, the merchant, the labourer) were created by Me, according to the natural distribution of Qualities and instincts. I am the author of them, though I Myself do no action, and am changeless." </br>
 
 # Prefs
 
