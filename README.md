@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"आरुरुक्षोर्मुनेर्योगं कर्म कारणमुच्यते | योगारूढस्य तस्यैव शमः कारणमुच्यते ||६-३||" </br>
-Translate: "6.3 For the sage who seeks the heights of spiritual meditation, practice is the only method, and when he has attained them, he must maintain himself there by continual self-control." </br>
+"यजन्ते सात्त्विका देवान्यक्षरक्षांसि राजसाः | प्रेतान्भूतगणांश्चान्ये यजन्ते तामसा जनाः ||१७-४||" </br>
+Translate: "17.4 The Pure worship the true God; the Passionate, the powers of wealth and magic; the Ignorant, the spirits of the dead and of the lower orders of nature." </br>
 
 # Prefs
 
