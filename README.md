@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यदृच्छया चोपपन्नं स्वर्गद्वारमपावृतम् | सुखिनः क्षत्रियाः पार्थ लभन्ते युद्धमीदृशम् ||२-३२||" </br>
-Translate: "2.32 Blessed are the soldiers who find their opportunity. This opportunity has opened for thee the gates of heaven." </br>
+"कस्माच्च ते न नमेरन्महात्मन् गरीयसे ब्रह्मणोऽप्यादिकर्त्रे | अनन्त देवेश जगन्निवास त्वमक्षरं सदसत्तत्परं यत् ||११-३७||" </br>
+Translate: "11.37 How should they do otherwise? O Thou Supremest Self, greater than the Powers of creation, the First Cause, Infinite, the Lord of Lords, the Home of the universe, Imperishable, Being and Not-Being, yet transcending both." </br>
 
 # Prefs
 
