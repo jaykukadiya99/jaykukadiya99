@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अत्र शूरा महेष्वासा भीमार्जुनसमा युधि | युयुधानो विराटश्च द्रुपदश्च महारथः ||१-४||" </br>
-Translate: "1.4 In it are heroes and great bowmen; the equals in battle of Arjuna and Bheema, Yuyudhana, Virata and Drupada, great soldiers all;" </br>
+"यथा प्रदीप्तं ज्वलनं पतङ्गा विशन्ति नाशाय समृद्धवेगाः | तथैव नाशाय विशन्ति लोकास्- तवापि वक्त्राणि समृद्धवेगाः ||११-२९||" </br>
+Translate: "11.29 As moths fly impetuously to the flame only to be killed, so these men rush into Thy mouths to court their own destruction." </br>
 
 # Prefs
 
