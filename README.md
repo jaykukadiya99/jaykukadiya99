@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यो मामेवमसम्मूढो जानाति पुरुषोत्तमम् | स सर्वविद्भजति मां सर्वभावेन भारत ||१५-१९||" </br>
-Translate: "15.19 He who with unclouded vision sees Me as the Lord-God, knows all there is to be known, and always shall worship Me with his whole heart." </br>
+"शुक्लकृष्णे गती ह्येते जगतः शाश्वते मते | एकया यात्यनावृत्तिमन्ययावर्तते पुनः ||८-२६||" </br>
+Translate: "8.26 These bright and dark paths out of the world have always existed. Whoso takes the former, returns not; he who chooses the latter, returns.*" </br>
 
 # Prefs
 
