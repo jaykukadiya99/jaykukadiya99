@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यच्चापि सर्वभूतानां बीजं तदहमर्जुन | न तदस्ति विना यत्स्यान्मया भूतं चराचरम् ||१०-३९||" </br>
-Translate: "10.39 I am the Seed of all being, O Arjuna! No creature moving or unmoving can live without Me." </br>
+"लेलिह्यसे ग्रसमानः समन्ताल्- लोकान्समग्रान्वदनैर्ज्वलद्भिः | तेजोभिरापूर्य जगत्समग्रं भासस्तवोग्राः प्रतपन्ति विष्णो ||११-३०||" </br>
+Translate: "11.30 Thou seemest to swallow up the worlds, to lap them in flame. Thy glory fills the universe. Thy fierce rays beat down upon it irresistibly." </br>
 
 # Prefs
 
