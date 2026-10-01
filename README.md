@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"लेलिह्यसे ग्रसमानः समन्ताल्- लोकान्समग्रान्वदनैर्ज्वलद्भिः | तेजोभिरापूर्य जगत्समग्रं भासस्तवोग्राः प्रतपन्ति विष्णो ||११-३०||" </br>
-Translate: "11.30 Thou seemest to swallow up the worlds, to lap them in flame. Thy glory fills the universe. Thy fierce rays beat down upon it irresistibly." </br>
+"गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् | प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम् ||९-१८||" </br>
+Translate: "9.18 I am the Goal, the Sustainer, the Lord, the Witness, the Home, the Shelter, the Lover and the Origin; I am Life and Death; I am the Fountain and the Seed Imperishable." </br>
 
 # Prefs
 
