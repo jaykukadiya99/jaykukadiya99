@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"अमानित्वमदम्भित्वमहिंसा क्षान्तिरार्जवम् | आचार्योपासनं शौचं स्थैर्यमात्मविनिग्रहः ||१३-८||" </br>
-Translate: "13.8 Humility, sincerity, harmlessness, forgiveness, rectitude, service of the Master, purity, steadfastness, self-control;" </br>
+"निश्चयं शृणु मे तत्र त्यागे भरतसत्तम | त्यागो हि पुरुषव्याघ्र त्रिविधः सम्प्रकीर्तितः ||१८-४||" </br>
+Translate: "18.4 O best of Indians! Listen to my judgment as regards this problem. It has a threefold aspect." </br>
 
 # Prefs
 
