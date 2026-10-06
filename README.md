@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यथा दीपो निवातस्थो नेङ्गते सोपमा स्मृता | योगिनो यतचित्तस्य युञ्जतो योगमात्मनः ||६-१९||" </br>
-Translate: "6.19 The wise man who has conquered his mind and is absorbed in the Self is as a lamp which does not flicker, since it stands sheltered from every wind." </br>
+"यदृच्छया चोपपन्नं स्वर्गद्वारमपावृतम् | सुखिनः क्षत्रियाः पार्थ लभन्ते युद्धमीदृशम् ||२-३२||" </br>
+Translate: "2.32 Blessed are the soldiers who find their opportunity. This opportunity has opened for thee the gates of heaven." </br>
 
 # Prefs
 
