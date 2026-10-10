@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"देवद्विजगुरुप्राज्ञपूजनं शौचमार्जवम् | ब्रह्मचर्यमहिंसा च शारीरं तप उच्यते ||१७-१४||" </br>
-Translate: "17.14 Worship of God and the Master; respect for the preacher and the philosopher; purity, rectitude, continence and harmlessness - all this is physical austerity." </br>
+"द्रोणं च भीष्मं च जयद्रथं च कर्णं तथान्यानपि योधवीरान् | मया हतांस्त्वं जहि मा व्यथिष्ठा युध्यस्व जेतासि रणे सपत्नान् ||११-३४||" </br>
+Translate: "11.34 Drona and Bheeshma, Jayadratha and Karna, and other brave warriors - I have condemned them all. Destroy them; fight and fear not. Thy foes shall be crushed."" </br>
 
 # Prefs
 
