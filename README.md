@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"द्रोणं च भीष्मं च जयद्रथं च कर्णं तथान्यानपि योधवीरान् | मया हतांस्त्वं जहि मा व्यथिष्ठा युध्यस्व जेतासि रणे सपत्नान् ||११-३४||" </br>
-Translate: "11.34 Drona and Bheeshma, Jayadratha and Karna, and other brave warriors - I have condemned them all. Destroy them; fight and fear not. Thy foes shall be crushed."" </br>
+"अमी च त्वां धृतराष्ट्रस्य पुत्राः सर्वे सहैवावनिपालसङ्घैः | भीष्मो द्रोणः सूतपुत्रस्तथासौ सहास्मदीयैरपि योधमुख्यैः ||११-२६||" </br>
+Translate: "11.26 All these sons of Dhritarashtra, with the hosts of princes, Bheeshma, Drona and Karna, as well as the other warrior chiefs belonging to our side;" </br>
 
 # Prefs
 
