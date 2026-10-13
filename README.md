@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"दम्भो दर्पोऽभिमानश्च क्रोधः पारुष्यमेव च | अज्ञानं चाभिजातस्य पार्थ सम्पदमासुरीम् ||१६-४||" </br>
-Translate: "16.4 Hypocrisy, pride, insolence, cruelty, ignorance belong to him who is born of the godless qualities." </br>
+"यज्ञशिष्टामृतभुजो यान्ति ब्रह्म सनातनम् | नायं लोकोऽस्त्ययज्ञस्य कुतोऽन्यः कुरुसत्तम ||४-३१||" </br>
+Translate: "4.31 Tasting the nectar of immortality, as the reward of sacrifice, they reach the Eternal. This world is not for those who refuse to sacrifice; much less the other world." </br>
 
 # Prefs
 
