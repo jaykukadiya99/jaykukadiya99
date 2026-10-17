@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"यस्मान्नोद्विजते लोको लोकान्नोद्विजते च यः | हर्षामर्षभयोद्वेगैर्मुक्तो यः स च मे प्रियः ||१२-१५||" </br>
-Translate: "12.15 He who does not harm the world, and whom the world cannot harm, who is not carried away by any impulse of joy, anger or fear, such a one is My beloved." </br>
+"अर्जुन उवाच | नष्टो मोहः स्मृतिर्लब्धा त्वत्प्रसादान्मयाच्युत | स्थितोऽस्मि गतसन्देहः करिष्ये वचनं तव ||१८-७३||" </br>
+Translate: "18.73 Arjuna replied: My Lord! O Immutable One! My delusion has fled. By Thy Grace, O Changeless One, the light has dawned. My doubts are gone, and I stand before Thee ready to do Thy will."" </br>
 
 # Prefs
 
