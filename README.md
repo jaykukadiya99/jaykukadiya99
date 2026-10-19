@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः | निर्ममो निरहङ्कारः स शान्तिमधिगच्छति ||२-७१||" </br>
-Translate: "2.71 He attains Peace who, giving up desire, moves through the world without aspiration, possessing nothing which he can call his own, and free from pride." </br>
+"सुखमात्यन्तिकं यत्तद् बुद्धिग्राह्यमतीन्द्रियम् | वेत्ति यत्र न चैवायं स्थितश्चलति तत्त्वतः ||६-२१||" </br>
+Translate: "6.21 When he enjoys the Bliss which passes sense, and which only the Pure Intellect can grasp, when he comes to rest within his own highest Self, never again will he stray from reality." </br>
 
 # Prefs
 
