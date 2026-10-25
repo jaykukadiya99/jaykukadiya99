@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"कर्षयन्तः शरीरस्थं भूतग्राममचेतसः | मां चैवान्तःशरीरस्थं तान्विद्ध्यासुरनिश्चयान् ||१७-६||" </br>
-Translate: "17.6 They are ignorant. They torment the organs of the body; and they harass Me also, Who lives within. Know that they are devoted to evil." </br>
+"मा ते व्यथा मा च विमूढभावो दृष्ट्वा रूपं घोरमीदृङ्ममेदम् | व्यपेतभीः प्रीतमनाः पुनस्त्वं तदेव मे रूपमिदं प्रपश्य ||११-४९||" </br>
+Translate: "11.49 Be not afraid or bewildered by the terrible vision. Put away thy fear and, with joyful mind, see Me once again in My usual Form."" </br>
 
 # Prefs
 
