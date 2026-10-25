@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"तानहं द्विषतः क्रुरान्संसारेषु नराधमान् | क्षिपाम्यजस्रमशुभानासुरीष्वेव योनिषु ||१६-१९||" </br>
-Translate: "16.19 Those who thus hate Me, who are cruel, the dregs of mankind, I condemn them to a continuous, miserable and godless rebirth." </br>
+"कर्षयन्तः शरीरस्थं भूतग्राममचेतसः | मां चैवान्तःशरीरस्थं तान्विद्ध्यासुरनिश्चयान् ||१७-६||" </br>
+Translate: "17.6 They are ignorant. They torment the organs of the body; and they harass Me also, Who lives within. Know that they are devoted to evil." </br>
 
 # Prefs
 
