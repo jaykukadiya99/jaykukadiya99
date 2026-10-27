@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"धृतराष्ट्र उवाच | धर्मक्षेत्रे कुरुक्षेत्रे समवेता युयुत्सवः | मामकाः पाण्डवाश्चैव किमकुर्वत सञ्जय ||१-१||" </br>
-Translate: "1.1 The King Dhritarashtra asked: "O Sanjaya! What happened on the sacred battlefield of Kurukshetra, when my people gathered against the Pandavas?"" </br>
+"प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् | उपैति शान्तरजसं ब्रह्मभूतमकल्मषम् ||६-२७||" </br>
+Translate: "6.27 Supreme Bliss is the lot of the sage, whose mind attains Peace, whose passions subside, who is without sin, and who becomes one with the Absolute." </br>
 
 # Prefs
 
