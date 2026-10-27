@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् | उपैति शान्तरजसं ब्रह्मभूतमकल्मषम् ||६-२७||" </br>
-Translate: "6.27 Supreme Bliss is the lot of the sage, whose mind attains Peace, whose passions subside, who is without sin, and who becomes one with the Absolute." </br>
+"मां च योऽव्यभिचारेण भक्तियोगेन सेवते | स गुणान्समतीत्यैतान्ब्रह्मभूयाय कल्पते ||१४-२६||" </br>
+Translate: "14.26 And he who serves Me and only Me, with unfaltering devotion, shall overcome the Qualities, and become One with the Eternal." </br>
 
 # Prefs
 
