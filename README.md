@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"तमुवाच हृषीकेशः प्रहसन्निव भारत | सेनयोरुभयोर्मध्ये विषीदन्तमिदं वचः ||२-१०||" </br>
-Translate: "2.10 Thereupon the Lord, with a gracious smile, addressed him who was so much depressed in the midst of the two armies." </br>
+"मनः प्रसादः सौम्यत्वं मौनमात्मविनिग्रहः | भावसंशुद्धिरित्येतत्तपो मानसमुच्यते ||१७-१६||" </br>
+Translate: "17.16 Serenity, kindness, silence, self-control and purity - this is austerity of mind." </br>
 
 # Prefs
 
