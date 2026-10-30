@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"मनः प्रसादः सौम्यत्वं मौनमात्मविनिग्रहः | भावसंशुद्धिरित्येतत्तपो मानसमुच्यते ||१७-१६||" </br>
-Translate: "17.16 Serenity, kindness, silence, self-control and purity - this is austerity of mind." </br>
+"सहजं कर्म कौन्तेय सदोषमपि न त्यजेत् | सर्वारम्भा हि दोषेण धूमेनाग्निरिवावृताः ||१८-४८||" </br>
+Translate: "18.48 The duty that of itself falls to one's lot should not be abandoned, though it may have its defects. All acts are marred by defects, as fire is obscured by smoke." </br>
 
 # Prefs
 
