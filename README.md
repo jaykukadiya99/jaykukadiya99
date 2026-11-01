@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः | मनसैवेन्द्रियग्रामं विनियम्य समन्ततः ||६-२४||" </br>
-Translate: "6.24 Renouncing every desire which imagination can conceive, controlling the senses at every point by the power of mind;" </br>
+"तत्र तं बुद्धिसंयोगं लभते पौर्वदेहिकम् | यतते च ततो भूयः संसिद्धौ कुरुनन्दन ||६-४३||" </br>
+Translate: "6.43 Then the experience acquired in his former life will revive, and with its help he will strive for perfection more eagerly than before." </br>
 
 # Prefs
 
