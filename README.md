@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते | एतैर्विमोहयत्येष ज्ञानमावृत्य देहिनम् ||३-४०||" </br>
-Translate: "3.40 It works through the senses, the mind and the reason; and with their help destroys wisdom and confounds the soul." </br>
+"देही नित्यमवध्योऽयं देहे सर्वस्य भारत | तस्मात्सर्वाणि भूतानि न त्वं शोचितुमर्हसि ||२-३०||" </br>
+Translate: "2.30 Be not anxious about these armies. The Spirit in man is imperishable." </br>
 
 # Prefs
 
