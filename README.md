@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः | मनसस्तु परा बुद्धिर्यो बुद्धेः परतस्तु सः ||३-४२||" </br>
-Translate: "3.42 It is said that the senses are powerful. But beyond the senses is the mind, beyond the mind is the intellect, and beyond and greater than intellect is He." </br>
+"द्वाविमौ पुरुषौ लोके क्षरश्चाक्षर एव च | क्षरः सर्वाणि भूतानि कूटस्थोऽक्षर उच्यते ||१५-१६||" </br>
+Translate: "15.16 There are two aspects in Nature: the perishable and the imperishable. All life in this world belongs to the former, the unchanging element belongs to the latter." </br>
 
 # Prefs
 
