@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"इति ते ज्ञानमाख्यातं गुह्याद्गुह्यतरं मया | विमृश्यैतदशेषेण यथेच्छसि तथा कुरु ||१८-६३||" </br>
-Translate: "18.63 Thus have I revealed to thee the Truth, the Mystery of mysteries. Having thought it over, thou art free to act as thou wilt." </br>
+"आख्याहि मे को भवानुग्ररूपो नमोऽस्तु ते देववर प्रसीद | विज्ञातुमिच्छामि भवन्तमाद्यं न हि प्रजानामि तव प्रवृत्तिम् ||११-३१||" </br>
+Translate: "11.31 Tell me then who Thou art, that wearest this dreadful Form? I bow before Thee, O Mighty One! Have mercy, I pray, and let me see Thee as Thou wert at first. I do not know what Thou intendest." </br>
 
 # Prefs
 
