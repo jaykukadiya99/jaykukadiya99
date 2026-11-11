@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"बहिरन्तश्च भूतानामचरं चरमेव च | सूक्ष्मत्वात्तदविज्ञेयं दूरस्थं चान्तिके च तत् ||१३-१६||" </br>
-Translate: "13.16 It is within all beings, yet outside; motionless yet moving; too subtle to be perceived; far away yet always near." </br>
+"विषया विनिवर्तन्ते निराहारस्य देहिनः | रसवर्जं रसोऽप्यस्य परं दृष्ट्वा निवर्तते ||२-५९||" </br>
+Translate: "2.59 The objects of sense turn from him who is abstemious. Even the relish for them is lost in him who has seen the Truth." </br>
 
 # Prefs
 
