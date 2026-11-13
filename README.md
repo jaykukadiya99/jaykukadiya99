@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"तत्र तं बुद्धिसंयोगं लभते पौर्वदेहिकम् | यतते च ततो भूयः संसिद्धौ कुरुनन्दन ||६-४३||" </br>
-Translate: "6.43 Then the experience acquired in his former life will revive, and with its help he will strive for perfection more eagerly than before." </br>
+"न तदस्ति पृथिव्यां वा दिवि देवेषु वा पुनः | सत्त्वं प्रकृतिजैर्मुक्तं यदेभिः स्यात्त्रिभिर्गुणैः ||१८-४०||" </br>
+Translate: "18.40 There is nothing anywhere on earth or in the higher worlds which is free from the three Qualities - for they are born of Nature." </br>
 
 # Prefs
 
