@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"योगिनामपि सर्वेषां मद्गतेनान्तरात्मना | श्रद्धावान्भजते यो मां स मे युक्ततमो मतः ||६-४७||" </br>
-Translate: "6.47 I look upon him as the best of mystics who, full of faith, worshippeth Me and abideth in Me."" </br>
+"अधर्मं धर्ममिति या मन्यते तमसावृता | सर्वार्थान्विपरीतांश्च बुद्धिः सा पार्थ तामसी ||१८-३२||" </br>
+Translate: "18.32 And that which, shrouded in Ignorance, thinks wrong right, and sees everything perversely, O Arjuna, that intellect is ruled by Darkness." </br>
 
 # Prefs
 
