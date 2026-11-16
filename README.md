@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"न च मत्स्थानि भूतानि पश्य मे योगमैश्वरम् | भूतभृन्न च भूतस्थो ममात्मा भूतभावनः ||९-५||" </br>
-Translate: "9.5 Nevertheless, they do not consciously abide in Me. Such is My Divine Sovereignty that though I, the Supreme Self, am the cause and upholder of all, yet I remain outside." </br>
+"उत्सीदेयुरिमे लोका न कुर्यां कर्म चेदहम् | सङ्करस्य च कर्ता स्यामुपहन्यामिमाः प्रजाः ||३-२४||" </br>
+Translate: "3.24 And if I were to refrain from action, the human race would be ruined; I should lead the world to chaos, and destruction would follow." </br>
 
 # Prefs
 
