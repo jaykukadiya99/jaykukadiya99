@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"न काङ्क्षे विजयं कृष्ण न च राज्यं सुखानि च | किं नो राज्येन गोविन्द किं भोगैर्जीवितेन वा ||१-३२||" </br>
-Translate: "1.32 Ah my Lord! I crave not for victory, nor for the kingdom, nor for any pleasure. What were a kingdom or happiness or life to me," </br>
+"श्रद्धावाँल्लभते ज्ञानं तत्परः संयतेन्द्रियः | ज्ञानं लब्ध्वा परां शान्तिमचिरेणाधिगच्छति ||४-३९||" </br>
+Translate: "4.39 He who is full of faith attains wisdom, and he too who can control his senses, having attained that wisdom, he shall ere long attain Supreme Peace." </br>
 
 # Prefs
 
