@@ -12,8 +12,8 @@
 
 ## Shlok of the day 🌞
 
-"ततः श्वेतैर्हयैर्युक्ते महति स्यन्दने स्थितौ | माधवः पाण्डवश्चैव दिव्यौ शङ्खौ प्रदध्मतुः ||१-१४||" </br>
-Translate: "1.14 Then seated in their spacious war chariot, yoked with white horses, Lord Shri Krishna and Arjuna sounded their divine shells." </br>
+"तच्च संस्मृत्य संस्मृत्य रूपमत्यद्भुतं हरेः | विस्मयो मे महान् राजन्हृष्यामि च पुनः पुनः ||१८-७७||" </br>
+Translate: "18.77 As memory recalls again and again the exceeding beauty of the Lord, I am filled with amazement and happiness." </br>
 
 # Prefs
 
